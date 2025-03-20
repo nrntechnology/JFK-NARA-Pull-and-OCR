@@ -1,0 +1,57 @@
+# Document
+
+## Page 1
+
+```text
+104-10221-10032 | 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+° .
+
+Ne C4 Record Vehee. vet,
+WA OD the copy a indiratet
+
+10 5 sarc Be eA
+
+DIRECTOR “raneh ony, Aled an tedoeated
+
+fo
+
+INFO, COP, C1, CIYORS, FI, FI/OFS, S/C 2
+
+FROM . RE Testing «check oor
+Merted S
+
+Conn WH 5 . iar . ; .
+Mavature: = a OT
+
+10 _ SACU “Into. HAVA . CITE OR :
+= - 7 eSooe c8002
+
+WEF SACU 337 (IN 44566) ©
+
+HUS TRACSS INDICATE SUA REF HAS BEEN GDER ODENVY, INVESTIGATICN
+
+POSSIBLE WuGISTRATION acT VIOLATIONS. BASS SHOULD DELL UITH SURNECT .
+
+“UNDER STRICT. OGASULAR COVER GND NUT HAKS ANY OOPSITNEATS VATICH NICHT
+WS Cau.
+
+SUS AS QDYORE APPHOVAL RIS iE TTES: an
+
+NS
+
+rong Y rote, VAL ED COAL
+ath i TD COGHZEATE 108
+3
+a
+yO
+So
+
+. ; .
+\e Mi: a WH/FIC Smee
+ah a. arse, [e/a COOUDIMATENG Ore red
+- aareasing ceeccea . S-E-C-R-E-T
+
+To 13890 RERRCDUCTION By RE ATTRSING OE 1S PRONBITED, :
+```
+

@@ -1,0 +1,42 @@
+# Document
+
+## Page 1
+
+```text
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 } : ov
+
+1400000
+[104-10186-10037|,
+
+> RETUN.
+7 . 4 ve
+. 7 . ; Py Raproduw
+URN TO
+° aad oe Only
+. (Bo Net Reproduce
+
+wwoens C) ves aw __@ . . : & . .
+cs ASSEFIEO MESSAGE " f?
+
+CLasaIFY TO FILE MO. Lge bn LEZ A
+wgeO
+
+oT ver.
+oestacy GC) sre.
+
+DIRECTOR 25a sH25182
+
+IS AMUG-1 DEBRIEFING (SPANISH VERSION) FonuanoEo (Hac¥}.3947 ,
+ary FOR Passace (To ee IF SO, PLAN GIVE PRESENT COPY TO
+
+(eu? RRIAGA PLS ADVISE. IF AFFIRMATIVE, PLS SEND ADDITIONAL
+
+COPY FOR Glia) RETENTION,
+
+SECRET
+BT as
+NNN
+
+Ge
+```
+

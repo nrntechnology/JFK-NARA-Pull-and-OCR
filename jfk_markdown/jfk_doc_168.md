@@ -1,0 +1,34 @@
+# Document
+
+## Page 1
+
+```text
+14,0000
+
+104-10101-10256) [2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+me | a tao 2 Ve
+ae
+
+’ ; :
+
+| "WED QE
+
+2. \CSEA BOW ACTIVE ama AXANBT. ROUXING INDICATOR RUEIOW ASSIGHED.
+
+OMLY KUBARK TRAFFIC HANDLED BY OTTAKA.
+ED OF SNSSAGE
+
+CoaRDINATENG Tee Geout
+
+;
+pee Tee Benes commenter acute tare actaman |
+f 1 Aewagredeng ana i
+
+é BCRST ; | L dectonrincetion /él
+On BH & STHER THAN ATHE ISSUE OFFICE 18° PROW: BITED, 2, £24, ZL.
+
+AUTMERTICATING
+ett td
+```
+

@@ -1,0 +1,31 @@
+# Document
+
+## Page 1
+
+```text
+| 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+— ; . . bag sro.
+vy Po Not Reproduce
+
+. IFIED MESSAGE": 7
+SSCnut:
+
+ooo
+
+ROUTINE |
+
+. = 7S, 6 a ¥ . ; CITE DIR - oe a
+
+STARDINATING OFFICERS 1 Grous 1
+a
+
+RELEASING AUTHEAT LSATING
+
+cree
+
+Face ys
+
+REPRODUCTION BY OTRER TRA 1@ ISSUING ES FROWISTED, Cary New
+```
+

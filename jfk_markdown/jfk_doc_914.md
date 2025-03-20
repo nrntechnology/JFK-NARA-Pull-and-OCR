@@ -1,0 +1,13 @@
+# Document
+
+## Page 1
+
+```text
+14-2000
+104-10516-10338| NT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 }
+
+ay
+
+: ‘
+```
+

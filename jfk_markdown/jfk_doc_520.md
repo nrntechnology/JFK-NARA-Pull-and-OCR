@@ -1,0 +1,58 @@
+# Document
+
+## Page 1
+
+```text
+14-2000
+104-10183-10011
+
+; [ 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS AGT OF 1992 |
+
+™~ aoe
+Mo, 0,
+4% bs 34
+‘ B A CLASSIFIED MESSAGE st
+ors (arerarcnt/a\ 00
+NT: SAS/EOB © INDEX
+or * 6153 (aKO INDEX
+
+TO 1 ROME
+FROM: DIRECTOR
+R
+I cone, SAS 8
+
+SIG CEN
+
+16 wo oor, Cl, ci/oPs, Ci /oA, Fl, We y RF, WR *
+
+ie ui
+Yio pREY ROME (NO WIACP) 'NFO CITE O1R ys4 $ ra 4
+
+KEYWAY PBRUMEN AMWHIP
+
+f- REF: DIR 71153 125/SEPT/63) #. “ ;
+
+“R AMMHIP DUE ROME WEEK OF 13 OCT AND WILL CONTACT STATION R
+
+| : PER OLD CONTACT PLAN. - c.
+o . END OF MESSAGE . a
+, SA3 COMMENT: * ROME SHOULD NOT EXPECT AMWHIP PRIOR WEEK OF 13 ootonas 7
+
+ROUTING
+
+“perrpres
+
+RIN/AN
+
+<7OO — zz
+
+re) SOCUDINATINN OFFICERS mer ufo a, bos
+fag | sxcagt
+REPROOUCTION Y Obat8 THAN THE ISSUING CIFFICE 4 Si piTEO. Coy New
+01 £389a i corr un
+
+waeye SAP Poe
+
+BR
+```
+

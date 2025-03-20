@@ -1,0 +1,27 @@
+# Document
+
+## Page 1
+
+```text
+14,0000
+
+[104- 10528- 10082
+
+KENNEDY ASSASSINATION RECORDS ACT OF 1992 J
+
+| 2025 RELEASE UNDER THE PRESIDENT JOHN F
+
+atta 4. mUNULuYy svn
+
+ves)
+
+DOP, ADP, C/C1, C/FI 2, C/wH.5, C/sAe 5,
+
+72346
+
+hot
+UTSSE tno riot
+
+SUISSE: THEN &£
+```
+

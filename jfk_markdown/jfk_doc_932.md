@@ -1,0 +1,34 @@
+# Document
+
+## Page 1
+
+```text
+2025 RELEASE UNDER THE PRESI ¥ ASS
+
+Pe
+ae
+
+ASSINATION RECORDS ACT OF 1992|. <
+
+“feeSigme oy sey
+
+orien SE ed
+
+aa
+
+v MEXT, SALY
+
+SALY: 4839
+
+“CIN: 63096)
+
+PCE DOES: NOT GIVE: DEVISTA-1 CONTACTS: IN.SALV, STATION
+$°T0, DEVISTA1 ONLY FIRST POUR NABES. OF ABOVE!
+
+atitherp svete
+
+THES
+
+at
+```
+

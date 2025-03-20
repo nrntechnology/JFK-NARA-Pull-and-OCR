@@ -1,0 +1,18 @@
+# Document
+
+## Page 1
+
+```text
+ASCERTAIN THAT ARMY we BEING ISSUED.
+HB 20-661-1) :
+
+SUBMIT FORM 1323 FOR TRANSFERRING COVER RESPONSIBILITY.
+
+(RB 240-250)
+
+{(__] cory 10 ‘cpo/oP.
+
+FORM
+coe 1551
+```
+

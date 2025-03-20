@@ -1,0 +1,19 @@
+# Document
+
+## Page 1
+
+```text
+104-10100-10087; 2025 RELEASE UNDER THE PRESIDENT | JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+; DIRECTOR
+ae CMe-2 -_ 7
+nro "DOP, ADDP, cle, chr 2; chet 5, “c/sas 2 RF,
+
+cy - oe . INFO ROME WAVE -
+IDEN A os BORN 26 FEB ro
+may} [iaaijerer, FORMERLY
+AGENT IN CUBA pon[ PLAT ]AKD 0 ONWER
+“TUEE FACTORY.
+10BH B (hosp FIRM, TURIN
+```
+

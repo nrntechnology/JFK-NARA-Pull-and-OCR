@@ -1,0 +1,49 @@
+# Document
+
+## Page 1
+
+```text
+14-2000
+104-10172-10256) . | 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+, “OUTEOINS MESSAGE
+sas cevngeanent 1 FO-T 3
+
+or oo 0 8 8 Oo
+
+Cenecaaroe
+
+SECRET . 7 wa necoe mmnasnce mm
+STAFF 2120332 DIRECTOR 934493 .
+SEF wo. me MPP et os < Q a OISSeM Br: 27 .
+O ounerve PEM
+(4-3 | 3G, O36/7e 2B, 51k mH ’
+O om #
+
+108 [Stockwoun.¥) jfeer, fers
+UNINTEL, GETOB, TZBLOCK ¥
+
+‘REFS ‘hocenon 45576 {IN Ob72bea1 , >
+13)
+i- WE HAVE BEGUN CHECKING WITH NOSENKO s[PDDIPPERS 197 AND 20s
+
+ann[epLape RE WALLENGERG AND WILL CABLE OR TELEPOUCH RESULTS AS
+RECEIVED. WE EXFECT TO BE FINISHED GY MID-NOVENGER.¥
+
+@- FILE: 203-5935- €2 INPDET ed
+. ’
+
+Ea SE/CI/X
+
+CURA ory
+
+care: 20 OCTOBER 1976 C/CI/RASE CROSS PILE con FSP
+ome: (BARBARA BRYANFEU? ey 201-09 F 7 PS
+vet: SE/X/EU 1%, EsSC/S
+cx: = 3049 bo xot Destroy
+iY, 3
+__ Biwe eseredeE a@ fo
+“eusscene coracen coseomates Urmane creaerestoe oma
+* REPRODUCTION BY OTHER THAN THE (SSUING OFFICE IS PROHISITEO —e 2 IMPOET
+```
+

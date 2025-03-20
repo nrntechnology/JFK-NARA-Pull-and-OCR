@@ -1,0 +1,54 @@
+# Document
+
+## Page 1
+
+```text
+14-00000_
+
+104-10179-10027|
+
+ee . ~ _ .
+b> te ay CLASSIFIED A. $4 GE
+otc (GRACE RoxERThd1a
+unit « WH/6 /PA SECRS
+. ext 1 8715 687
+ate: 28 OCF 1960
+
+YO + JHASH HAVARA
+FROM: DIRECTOR 7 2
+CONF: WH 9 ‘ /
+
+INFO « cop, apop/A, s/c 2
+
+, OUT 87264
+OUT! 87264
+to BASH ; tnro | BAVA 4 creo  Q9095
+suNEE yp Sop 02° y 05095
+1. POR GRNERED AMBAG,| UTRERA vanes, vane WACHADO, ROONPEREZ, AED
+EEREANDEZ, BETARCOURT] he?
+
+2. FOR MASH: peor neo rem Gms men ms
+DATA TESUFFICIE,
+
+EMD OF MESBAGE ; , ;
+
+;
+{
+1
+1
+i
+
+Br 1 one J COORDINATING OFFICERS Reske i
+Tr » SAFER: ([ seenez | 8 [secxet -| CRE Cy (33, By, RaraRS EOTARLINE,, 0/% be
+
+. REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED, corre.»
+
+yar
+
+| 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+&
+
+f
+```
+

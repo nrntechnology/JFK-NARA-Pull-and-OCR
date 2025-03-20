@@ -1,0 +1,2 @@
+$files = Get-ChildItem PATHTOYOURREPO\jfk_markdown\jfk_doc_*.md | Where-Object { $_.BaseName -match '^jfk_doc_\d+$' -and [int]($_.BaseName -replace 'jfk_doc_','') -le 1123 }
+Get-Content $files.FullName -Encoding UTF8 | Out-File PATHTOYOURREPO\JFKdocs\outfile1123.md -Encoding UTF8

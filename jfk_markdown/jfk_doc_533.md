@@ -1,0 +1,68 @@
+# Document
+
+## Page 1
+
+```text
+41 TCOK
+ITE Case
+
+ANYTHING | 3 by and Been
+
+ole
+
+MUST - CONVINCE: HIN ME b yscne' ot BOTH certs
+
+2 AS SOMTRIRUTING NEW INFO ADOT PAST: ac
+
+TEFEST
+
+as. ACERT
+
+See
+
+EL. 08 PCES aur | oF CoM 'SIDERPELE
+
+HIS Itpr teow =
+
+DOT: 20,"
+ENHANCE HIS VALUE. PPoBA
+
+INCLLDING REXT ANS cuze. .
+
+a
+-  §5CNET 21.
+
+54
+
+u
+14-00000
+
+eased
+
+TECAUST GF VALUE orf}
+oTizes NG sees t
+
+te PROCEEDING WITH ATPDST CF CLETRILLEROS
+
+vouLD OE BEVEFICIAL 48 LONG AS NOT aTTere UTES
+
+Ufo SSPEFITS-oF Ca PLAY, SOME CF THOSE DETAINED
+
+CeUPE cr Por 3
+
+AID TAQCETTED ACAINST CUTERILLA
+
+-§, APPRECIATE PEF & TO “HICH WILL REPLY AFTER PSEUES INE SE nTMER
+
+ass icy perst ae ou ox
+
+peasPreTs AND GOVT INTENT IONS ara [st {ILL -b AS
+
+“ gEo7ET
+# wiprhite t-/\ AS : Tp kant he 2" ea Aue
+
+hice
+
+Bat BE wes
+```
+

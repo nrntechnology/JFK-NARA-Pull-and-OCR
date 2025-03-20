@@ -1,0 +1,12309 @@
+# Document
+
+## Page 1
+
+```text
+14,0000
+
+104-10176-10004)
+
+[2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+NATEROAL
+
+SDOAT CEN HEADQUARTERS py
+
+HOUSE SELECT COUMILLILE Of ASSASSESAT EO
+
+FULE TITLE /NUMBER/VOLIE: :
+
+no. INCLUSIVE DATES: _/ ecg Clef. = 2R_ Mov. L196 L
+= “CUSTODIAL UNIT/LOCATION: —@/ JEXO _
+
+RAQM: 3257
+
+Lon. _ DELETIONS, TP ANY:
+
+7 um an a —-Cdens— Top rn
+
+“NO ROCUMENTS MAY GE COPTED OR REMOVED FROM THES ETRE,
+14-00000
+
+Tata Cracs
+
+Song Sesser Sseerren. MN Cited Misace
+
+ALA SOF
+
+WOLF TO FE RO
+
+Ae #o Caer to
+
+SECx ET Zsditecl sOV 68 CITE MEXICO Gii¥ 6228
+
+DIRECTOR, GUATEMALA CiTY INFO SNCOERA
+
+RYEAT PERUMER LIRING-3 os & ee
+~ a. waxico city as (ME ot mek ;
+
+REFS
+- BS. GUATEMALA CITY 21s9(P40b12
+1. LIRING-3 WRITTEN REPCRT PER LIRIAG-3 ASGueSi was
+“  REVIESED BY STATION WITH ASSISTANCE LEOKAR2 S. TGRKET. REPCRT AR
+
+LISITES TO ACTUAL EXPERIENCES WHILE INCARCERATED GUATEMALA CITY 4
+
+ATICN ACTUALLY RECEIVED FRed FAR MIMBERS 18 SAME JAIL.
+
+LIRiNG-3 SRIEFED TS DECLARE HIMSELF READ” HELP GUAT RESELS 5.2.
+
+= IDECLOSICaL REASONS AND AT SAME TIME IMPLY HE IS SEED MATERIAL
+HELP AFTER LONG INPRISORNENT.
+
+S YAITING AT LIRING GATE 1732 HGURS WHEN,
+
+4
+
+trorte Pr
+
+2. LikiNG-3 va :
+LIRING-3 ARRIVED VITH REPGRT. MEETING HELD IN BACK ROH CONSULATE
+
+SF° AND LIMITED TO LIRING-3 AND LIRING-3, FCLL NIGH POINTS TRIS
+
+BEETING:
+; A. LIRING*9 DID SCT READ REPCRT Zur HAD LIRING-3 sive
+
+HIM MAIN POINTS ORALLY. APPEARED MOST ISTERESTES IN LIRING-3 |
+RODDED wWHEG
+
+Pern
+
+7 _STATEXESTS GN Hoy GUAT REBELS FEEL TOWAR?S PBRUMES.
+LIRING-3 STATED WHAT REBELS KEED IS ADEQUATRE FUADS NOT ADDITIONAL =~ - -
+
+~ ~E ite 2eco2a 1) ols 2exov 68 cz0x!
+
+nr a
+
+TN ce EE BN HERES tte Paes eae teh ems mle
+
+®
+
+.
+So rere ato ee ones
+
+14-00000
+
+'
+
+i
+H
+i
+}
+
+, eT AND DD BETS EER EY :
+
+(€-9"_SEGRETAR AT DSsewinat ow S_ Cusseta Misseiz Tora. Comes
+PERN UST NORD tao
+Ss not A
+7
+
+(efzenFuled in) oom 2
+
+Ben ae car ae
+
+REPRODUC~ OA OF Trek COPY Peat pe
++ aDvante COPY Dao Cineve | moe Cvs Ge ro
+i « ar. z { CLASSY TS FILk Bw. ; I
+‘ f ~ ‘ | Wall TO PLE NGO 7 }
+Otsew sy 2 3 racmo (leer to BAancn passer ee
+AE TOw , ‘o TL
+RID copy! i
+in jeecen _ _
+i
+PAGE @ NEXico CITY o228 SECR=T —
+MEN (NEANIES ULVISORS).
+B. LIRING-3 EXPLAINED HE ANARCHIST, LEFTIST, IDZLAIST
+~~ quD FELT TRUE REVOLUTICN GOING CX GUATEMALA. THIS WHY HE
+j
+_ INTERCETED re WELDIes quaT PEBELG GNY WAY PCSSTELE. THIS SEEMED
+SATISFY LIRINS-9- _
+' “"- +g, prgisd-9 AGAIS MENTIONED TRIP TO HIS COUNTRY FOR
+
+LIRING-3 453 WIFE AND AGREED ARRANGE FOR PASSAGE LIRING-4 cy |
+
+TO CANADA SO LIRINS-4 COULD SEE FATHER WHO KEW YORK
+
+PERIMEN SHIF
+
+IRING=-9 ADAMANT LIRING-4 SHOULD SOT SEZ¥ VISA
+
+AS THIS WOULD EXPOSE HER TO “GRILLI&G™ BY Local
+
+EMBASSY. ;
+- D. LIRING-9 MADE VAGUE PROMISES HELP LIRING-3 IN CURREST - a
+
+DIFFICULT SITUATIOS ALTHOUGH NO FINANCIAL HELP MESTISNED.
+
+E, LIRING-3 WaS REQUESTED 70 RETURS TO LIRISS DEC, SEcowyD
+
+=
+
+“F6R FUTHER TALKS. LIRING-9 WAS SHOWN LETTERS REVENTLY RECEIVES
+
+_ BY LIRING-3 FROM FaR CONTACTS IS GUATENALA. LIRISG-3 BECLIXEDO
+* HOWEVER TO LET HIM KEEP THEM AND LIRING-9 MADE- HO ATTEMPT ccPY
+
+~ Lo,
+
+PSO BE eae AORN ae ceeit vnncrnt eter “SERN ND gaetets
+
+NT te St
+
+x2 Se POUCHING LIRING-3 REPORT. WILL CALE FURTHER DEVELOPMENTS, ©”
+APPRECIATE TORMET VISIT AND ASSISTANCE. es ee
+4, FILE 201-798301. a
+“SECRET , + eg ar t
+
+#
+
+14-0000
+
+LE SECRETS Cy Ce ED MESSAGE Tora, COMES
+ane TS SECRET wate
+
+Leen Filed fn}
+
+baer
+
+mon O vs Two
+CASEY TS FRE BO
+
+REF TO nt NO
+
+eum mo Leet -o
+
+> SE CRE T 232226 MOV G2-CITE GUATEMALA CITY 9739 , (2 Ke] 4
+| IMMEDIATE HEXICO CITY IFO IAMEDLATe DIRECTOR [A ‘
+
+| RYBAT PERUMEM i
+
+: : ! ,
+
+| REFS: A. HEXICO CITY 8159 CM ita 89 406 1.2
+
+: Be DIRECTION 55085 ' ae
+
+1. LEONARD S. TORMET (IGEN) GUATEMALA CITY CASE OFFICER TO TRAVEL
+MEXICO CITY FOR REF DISCUSSIONS. TOIMET ATTEMPTING BOOK PASSAGE
+PAH AM FLT 562, 24 WV. WILL ADVISE FIRM ETA BY CABLE 24 KOV. REQUEST
+MEET AD ACCOMODATE. .
+
+SECRET ss
+
+Bove Secrrtsosetmecenes on ‘ Ch sseo wesuce Tora: Comes povTag Aloce nitet- Sen ey | ~
+
+HRW Unit po is “i <
+
+Sp j P SECRET ~=>-—~ —__,_s .
+an ,
+
+D [Wins Filed ny
+
+4 wesc
+
+SB ECRE F G800iSL Be GE TITS TATENE
+| IMMEDIATE #ZA4ICO CITY iSF9 IMMEDIATE DIRECTOR
+i RYBAT PeAumes
+
+REF: uazénata city 3733(ta/ WGI Uy HANG Y 7 ,
+
+IDE: BARRY 5S. ROTCEY. | fe
+
+a . t 1
+Dpeuneet '
+i
+i}
+i
+i
+
+i t
+t
+
+t
+
+!
+
+i
+
+i
+
+:
+
+‘
+
+i
+
+1400000 54
+
+E ves no
+
+Fo a. SECRET
+
+CABLE SEC RE~atsT Drsseunanions : C29 Totes COMES ;
+PERBOW UNIT BOT F.4D g
+
+. “ZiSECRET SPSL,
+
+=z re) Félediny Doma BH
+
+{ _ REPROOUT TIOte OF THIS COPY PR <B:TID a
+
+° -33S93 SARE TO AE NO
+487 TO Pus NO.
+
+susp Dret ro
+
+ae Loo - [yo cor ia
+
+SECRET 2322212 "CY 62 CITE GUATOIALA CITY 59736
+
+|
+
+IMMEDIATE MEXICO CITY IKFO IENEDIATE DIRECTOR, ROUTINE JuCCERA
+RYBAT/PERUSEN/LIRING-3
+27 Maw fe fi suzS i
+REF: MEXICO CITY S155(A' pe
+1, BECAUSE LiRING-3 COMLD NOT LOGICALLY KaVE GAINED DETAILED |
+INSIGHT INTO INSURGENCY FOVENENT IN SUATEGMLA DURING ENCARCERAT 10%,
+"PO NOT BELIEVE I WECESSARY FOR GUATEMALA CITY STATION OFF 1CzE
+PROVIDE EXTENSIVE AND DETAILED SAIEF ING FOR PREPARATION LiRING-3
+REPORT. SUGGEST FOLLOWING GENERAL GUIDELINES, SUBJECT TO HRS ||,
+APPROVAL, WHICH OSTENSISILY TO BE IMPRESSIONS OF LIRING-3 BASED; —
+“(gh CONZERSATICNS WITH FA? LEADERS WHILE IP JAIL. i
+
+. i
+A. EMPHASIZE FRAStENT? SISGRGAN IZATION aND COMPETITICN
+
+t
+
+OF INSURGENT FORCES HAVE SERIOUSLY DISRUPTED INSURGENT MOVENEXT,
+WHICH KOU STAGHANT. ean DL,
+
+B. LEADERSHIP 1S OBVIOUSLY ISNATURE AND INCAPABLE OF
+
+,
+[
+k
+ORGARIZING AH ESFECTIVE MOVEMENT. i
+
+C. ACCORDING ROLA: DS “CESSLUITA” FAR FUNDS MISUSED BY
+
+* LEADERS if °MON-REVOLUTIONARY HAYS.” a us nn io
+t Dd. RECENT Far TERROR iSMy. waten FoR ‘ost PART ILL-corye1veD} -
+AND NOT PART OF OVERALL. STRATEGY, HAS WEAKENED MOVEMENT ‘THROUGH .
+
+oe a Kio escoen 1 ofS 23 MoU 66 C ONZE.
+
+. pee a cpenbette ements =
+
+14-00000
+
+Casi € SECRETARUT Dissent Now CLaSsirED MESSAGE Tota Comes. ROUTES ANCYOR INTTIALS - $25 BY
+
+weer O ves Cowo
+
+CRABSIFY TO FUE Oca ener
+
+or -. z=
+Se
+“pesseas eve rag mo Catt. 10
+Par 7 ~ Oo 7 7 =
+rove }
+PAGE 2 GUATEMALA CITY 9736 L -
+
+; LOSSES FROM GOG RETALIATION. GOG ABLE TAKE ADVANTAGE OF IMPULSIVE
+ACTIONS BY FAR HENBERS YHO FAILED MAKE ADEQUATE PREPARATIONS
+
+BEF OREHAND. 2 i
+: E, ESSENTIAL THAT NE LEADERSHIP CADRE BE FOUND TO REPLACE
+PRESENT COMMAND IF REVOLUTIONARY MOVEMENT TO SUCCEED. . :
+H] 2. FYIs OBJECTIVE OF ABOVE IS JO PAINT AS DISMAL A PICTURE
+“ AS POSSIBLE FOR CUBANS, AND TO SUGGEST THAT LATTER IMPOSE CONDITIONS
+‘ YHICH WILL BE UNACCEPTABLE TO PRESENT INSURGENT LEADERSHIP, FEEL
+“THAT ANY ATTEMPT BY CUBANS Tc REPLACE CURRENT LEADERSHIP WOULD .
+: FURTHER FRACTIONALIZE AND DEMORALIZE INSURGENTS, :
+
+‘ 3. WO INDEX, FILE: 2e1-792321.
+i .
+‘SECRET :
+
+14-0000
+
+ca TARIAT DISSE MIA TOM . ITED MESSAGE Tota, Comes
+Fee. ROE ssn mesnce rom cones / .
+
+pra SEGRE =
+ADVANCE COPY Eff wscro oO SLOTTED
+
+~. I - ya (Ge
+we Pen .
+. ee
+
+_ y) tile
+SECRET 23823¢Z WV 68 CITE SEXICO CITY 8159
+
+woe G ves O ne
+CLASSIFY TO PLE NO.
+
+REF TO Pt MO.
+
+ene ao Cear vo ct
+
+' VOMEDIATE GUATEMALA CLIY DIRECTOR INFO JMCOERA
+
+RYBAT PBRUMEN LIRING-3
+
+HEF: MEXICO CLIY 79ee8 & 25321) Utes H40273
+
+DURING LONS DISCUSSION LIRIMG~9 HAD AE LIRTNS ‘WITH | a
+
+LIRIAG-3 ON 2i NOV LIRING*9 ASKED LIRING-3 PREPARE DETAILED
+WRITTEN REPORT DUE 173 HOURS 26 NOV ON HIS EXPERIENCES GUATEMALA
+AND WIS CONTACTS WITH FAR PERSONALITIES WHILE INCARCERATED.
+WHEN L:RING-3 MENTIONED LACK ADEQUATE PBRUMEN SUPPOST LIRING-9
+EXCITEDLY AGREED STATING HIS CAPITAL pip NOT UNDERSTAND FAR AND
+map Dove MANY THIKes MSE, ue ADDER LIRING-3 SHOULD POINT OUT
+OH PACER HOW PBRUNEN HAD FAILED 18 GUATEMALA AND GIVE HIS: , :
+OPENION OF WHAT NEEDED, LIRING-9 ALSO.VERY INTERESTED IN WHAT
+LIRING-3 KNOWS OF SQUABBLE BETWEEN GUAT LEFTISTS. aaONG MANY
+OTHER QUESTIONS LIRING- 3 WANTED TO KNOW WHETHER JEANETTE FIRK Mab :
+FAR MISSION BEFOPE HER $EATH. i
+_ 2 LIRTWG-9 STATED CHIEF LIRIWS “DOES NOT HAVE VERY MUCH |
+10 DO WITH THESE TMIMSS" CCLANDESTINE ACTIVITLES 16 GUATEWALAD ;
+
+: Ae “HIS OPINION DOES NOT MATTER." SAID WOULD ARRANGE FOR |
+
+ooo
+
+©! SECRET
+
+epee
+
+14-0000
+
+i
+- i
+;
+CABLE SECRETARIAT DISSEMINATION. CLASS ED MESSE Torac COMES ROUT.NG AND/OR INITIALS - SEEW BY
+
+SECRET .'2.~ LJ
+. (Whe: Fede bey Biase
+. PEPROOUC Tce OF TrS COPY PROM EITED
+waco | ] nore =
+~ sovancecore [] wou Cows Sho
+
+cLassiy ro ene sO . . ’
+
+ar z
+
+or
+wREE TO MLE NO
+
+‘
+. ene mo Cest to prance OC) prstRov's $6
+rez) ~
+
+(Caio cory . .
+
+pee. we ie . ‘
+_ . ‘ t |
+PaGE 2 MEX:CO ClTY 8159 SECRET
+MEETING AT i738 GN 25 bG/ WITH “EO%e MY COLLEAGUES” SO CAN
+
+Dissew Gy______ Pen
+* “KeTIGN
+
+DISCUSS LIRIWG-3 REPORT AND SUGGESTIONS AT LENGTH “ IW BETTER
+PLACE FCR PRIVATE TALK.” WHEN Li2l koe3 EXPRESSED HOPE HE MIGHT
+AITLIFY UNIS ACEOAT 28 Fenoom Lt coxuviet UaPiial, LininGe9
+i SUGGESTED HE MIGHT BE INVITED FOR CULTVRAL EXPOSITION TO MAXE
+TRIP APPEAR INNOCJOUS AMD OFFERED TO MAKE ALL NECESSARY ARRARSE-
+MENTS. :
+
+3, REQUEST GUAT CLTY STATION OFFICER FAMILIAR WITH raps
+PGT OP SROCEED MEXICO CITY MORWING Z3 RCV TO DISCUSS ABOVE AND.
+PROVIDE GUIDANCE FOR PREPARATION LIRING-3 REPORT TO LIRING. 18
+
+ADDITION TO PERSONAL EXPERIENCE LIRI NCHS could AT TRIBUTE
+
+WHICH WOFIRM MIGHT WAST REACH PBRUMENERS T@ NOW ‘DEAD JOSE BC KACIQ -
+
+4
+
+ROL ANDOCL OPEZ? RUIZ WITH HOM MAD CONTACT IN JAIL. PLS ADVISE
+
+ETA BY IMMEDIATE. WiLL MEET AT AIRPORT BUT IF ANYTHING Ges | 4
+WRONG CFFICER SHOULD PHONE IDEN, po
+, |
+
+4 FILE 28: -79833!. —
+SECRET ; : y-
+
+‘
+oa
+
+:
+
+an nee st RSL ICT 2 OTL MRinaLerUY ectrnemee oy 5 non ene nee psmeaveln oe eames mene
+Hi
+‘
+'
+
+i
+
+i
+wf
+4
+
+14-00000
+
+< | AINA TION, ease cD MESSAGE Tora: Sones / %-.. couthe sno/on ners HATMLS - SEEN BY
+° => je[
+
+PROD — wr)
+
+RE: STON OF THiS COPY TED -
+
+sovaver cooy ano [[] nore a7 aan sine =
+wom © ves G no bo Tete
+
+wie 0g | owes PRECEDE SY
+BREF TO FUE NO p<?
+
+exe wo Cesr vo snare — beéreor fee sea
+
+aC TIOW
+
+B3iz NOV 6S CITE MEXICO CITY
+IMMEDIATE GUATEMALA CITY ,DIRECTOR INFO JNCOBRA
+
+DIRECT OR . 22 Hoy 68 40270 ‘
+
+we
+RYBAT PBRUMEN LIRING-3
+
+REF MEXICO CITY 8159 {> Yor 23]
+1. ILEN IS FRANCIS SHERRY, FHONE NO. 22-76-66.
+"2. FILE 201-798301. . ‘
+SECRET
+
+dmeenrene Sense rapa eet
+¢
+
+SECRET
+
+eae . °
+
+“sae, Marvin “Yrancis/re
+ann" vil L [_
+un 4167/1973
+
+vatz ol hoy 68
+
+. TARE SETTALIAT custiemanon | io ees tte =O
+‘ . we AN ree —t. __| (G wwe CT} sarees sie no,
+iieatacnen, .
+
+SECRET
+
+r Fexico CLix fEt INFO: GUATERALA CITY }
+
+~ : ’
+
+- RYGAT PER « LLRING ie ' :
+MEMEPT NCE, NEV TER Grey gonn fr 939010 : ' :
+
+1. SUBJECT TO GUATEMALA STATION CONCURRENCE, WE BELIEVE, LIRING/S
+° ”
+
+S¥0.3.3 Be CANDID WITH LIRING/I9 AND TELL HIM Witt AND AS NCH AS ME
+
+‘
+{
+i
+
+AGiC TO ENOW, WE FEEL IF LIEING/3 ATTEMPTED WITHHOLD OR’ DISTORT
+
+HIS IMPRISONMENT, IT COULD BE COUNTERPROLUCTIVE TO OPERATICH
+
+5Y COULD CHECK OTEER SGURCES FOR ACCURACY,
+
+2, THERE NO URGENCY FOR LIRING/S MAKE TRIP TO PERULEN. WE
+BELISVE IT NORE ADVANTAGEOUS FOR HIM TO REMAIN HEAICO: ‘AND ATTEMPT
+
+BECONE INVOLVED LOCAL PBRUMEN/GUATESALA EXILE activitics,| IF, HOW.
+EVER, LIRING/10 SUGGESTS LIRING/3 GO PBRUMEN, HE SHOULD: NOT HESITATE
+DO 50, oo . 1
+
+3. DEFER TO GUATEMALA CITY FOR IDENTIFICATION REFERENCE WAR
+
+Lathe.
+
+NAMES,
+4. FILE 50-6- 141/3, 201-798301 AND 201-776733.
+
+£ Cebu NVars te <Q ESD OF MESSAGE ~~~ ~~ “| ey fiw coe ; : ~
+
+WILLIAN V. at . WH/COG/OPS. w7, ia = KAUFMAN 4
+c/a Vichises 4
+sok: y vey
+
+SIWALIOG QFIaR SECRE = surematic | AurumercRnne . “
+
+naan natae_J * :
+
+REPRODUCTION BY OTHER THAN THE ISSLING OFFICE IS reo | TNS.
+
+i
+
+~ - - H
+
+owe. M. Francis/re-——- Tomson ES a, :
+en, WH/} SECRET + +smpeenmmeng
+
+mr: 4167/1973"
+ean: 6 November 68
+
+CATE SECRETARIAT DisitmmAnos
+
+Toes coton}
+
+SECRET
+
+Taote and tare agba;
+
+r yextco CITY IXFO: GuaTekana Sorry
+
+/ Cohn f1Di CF
+
+REFERENCE: SMBXICO CITY 7945 (LN 27533)" | ~~ tt pays
+
+RYBAT PSRUMEN LIRING
+
+1. QS TRACES NEGATIVE RE RAFAEL ARGUETA AND ENRIQUE PUENTE.
+
+~- 2. FILE 201-248917, 201-798301 AND 50-9-i1.
+
+END OF MESSAGE
+
+WH COMMENT: *LIRING/3 received brief typewritten unsigned letter
+‘ -@hich expressed happiness his release from Guatemala
+jail. Envelope was from Enrique Puente Men's Store
+
+: in Guatemala City and writer identified self as. :
+: Rafael Argueta. ; i 8
+i : 0G/oPS. .} |. ae - ;
+
+2) WILLIAM V, BROE an nee
+C/WHD :
+
+COOROINATING csFceRs ”
+
+. fears ormee — OI og : :
+: MYSECRET | [“Syarat: jee .
+: ee | no . A
+i REPRODUCTION BY OTHER THAN TnE ISSUING OFFICE 1S PROHIBITER, — {
+
+ame eee
+
+Ree
+14-0000
+
+o 8 0
+Fa
+4
+
+°o.9:
+
+2 6 60:
+
+®@ 0 © ©
+
+(') anf oe tates
+
+38 47 DSew ASTON
+Sra
+
+]
+
+© aac Ciasco Lise
+
+oO ne 2
+
+- po wate ro ft = —_—___# s
+
+CAASSFy $$$ + renin. annmnereen
+
+Dssew we 1G va ee 2 ¥ SA :spE CxS RE
+One — ae .
+
+~ eran mene. clas, SONAR S- Se aaa
+
+SECRET 02552 cv $3 CITE MEXICS CITY 7345
+
+.
+'
+
+27333
+iy,
+
+cary - (74553/)
+
+de LIRING@3 SECEIVED Sea ITTER UNSIGNED LETTER
+
+waits 22 JSD FROE VRAFA .2GLETA AY LETTER YRICH COATAINS CARY
+
+S TvPomha?: RESSES HAPPINESS LIRiING-3 FISALLY RELIASZS
+
+'
+ae
+
+at ousser
+aiS HOFED +
+
+VER FRON THE "Gas ANGUSTIA” CAUSED
+
+9° ACTRESS 8: i
+_ 2. ENVELCPE IS AIRMAIL STATIONERY "LA DALIA AZUL, EYRIQUE
+
+—_——
+
+‘ PEESTE , ARTICULGS PARA CASALLEZGS, @ AVENIZA Y CK CALLE,
+WITH RETURR aloRness Ga Back] RAFAEL l
+AAs, ILAV. 25 22, ZGNA 1, CUATERALA Cok. ERvELOPE Is
+
+a Se
+
+H :
+POSTMARAZD 22 OCTOSER 1963 AND iS ADDRESSED TO LIRING-3/AT CALLE
+a HUGE 7, COL. JUAREZ, FEXiCO, GF. (SALON SE LA PLaSTICA *EXICAKA
+
+.
+ry
+Ps
+a
+
+WHICH LIRIEG-3 WaD GIVEN TS JUAN-AND MIGUEL LECN BARRIOS AS BEST
+
+(mre eens eters eee
+
+1400000
+
+: '
+im 7" Lasloae . i
+- . i ,
+' Sera. - She Cisse Mister Torn Coes Ge BOCA 14 ALS - SEEN BT
+Sted Seco tak 2° See VIS ssi Me io" Me SOA Ao
+
+oO Ragle ee NO
+
+SOY Pear BEES
+
+wo Ds I xo f
+
+CLASS Fe TO Fd AG ‘
+
+wee TO Fe wy
+
+O-— »- z i
+i
+
+Fig &> leat "oO Baancn sesmacy © sie
+
+2 S2xICo CHY 1545 SECRET : ;
+
+favees
+
+RG-S COMMENTED LETTER FRGZAR
+
+SIMPLY CeSIGiss
+
+SMMS CHANNEL. Talis KE Has
+
+eo
+
+RAFAEL ARGVETA A AND ASSUFES IT ALIAS Gi AGTICSAL LETTZR S20P.
+
+LIRIRG*5 ASSEN. LIRING@S YILL ASK FRIZSOS TC ExPeSiTe CCATACT
+
+Hi “SIKCE SZ PLANTING TRAVEL”.
+
+FARA L ADDRESS 3
+
+& USISS LIAISSN?
+
+uw
+tit]
+
+cRET
+
+°
+re) “5. FILE 221-248517, 261-798321.
+°
+
+e
+ft
+“a
+
+14-00000
+
+: a ‘ LEADE HOSE CURRENT LOCATION UNKNCUN,
+
+Cams SECRITIAY DEAT 7 LASGSIED MESSAGE Tota Comes a ANOVOR BSTULS - SEEW BY
+ET noc sue "Lk f
+
+1 Fitved In} mee
+
+Panter es To
+
+= CUASSHV TO FHE 60 ‘ ‘
+or. Te
+
+xAaF TO PE NO -
+oxssa Nise) o _} memo Oner to weancns C} oastaow CO} sa.
+“action ere
+
+yae
+SECRET £46482 HOV 68 CIT TEMALA CITY Sgbgrh
+MEXICO CITY 1EFO DIRECTOR 7650 . J
+RYBAT . . : .
+Loa
+
+REFS: Az DIR-47428 ; \ V6 Laren \ -3
+
+EB. MEXICO CITY-7922 (a S32/
+I. AGREE REFERENCE A.
+
+m
+a
+c
+
+1
+
+2. TRACES O8 PERSONS 4ENTIONED REF B AS FCLLOWS:
+A. JOSE IGHACIO ROLANDO <LOPzZ) RUIZ, AXA JORGE HERUANDEZ
+
+_ RIVAS, A&A “CESOLLAT - FAR MENSER ARRESTED 9 ZARCH 1968 AND EXECUTED
+LATE APRIL 1563. ho
+Bo JUAB JOSE ASD MIGUEL ANGEL DE (LEON BaRATOS, 20TH ¥ITH
+WARIOUS ALIASES, SROTIERS WHO TRAVELED SOVIEI UNTON 1964, n¥aERs’ oF
+FAR, ARRESTED LATE MARCH 1968, BELIEVED SENT TO PAVCH PEWAL FARM 26
+“APRIL 1968 AWD STILL SERVING SENTES iE. | '
+C. FRAKCISCO (RAMIREZ) CORADO > PGT LEADER ARRESTED MAY 1967
+‘AWD RELEASED LATE AUGUST 1968.
+
+- D. SUIO CESAR (#ACIAS) MAYORA, | AKA “CESAR MONTES”
+
+Po
+
+E. “PAVEL” - WO TRACES. = - =>
+
+Wer, Se STATIOS WILL prscuss Lirtic- 3 CASE AT ANYTIME COB
+
+h
+en
+
+~ SECRET
+
+fi
+
+CABLE SECRETARUT DstEarme Toy CUS esIED Messece Tota, Comes ROUTING AND/OR INITIALS - SEEN BY
+Fras
+
+SECRET =~
+
+(When Filled in) Set
+
+PEPROOUCTION OF THS COP PSOEBITED -
+co
+
+woo. GC ves 0 xo
+
+z Cassiry TO one AT
+at:
+
+i}
+eer 0 Fae nO b
+
+fuk mo Geer to
+
+i
+i
+PAGE 2 GUATEMALA CITY 9652 SECRET ; - E
+OTHER PARTIES. I
+
+4. DEFrn FILE#
+
+SECRET
+14-0000
++
+
+. ‘
+CLABLE SEC METAR? DrSSEMINaTION CUSSISIED MESSAGE Tota, COMES ROSTING ANDO? saTIALS - SEEN BY.
+SS eee ee
+
+PERSOW OT NOTED SECRET
+
+{When Filled icy
+
+wox O
+CLASSIFY TO FE NO
+
+AREF TU FILE NO.
+
+DIRECTOR ,GUATEMALA CITY
+RYBAT PBRUMEN LIRING-3
+
+idee 68 253.2 |
+
+t. ROWION REESTABLISHED CONTACT LIRING-3 had OCT axe a
+nen,
+BEGAN DETAILED DEBRIEFING EVENING SAME DAY. ROWION ALLED Gp. | .
+HE ARRANGED RELEASE THROUGH BROTHER OF BUSINESS _CONTACT_ WHO: l :
+
+i COLONEL GWA. LIRING-3, WHO ACCEPTED STORY WITHOUT questici
+STATED HE UNDERSTOCD ROWTCN COULD SGT HAVE ARRANGED EamLy
+; RELEASE FOR OSVIOUS SECURITY REASONS AND FELT ALMOST i |
+i  INTOLERASLE SUFFERING WORTH PAIN SINCE HAS COME OUT IN BEST
+POSSIBLE POSITION VISA-A-VIS FAR AS WELL AS PSRUMEN. 7
+“2. LIRING-3 HAS BEGUN GIVE COMPLETE DETAILS ARREST,
+: R RELEASC. |
+ASKED ROWTON KEEP SENSITIVE POINTS IN STRICTEST CONFIDENCE, |
+PARTICULARLY FROM LIRING-4, WKOM FEELS WOULD KOT APPROVE ¥zS!
+"CONTINUED POLITICAL ACTIVITY EVEN GX BEHALF ROWTON. HIGHLIGHTS
+_ DEBRIEFING FOLLOW: |.
+
+Ae ROLANDO “CEBOLLITA”. FAR OFFICIAL, WHO SHARED cit |
+
+DETESTICN
+Ses ias il
+
+SAND CORTACTS ESTYLISHED DURING AND &
+
+:
+
+* BLOCK 402 WITH LIRING-3 TOLD LATTER THAT HE Hae SENT REPORT i
+
+aneaa
+
+. ’ OF ARREST FAVORABLE To LIRIR-3 3 AND PLACING BLATE ON a,
+paper wemayire ; : ha oP
+
+2 Raw Geam2alEr
+Cares aid SECRET
+
+1400088 g ec
+
+Cear’ SECRETARUT OrSSEMINATION Cussssi€D MEssace TOTAL COMES ROUTING ANDVOR IMETIALS - SEEN BY
+
+FERMON CMT ROTIED SECRET CaouP:
+
+(When Fulied In}
+
+dowencon [Jaw [Jomo
+
+moe O ves G no
+
+1 CLASH TO PLE BOW i
+
+a ne i !
+
+; BREF YO FUE WO :
+ovssew ev ocr. ° raucmo rer to wrancn CS Destroy (3 sa.
+
+—=——— = ES
+‘BeTiOn Tro
+RID Copy! '
+[Fue va |
+
+PAGE 2 MEXICO CITY 7302 SECRET !
+
+LARA AND CARLOS PERSABAL TO FAR HOGS THAGUGH HIS MOTHER BHO
+ALLOWED TO VISIT HIM PRICR TO HIS EXECUTION.
+
+Be BROTHERS JUAN AND MIGUEL EON) BARRICS, wit :
+CLAIMED TO BE G-2 FAR, WHO ALSO SHARED CELLELOCK AND REMAINED
+If CLOSE CONTACT LTR: NG-3 THROUGHOUT HIS DETESTION, SHOWED
+LIRING-3 REPOST THEY HAD RECEIVED JULY FROM "RELIASLE FAR SOUR ces”
+
+seine Sumo nerene ety ees seen oe
+
+VEXICCG" DESCRIBING LIRING-3 AS "ANARQUICO, SIN PARTIDO, —
+
+to
+
+CONDUCTA BUENA, CORFIASLE; RESPONSABLE PERO DIFICI. ConTROLAR.”
+
+FOLLOWING THIS GENERALLY FAVORABLE REPORT JUAN AND MIGUEL
+
+@EON) ZARRIOS DISCUSSED FAR SITUATION FREELY WITH LIRING-3 '
+AND AERANGED FOR SECRET CONTACT WITH FAR REPRESENTATIVE (| .
+
+1
+VEXICS "PAVEL™. ALSO TOLD LIRING-3 MONTES COMPLETELY STRIPTED
+OF POWER SINCE HAD I8 FACT DESERTED REVOLUTION BY zE% INING
+
+_ OUTSIDE COUNTRY FOR EXTENDED PERIOD. MONTES CURRENTLY TEXICO:
+-. WHERE ‘EXPECTED REMAIN. FAR HAS COMPLETELY BROKEN WITH
+; GUAT CP. THIS ACCORDING LIRING-3 REFLECTED IN COCLNESS EVIDENT
+BETWEEN LEON | EROTHERS AND FRANCISCO CORACO, CP RESFONSIBLE IN
+2! PAVOK PRISON. ‘FAR HAS NOT BEEN RECEIVING FINANCIAL C2 MATER IAL
+_ SUPPORT FROM PBRUMEN FOR PAST SIX MONTHS SINCE REFUSAL FAR AccEPE
+
+t
+
+pee amare mentite ye ite benim te peter teens omet seamen aat
+
+. PBRUMEN TERMS (SUPERVISION PBRUMEN EXPERTS , FAVORED resiigow do Lo
+es SECRET Qe
+
+] :
+'
+
+7
+|
+i
+[
+I
+
+14-0000
+
+i
+1
+i
+t
+1
+i
+
+ween e DeLee ance: UTazenernr a Uae 8 Meroe tora, COMES
+
+PineeWont norrte SECRET wositu-~ |
+
+(Whee Filed n) meee 2
+
+:
+BO Ns ANU OS TALS - SEEN BT
+
+REFPOOUC TION CF THiS COPY PROMIBITED
+euntcow [Janne [Juores
+
+wo, O ves © so
+
+Cuamsiey 10 Fe Oe |
+
+wees TO MLE WO
+
+pag wo Dertr. 10 erancn i)
+
+PAGE 3 MEXICO CITY 7924S E CRE?
+
+FAR MENBERS TRAINED 16 PERUMEH) ALL FUNDSUN PAST CHANNELED
+‘THRCUGH GUAT CP ETC). ‘ Be a
+3. LIRING -3 TOLD RO¥TON HE INSTRUCTED LEG! BROTHERS HAVE
+PPACEL® COT IN TOUCH VITA Hid WeizamiNe HIS ADDRESS) THROUGH
+" SALON CE LA PLASTICA MEXICAN BY POSING AS PERSON REPRESEATING
+!  *WILETA"WHO INTERESTED IN BUYING LIRING-3 WATERCOLORS GOME: 2%
+PRISON). LI@ING-3 PLAMS FOR COVER PURPOSES WORK IN SIQUZIROS
+_ STUDIO CUERNAVACA AND ARRANGE SOONEST BELLAS ARTES SPONSORZL-
+EXPOSTION HIS LATEST PAINTINGS.
+A. VILL POUCH COMPLETE LIRING-3 DEBRIEFING AS SOON |
+IN COMPLETED. STATION HOPES LIRING AND PARTICULARLY LIRIKG-ie .
+
+WILL TRY ESTABLISH CONTACT WITH LIRING-3 AS HE CAN BE EXPECTED
+Pre INFO OF VALUE TO P3RUMEN REGIME, STATION INTENDS HAVE
+_LIRIKG ~3 TELL LIRING-12 ENOUGH T9 WET HIS APPETITE AND comuTNCE HIS
+LIRIKG-3 SHOULD BE DEBRIEFED AT SOME LENGTH. LIRING-3 wound ‘.
+
+ret (LiniNe 10K WILLING OUTLINE DETAILS HIS ORDEAL INCLUDING
+
+INFO"PBERUMENS SHOULD KNOW" BUT ONLY TO HIGH PBRUYEK
+
+¢
+
+. . a
+
+PSRUMEN, SUGGEST HGS, GUATEMALA CiTY AND MEXICO CITY sTaTidss <
+
+SETERMINE WHAT CAN BE PASSED PBRUMENS. CONFERENCE IN GUATEMALA ¢
+i ya :
+
+i+: { FUNCTIONARY(QND IN PBRUNES,) PRIOR TO POSSIBLE LIRING-3 TRIP “4.
+
+Bnew mie
+14-0000
+
++ AQwance coor { ] azue0 (J stores
+
+H
+CABLE SEC RETARUT DrSSEVATION CASES ED MESSAGE Tora. Comes POST ae anVOR INITIALS - SEEN BY
+
+SECRET nescence
+
+(When Fibers by
+
+CLASSIFY *O Fue SO
+
+vr ar
+
+e0er 12 TE HD
+
+oxsseu ov om eucmo Deer to sasecer pestrov Li sic.
+
+aT
+Enocor | cam
+
+‘PAGE 4 MEXICO CITY 722SECRET :
+CITY BETWEEN ROWITON, FRADYER AKD GUAT CITY STATION REPS MIGHT
+
+BE USEFUL IN THIS COXKECTION.
+5. ASSUME GUAT KANES MENTIONED ABOVE ARE “WAR NAMES™.
+
+AH GUATEMALA CITY SHED SOME LIGHT THEIR IDENTITIES.
+Se FabE cuinfzx0001~
+
+SECRET ‘ : i
+
+We 4 Ee Po
+
+ASSUueE THAT WE Will VOT
+
+, Rueyed | Pad. i
+
+soll QQ SECRET.
+
+Geen ne Semen orem + vee ee
+
+|
+
+|
+
+; .
+
+| BWUdDE Wwesrhod Rrleors & Row s
+|
+
+~ = .
+2." Gamie Sec meramaT OxSSEMt ATION wassirico Messer’ ” Tore, Comes, (OUT.N03 ANOJOR BEALS - SEEN BY
+_ FON a areas SECRET ue
+. 5E me 1 @ ereneee
+| BV nerfed 1) ow
+
+- Abwank § Coy 0 seu LD sorta | etal
+
+Crastry TO #34 SOP i
+
+OM ar
+
+| WER TO FL WO . !
+
+Oates Pann ae :
+
+Gola Or when flew cls E12
+. lone UY fo C- Yy FS CHOPS.
+
+: a jad :
+- SECRET 24182 OCT S8 CITE GUATEMALA CiTY\9614 / 4
+
+PEXICO CITY INFO DIRECTOR
+
+~ 28027 88 ih20246
+PSRUMEN LIRING/3
+. REF s MEXICO CITY 7775 (Y/9623) ,
+
+1. ESMICA/13 REPORTED LIRING/3 AND COMPANION DEPARTED GUATEMALA
+
+uz mo Leet to enarcn (I *_pesreaor Due
+
+$3 OCTOBER 1968 VIA TACA FLIGHT 218 FOR MEXICO CITY. THEY ASYED FOR
+
+~ ASD RECEIVED ESCORT DIRECTLY FROM PRISON FARM TO AIRPORT.
+
+2. FILE: 281-248917. ,
+“~  SECRET 7
+~ p4yvAl
+: | ee
+: MICR. } .
+Xie  OSLMED T |
+Ber - NOV 13 1969 J .
+i ~MecRS, ary i ;
+ne vo, - +. SECRET j6 apay | gy Oct 65
+gy 20)-24GUT re cS COPY 1 Aol 798 50f
+
+vt
+
+14-00000
+
+i
+y
+i
+!
+
+veoere Oves 0) xe “ “
+SASSTFIED MESSAGE
+
+CLAGBIPY 70 FILE BO.
+
+Toren comics
+
+a BORER TC FILE HO. a ep
+ous erot) eer. 10 sence SECRET Leas
+bEsTasy B ‘ PEROT ORI waTieiee i
+]Srasce cory
+pity Oarorres
+hob feecade 5 3 F 723
+dé 5745 AY ACT OF IN /%A3
+GAP asia CFTY, 5 i
+| .
+. * 2
+a
+UMAa GS 4
+rad
+; a{7Le
+peeNihp whP THER . (
+D PETE OTR wit Ce WOW fies
+i
+Whi By Seen FP BE ARP ae we, |
+& TO Facivsteiz LIRENG*3 SND OPEN
+:
+. _. '
+O90 TO POSSE: FOULS Es AE TNS TAGTANSaL Ts LIRING?3 RELEASE
+SPATS PB STL Meck poet SENG EIN TRESS PR TIOR Ua .
+Fevei ete Yen a léN renS3S¥ iba °
+PRIOR QaTRS Sn cee Sue leave olarlesene wine MENT TAN HOWTOS
+. i
+PEPE TOE UNF ye tek BRaBee CONTACT
+A
+PON Tet ates ote SHOWS D Tite UREN ne ce wink moat at |
+ANB TER eee ASE ee ee dere Cats Ce CE Le KE RVICE
+i
+. t oo
+EMO le WOT ANT Ba TAPS EDGR po :
+1 a : i
+. - Tartine she ist Feceene OR cnBaws SQ Fah UNStLe
+. eats as lish Covtend #21 nen i
+. . “e
+Boe +3 .
+- S@txne “HOt
+SR EF
+oa
+eo ,
+
+-
+
+: .
+CaBis tCHETAKe Ue EMENATION ~~ CUSSIFED MESSAGE TOTAL LOPES
+
+- (Wren Filled i) STS
+
+—— ——
+—— REPROOIS HON SF TOSCO PROMESTED
+EOwancE COPY [ ] sso DJ sone >
+
+coo, G ves O wa
+«! 2 «
+
+cust $0 ripe XO
+
+SECRET O423272 OCT 68 CITE MEXICO CITY 7486 pean ty
+
+DIRECTOR, GUATEMALA CITY 56-783 ROGEOL
+- ole
+
+REFS: A. DIRECTOR 36584 : T
+B. GUATEMALA CITY 9517 (vo02std Qik
+Co HMMA 35.22 PARA 5 —
+
+“L. STATION WISHES TO REITERATE ONCE MORE ITS RELUCTANCE TO
+
+SOMEHOW TRY TO FREE LIRING-3 FROM JAIL IB GUATEMALA CITY BY GO1NS ~
+
+TO LIAISON AND EXPOSING HIS WOFIRM CONNECTION. MEXICO CITY STATION
+
+IB AGREEMENT WITH REF B STATEMENT THAT MORE TIME SHOULD BE ALLOWED
+
+TO SEE IF LIRING-3 WILL NOT BE RELEASED IN NOT TOO DISTANT FUTURE
+
+WITHOUT INDICATING WOFIRM INTEREST. AS STATED IN REF C SUCH INDICA- .
+
+TION IF IT LEAXED GND STATION ASSUMES THIS FOSSISLE 1 GUATEMALA; 98
+
+IF IT ATTRACTED SUSPICION GUAT REBELS, MEXICAN LEFTISTS OR
+
+PRUMENERS WOULD RERDER FURTHER OPERATIOWAL EXP@SITAT1ON LIRING-3
+
+AND LIRING-4 PROBLEMATIC. IT MIGHT EVEN PROMPT GUAT REBELS ro
+
+TAKE REPRISALS AGAINST LIRING-3 AND LIRING-4. FURTHERMORE! TATION
+
+WOT AT ALL SURE THAT FREEING LIRING-3 THROUGH INTERVENTION ~~
+
+LIAISON MIGHT NOT JEOPARDIZE ROWTON SECURITY.
+
+~ ° 2e IF LIRING-3 RELEASED AFTER NORMAL TRIAL ‘WITHOUT any
+1ND 1CAT 108 oF OUTSIDE INFLUENCE STATION ASSUMES BOTH HE ano LIRI86-4
+
+mo ~~ SECRET. — E
+
++ vice ree
+1400000
+
+fn
+
+cn 2 a CT
+an
+>
+
+“SECRET saz © Fe
+
+i {Whee Flied try =e e+ t
+3 i &
+ REPROOUC TION OF Tes COPY ECan BIT ED Lt r oT os
+I
+moa C ws £ no Hl 1e
+p
+EREF TO PLE BO.
+mee mo [Lerr. to srence(] —
+
+“5
+ceed _ _
+
+. PAGE 2 MEXICO CITY ME6SECRET —
+: ae
+we WILL HAVE IKCREASED OPERATIONAL POTENTIAL. IF LIRING-3 NOT Ses
+. RELEASED I8 HEAR FUTURE LIRIBG-4 MAY FIND ONLY WAY OUT 4ER CURRENT “~~
+~ PREDICAMENT IS AT LEAST TEMPORARY RETURN TO reQUizwS SHE HICHT <S”,
+v AT THAT POINT BE AMENABLE USCERTAXE MISSION SIMILAR TO THAT SHE
+PREVIOUSLY AGREEABLE ATTEMPT FOR WOFIRN.
+~ 3. STATION WOULD WATURALLY BE WILLING RE-EXAMINE ITS ..
+POSITION RE LIRING-3 IF GUATEMALA CITY STATION COULD DETERMINE
+BEYOND ANY REASONABLE GOUBT THAT APPRCACH “OF JUDGE THROUGH
+° LIAISON WOULD NOT LEAK. CAB GUATEMALA CITY STATION GiVE SUCH '
+nd ASSURANCE? ~
+: ‘
+. 4. FE 2ebyssses. ;
+SECRET y- . aan
+vt 5 . ~
+' . a boa
+ra . ae
+~ -~+O SECRET W—
+5 os .
+—
+
+14-00000
+
+i
+
+mt; Etaikerdhs/jnu
+pans pes ars
+
+7375
+
+is} na | Ra lee Leica)
+
+(eate ond ime tise)
+
+: SECRET ; . .
+
+MIEICD Cray, GuATRMALA CITY
+
+RYBAT TYPIC LIRING _ _ tes
+
+~ vextco CITY 7335 (IN 99476)* a -
+=-~ ROWTON- RETURN-STILL iscewramn PENDING KESOLUTION DEVELOPMENT
+
+“ACCESS TO ANCAGE/1.
+2, BE LIRING/4, ROWTON COULD SEND MONEY OSTENSIBLY FROM L/4'S
+‘FATHER IN NEW YORK TO BAIL HER OUT OF PRESENT DESPERATE SITUATION,
+BUT THIS WOULD BE ONLY TEMPCRARY SOLUTION IN ADDITION INHERENT
+SECURITY RISKS (FATHER 18 REPORTEDLY HOSPITALIZED AND NOT IN a
+POSITION PROVIDE FINANCIAL HELP AT THIS TIME). ‘L/4'S REFUGE IX
+LIRING ESTABLISHMENT, ON OTHER HAND, WHICH ROWTON COULD NOT CONVINCE
+
+HER TO TAKE AS LONG AS HE WAS GIVING HER MONEY, WILL SERVE TO IMPROVE
+
+Loe eeqamgeraiecentinesera ae +
+
+‘ HER ACCESS AND MAY LEAD TO REPATRIATION. ROWTON FEELS LATTER i.
+
+bre EVENTUALITY LIKELY ONLY IN EVENT HIS CONTINUED FAILURE RECONTACT
+
+fe. “++ WER SINCE L/4 WOULD POSSIBLY HAVE NO OTHER ALTERNATIVE, IN THAT (
+
+Fe “+ CASE, REBRIEFING AND RESUPPLY S/W PRECLUDED PRIOR DEPARTURE. ROWTON ~~ ~~~
+
+7 . COULD DEBRIEF L/4 UPON HER RETURN MEXICO IF AND WHEN LIRING/3 “3
+
+t : RELEASED FROM PRISON AND CONTACT REESTABLISHED. po .
+ee REPRODUCTION BY OTHER THAN THE ISSUING OFFICE 1S PRONIBITED, a _ ;
+
+|
+
+i
+
+: I
+S|
+|.
+
+rn
+
+i
+!
+i of
+MEIUAGE FORE f ROUTES AND/ OF MTais - SEEM ET
+TOTAL COPIES: hit . e
+
+t
+
+p2e . . Ld i
+i
+
+20s . H
+mn é . | SECRET ! §¢5
+mm
+
+aaATE:
+
+fete” ‘siewt
+
+fessor) - (ore and Tore fed) Gemrects ober)
+PAGE TWO
+wo
+&. FOR GUATEMALA: WOULD APPRECIATE RECOMMENDATIONS. RE
+e
+AWARE WOFIRM INTEREST MUST BE SHOWN AT HIGH LEVEL BUT PEEL GUAT ;
+
+OPVICIALS COULD ALLEGE MEXICAN GOVT INTEREST TO THEIR SUROZDINATES ~
+
+" aS BASIS OF RELEASE, :
+—— __ 4, FILE 201-798302. a tO oS
+- END OF MESSAGE
+* RYBAT
+Ps ~ = . .
+t-
+
+seta Lena ably eet sue els waning
+
+s
+a
++ °° William v./Broe Gfii/2 lewarenmte Ze. Se Zz H| Gelade
+so 3 cf : COOERMALNG OFFICEES . 5 as a) /1
+_ Tt meses cence SECRET ——. SM genes
+ee REPRODUCTION BY OTHER THAN THE ISSUING OFFieos PROHAITER, Ory wa,
+
+1420000.
+
+When Filed inj pangeagansinad
+
+aor
+
+(OSFERET wasn
+
+: 1
+RYEAT TYPIC 25 Sep && 39476
+1. LIOBION MONITORISG LISARPSE& RECORTED LIRING-4 ENTERED
+LisieG Aun@ibo 2> oerifficenh. newucsiev Linise PunnisH PLace To
+. STAY BECAUSE SHE UNASLE FIND WCHd THIS CT ABLE PAY FOR LODGING. ~
+SAID WOULD STAY LIRING URTIL PROZLEM SOLVED.
+2. WISH BRISG AZDOVE ATTEBT 10% ROWTCN. ALSO WOULD APPRECIATE
+
+IFO ROWIO TRAVEL PLASS At ETA STATICS.
+
+3. FILE 281-7983281
+
+SECRET x
+
+\
+!
+“|
+i}
+A
+: .
+* .
+i SECRET
+cra geecntebaee meen menctmmnrinimntsentrenens © = cerns Benes mete ‘
+‘ ~
+
+14-0000
+
+BREED MESSAGE Tore Comes
+
+SECRET == ~—~ ;
+
+z ios ition Flee Co
+
+SECRET 5G:e422 SEP 68 CITE GEATEMALA CITY ¢ AB G25 606
+roe be Hidde
+Wed
+
+- DIRECTOR IKFO MCXICG CITY 4y
+RYBAT TYPIC LIRIRS
+1, GUATEMALA CITY STATiCa 15 WILE EUS TH Wee Tre Ureroon
+
+RELATIONSHIP IN ANY WAY HE
+
+;
+
+zSSSKY
+
+Or
+
+& SuPrckT UNILATERAL OF IRM
+
+a
+
+sere
+
+me
+
+OPERATIONS. hEVERTHELESS IT 4uST 32 FEALIZED THAT AFTER 6 MONTHS,
+REVEALING WOFIRM INTEREST I5 LIRISG-3 IS SOMEWHAT AWKWARD. WHILE
+GUATEMALAN CITY STATION IS KOT FULLY COGNIZANT OF ALL OPERATIONAL IZPLI-
+. . CATIONS LIRING-4 OPERATION AND ITS VALUE TO ¥OFIRN, YE CONTINUE TO Zz-
+LIEVE THAT BY ALLOWING NORE TIME LIRISEG-3 ASD CONPANIGS wie BE RE-
+LEASED WITHOUT KEED IMDITATE WOFIRN ISTEREST. THIS APPEARS MORE i6 Lie
+
+SiTH MEAICO CITY STATION PGSITICS THEY DEFINITELY HOT I8 FAVOR
+INTERVENTION WITH GUAT AUTHORITIES WHICH WOULD FINGER LIK 1iG-3
+
++ AS SOME TYPE WOFIRM ASSET (MEXICO CITY 59684). |
+
+’ - 20 IF MEXICO CiTY HAS CHANGED ABCVE POSITION Aho now AGREES
+. WOFIRB INTEREST CAN Se INDICATED, SUGGEST FCLLGVIEG APPROACH :
+le STATION WILL ADVISE ESmMAJOA-23 THAT MEXICO CITY HAS DEVELOPED
+
+pee ‘AN OPERATIONAL INTERES? I8 LIRISG-S°S Wi7E BUYUNABLE PROCEED i cee GS
+
+WITH OPERATION BECAUSE OF HER CONCERS OVER FATE OF HER HUSBAND aa
+
+- WE CAN THEN ASK ESMAJOR-28 ATIEMST ASCERTAIN WHEN TRIAL 4 ae
+
+SECRET
+
+14-00000
+
+ee nal
+
+t
+i
+
+Came SEC PETsmar Disseunmenions Cisse €D VESSArS Tora Costs ROUTING AND-Ge awTacS - SEEN BY
+PESSOW ENT NOTIFIED
+
+~ SECRET ~~ 5
+
+(hee: Fed tn)
+
+man DJewe [Jncne
+
+aed - 2 Cassere 10 Fun MO
+OF ne OT
+
+- \ ater YO PRE wo i
+
+cxssew ov. Fxe eo Tett vo
+
+acho to
+
+- RID COPY;
+te
+
+PAGE 2 GUATEMALS CITY 9517 SE TR ET
+_. SCHEDULED AD IKDICATION WHAT SENTERCE MAY EE. BELIEVE ANY
+: S% ESNAJOR-28 MAY REVEAL TO Tez CCURTS WILL DEVELOP
+
+~ RESPONSE. ON THE OTKeR USED. TE Turoe Te KN NOICET ION 9 z
+- REVEALING WOFIRM INTEREST DIRECTLY If LIRING-3, THE STATION
+
+CAS SO ADWSE ESMAJOR-22 ASD REQUEST HIS HELP. 7 I
+2, Be FRE: 201-2489i7, , ,
+1) SECRET
+
+8T
+
++S ornate ekebounatnce oeecssenmn Foe
+
+wot
+14-0000
+
+ACT Mu Leper Dine rhtes ye
+Uaey C126 pha A . Hot £23 bes! codach
+
+4
+
+we ee So
+
+_ me 6] Lo -3 the le feb _
+AMMA FIAT — nn Ac hererale b fr. oe
+
+oe, a ~ = aaa ae fn rn pee ee nee
+
+FF regi, ay te bo, geile to chet “Macca
+
+ae _ wee 4... la. 4 cone ol Catnen
+
+woe a - Carter - Perrowol pee
+lat GVO. _wmakcue_- . awaene = a
+
+T Des - 3jfony : ko doc. Revtats
+
+yA eY
+
+ta SAUCY.
+
+a _ _ ERNESTO. CAPLAN 6 = SOORACEOR a [a
+
+AY teh for Wo FRie
+
+ee . 3 tAYIT Ava ot as) ust |
+“Nae Wee
+
+a ee a nee aan
+
+ES eaverseo., Lara ~ :
+B Romer Seer
+
+et Coe JURA. ... goo
+
+i :
+\ ,
+i
+
+‘
+
+14-00000
+
+a ee ee ee rt en eee ee
+
+7
+
+L
+
+fl Hi
+i i
+a ne
+i
+__ A _ oe
+t
+
+Hl .
+De ee ee a TE tr
+
+i . cfs ne
+afpe ee ene ee ce ce nee at ete ene fatten oo ms
+q .
+
+nn ne ee ae eee a cae ——
+it
+
+ce ee nn ne er ee cn nmeeefer eee ene a
+
+——}- ce fe oo
+
+i - nn
+
+; fi i
+
+ec nt cae oo ——— eee —— -—-. [en
+
+Lo emergent
+Sep eeeenemnpnnetta nett ss wee metres carne tot da
+
+nL a re See OL Senne
+
+Bere REGU RED + REFERENGES.
+
+Distribution: | . oe L [EE -3
+
+%e athe ‘* BS core
+fees RUFLRENGE FO [SePATON STaSDN AND WOME 7
+
+' GASHICATION : 08 FLL RUSE
+ee
+
+Yemen canta Oise
+fan £268 ROOURS
+
+Activities of LIQING-3, LIRING-4 May throzgk Mid-Septenber 1958
+viel
+
+MICROFILMES
+
+REP: HAMA 34582, 17 wey 1958
+RET 14 1965
+
+Action Required: For your inforaation,
+DCC. MICRO. SER.
+
+1, Forwarded under separate cover are twelve reports prepared by
+Ualisee be AGG wie dhe Sccavities Os Liniiw73, Lialwess ane contacts of
+the latter.
+
+2. The main topic covered in RO.TON's reports is LIRING~4's efforts to
+obtain help fa getting LINING"3 out of tail in Guaterale zs soon as yossible,
+LIRTNG"4 is almost penniless (AUATON bes wade only tozen payments to her
+after i5 Juse) and hes been mving fro: one apartment to a cheaper one living
+on the saic of paintings left by LIRING?3 and saali loans frem ieftist contacts.
+In the hoge that she may de able to do something for Li2iG°3, LIRING-4 has |
+resisted all of RCUTCtu's efforts to sez her to undertake a claatestine missioa
+to PERUHEN, a mission, as Headquarters xnows, was pieaneé long ago. As a
+foreizner, LIRING-4 cannot work in Mexico without taking the chance of being
+deported, if caught. Aithough she has not tried it, she would prodadiy be
+refused a visa to go to Guatezala to visit LIRING*3. She nigac also face
+difficulties in Guatemala including possible detention and interrogation if
+she succeeded in obtaining an entry perait to that country. -
+
+3. By mid-September 1968 LIRING-S had ceceived very little telp fron
+her Mexican leftist or outright Communist frierds. In spite of procises to
+try to oribe the Guatensian judge scheduled to try LIZING-2 all LIRING@4's
+"Eriends” succeeded in doing was to print several articles in the loci press
+(some of thea with LIRING*3's photo) cleining thet LIRTNG93 wes unjustly
+imprisoned, that he was about to be executed, ete. if arything, these
+
+continued ole eooe
+
+hrents : C22 re r)
+Aen rs ten
+
+:
+
+orig ay C/wHD w/atts : 5
+7 egy piled in 201-798 B01 i :
+LO AOI-SISVAZ .
+
+a bo: a 0
+f 26 Septénber 1968
+
+1
+CONTIN TION OF SATA TEC RO ROUTE
+DISPATCH i eA © 35502
+
+articles did little to prejudice the Gustexalans in favor of LIRING“3.
+
+As a matter of fact, the ietcer who saccecded in sending LIZinNG4 a: fev
+
+letters via the Mexican Consul in Guetetala City who comes to visit |hia in
+
+jail, recently ciained thet he wea szved from 6 prison "transfer" by the .
+Guatenslen erey hy the arrival of the Mexican Consul. LIRING*3 viewed this
+“cransier™ purely and siuply as an execution ettemt.
+
+4 LIRINC4 received even less help from LIRISG who told her that
+- - - 4 there was nothing it could co to help LIAING"3, LIEING<4, on the advice
+contained in one of the notes seat from prison by LIRING*3, kept avay fron - .
+LIRING und its employees until she met LIRING-10 by accident at theloffice
+of one of the leftist papers on 27 Jai LINING"10 convinced her to resure
+fer visits to LIRING. That the local UMENs still have doubts about
+LIRING*3 despite his imprisonment in Gusteasaia is indicated by the statements
+. cade by Rodolfo REYES (see ECKTON's 17 Jzly report) to the effect that the
+latter would not be willing to help LIRTG-3 until be found our on whet :
+side of "al griego" (ROWION uncer faise identity) ke was, REYES added that :
+LIRING suspects the "griego™ of KOZIRM connections, although it has no
+definite proof of this.
+
+5. Statezencs suen as those mace by anieS confira the scacioa’s ceiieZ
+
+thet LIRING, upon orders froa hore, is still attempting to investigate
+, FOsTON. Such statements aleo re-enforce the cecisica of the Stacior. not to
+attespt, through liaison, to obtain the release of LERING?3. Such an ~ ”
+attempt, 1£ is leaked, woulé not oaly se LIRING*3 to PSRUYEN and
+Guatemalan FAR reprisals, {t would prob2>ly also have adverse repercussions
+on BOZTON's security, LIRING+11 whom RCOsTON met briefly oa 5 July (see
+g about LIZING’3's arrest whea
+
+RGWTOX's repor: dated 9 Culy) said nothing
+. ROWPON complained that mail which he said he sent ‘o LIRINS"3 resained .
+f : unanswered, It is also to de noted that REYES, who of course knows that
+poo LIRING"4 is in Yexico, told SG:TON that she was probably in 73KUZEN. This . .
+oy shows clearly the distrust with which LIRiNG views SONTON. ate wine .
+° cca Govn 7 a en 7
+i 6. LIRING"4 developed close relationship with Griando \SuAncZ of the a
+
+nist
+
+Ministry of Cul _ i oat the invitztion of the Mésican C
+LAMP ALD ros. Sy aid-Sepcexser, la fact, Sv
+was staying at LiRins-4's aparcmeat aithough LIRING-+ clained to ROWTON chat
+there was no rozancing betveen the two and that SUAREZ usec her apartment
+
+. because he was too broke to get one of his own, In view of LIRING*4's
+
+. assessment of SUAREZ as very leftist and pro-AMTEJG1 no effort was made to
+it approach bia, oe :
+
+5 pot
+7. Contacts between RCOWION and LIRING-4 have taken place with decressing
+
+frequenty because the usefulness of LIRING~4 to WOFISM has sharply decreased
+
+znd because LIRING@4 is more and more ccavinced that ROJTON cannot or will
+
+not help her obtain the release of LIRING@3. In her frantic efforts to ¢o
+
+. something for LIRING?3, LIRING*4 has in fact not had any contact with RONTCN
+
+: since early September, Unless LIRING@3 ‘s released by the Guatemalan
+
+-- - guthorities or receives only a light sentence keeping him in jail only a short
+
+time longer, i¢ is doubtful thst LIRINS-S will be of cuch use to ROWION and :
+i the Station, © : : | l ‘.
+: - for Willard c. CURTIS =. / gl
+
+_ SF PREWIOLS ED.TION.
+14-00000
+
+f
+Hi
+'
+t
+\
+I
+'
+
+CABLE SECRETARIAT DSSSEIANATION CLAre FIED MESSAGE Tota. COMES OUTING ANO/OR INITIALS - 2 By
+PERSO JON NOTED
+.
+
+i aDwantt Corr CJ asco DD storren
+
+Ne
+
+i
+‘
+H
+
+SECRET ance nme ic
+
+(When Filed nj are 9
+
+mox OC ves 0 wo
+
+CLASSY 10 FILE §O.
+
+SECRET 2716022 SEP 68 CITE GUATEMALA CITY 9511
+
+DIRECTOR INFO MEXICO CITY 2i Ser 68 G1 147
+Cc
+TYPIC LIRING oo
+yO
+REFERENCE : DIRECTOR 36584 wn
+
+1. MEXICO CITY 7335 NOT RECEIVED BY GUATEMALA CITY.
+2. FILE 291-798321.
+SECRET \
+
+i
+SECRET i;
+poy
+
+cee ee nee nee ee
+1400000 #9
+
+LCRBTACIAT GiSEEMUMATION
+
+co POSITION PROVIDE FINANCIAL HELP aT THIS THE). uss s REFUGE" B 5
+
+Ce
+
+_ preikesdhSs/jnw
+“ DC/Wi/L
+
+7375
+‘
+
+26 Sept 68
+
+c maui 19.
+
+i (D omz =] sesreor
+
+| oO mo penex Crus mes sat wo!
+
+SECRET
+
+~ "§ 2 372 Ser 68
+. MEXICO CITY, GUATEMALA CITY
+
+RYBAT TYPIC LIRIXG 7
+” REF: _ MEXICO CITY 7335 (IN 99476)# - - ;
+" "4 ROWTON RETURN’ STILL UNCERTAIN PENDING RESOLUTION DEVELOPUEX
+Access “TO AMCAGE/1. , “ :
+
+secuanTY RISKS, (FATHER i is REFORTEDLY ‘HOSPIT TALIZED AND: RO? mw
+
+. : ©
+
+: "HER “ACCESS AND MAY LEAD TO REPATRIATION . RO@TON FEELS LATTER.
+
+= "EVENTUALITY LIKELY ONLY IN EVENT HIS CONTINUED FAILURE, RECONTACT ad iv
+"BER: “SINCE L/4 WOULD POSSIBLY HAVE NO OTHER R ALTERSATIVES 1x mat :
+
+a
+Whe te Ke acy hs
+
+an @
+Ppa
+
+3 LOGPEMATING OFFICERS
+
+ee zee
+
+aa neta,
+ewrede oe
+meer get
+
+“perroauction worn OTHER THAN THE ISSUING OFFICE 13 pRaviaiteo. .
+
+14-0009,
+
+i
+
+MASIASE Foe
+‘ TOTAL CoerIs-
+
+| SECRET
+
+a . 7 (dems ictca) sco rg hme tess eee eamsery -
+ye F +
+he. ~ 3. FOR GUATEMALA: WOULD APPRECIATE RECOIMIENDATIOSS. RE a4
+E POSSIBILITY EABLY RELEASZ OF LIRING/3 AND ASSOCIATE FROU JAIL, S a
+if AWARE WOPIRY INTEREST MUST BE SHOWS AT HIGH LEVEL BUT FEEL GUAT 3
+E: :
+
+68 BASIS OF RELEASE. . oo
+“4... FILE. 201-798301. . :
+ESD. or. MESSAGE
+
+oJ Kaufman
+
+_, .C/WH/1
+
+3 : | pee RE ” REpROOGCTION BY OTHER THAN THE ISSUING OFFICE rT 5 FROHIDITEDS
+
+<. ~ iy a be mre 3
+et Pe lke dean we ene ev ewe ec SE
+iene: Maen &
+A ea SE ss |
+
+14-0000
+
+“A ry r
+cuban weseere Fee :
+
+f. forerFilern woe |
+a ‘ — 3S COM Peceie TLD
+Be? Sw =
+: |
+er 4
+¥:
+m4 SECRET S52isic Sip 68 Clit wZaicG CiirY 7535 :
+ced i
+gs + DIRECTC2a . ; . ud
+Bet RYBAT TYPIC DiSert 69,99478 ts
+ni I. LIONION MENITORING LISAMPAK RESORTED LIRING-4 EMTERED : -
+
+LIRISG MORNIEG 25 SEPTEMBER. REGUESTED LIRING FURNISH PLACE To - at
+
+a -
+STAY BECAUSE SKE UNABLE FIRD VORK THIS ECT AELE FAY For LODGING. .
+
+SAID WOULD STAY LIRING URTIL PROBLEM SOLVED. . |
+2s WISH BRING ABOVE ATTENTION ROwTOs. ALSO WOULD APPRECIATE
+INFO ROsTOM TRAVEL FLAWS AXD ETA STATION.
+-, Se FILE 261-798501 ;
+“SECRET So ,
+
+&
+3
+
+e
+a
+
+a
+Steps aeamecuant ennkaemer vag nen
+
+14-00000
+
+z
+
+i
+)
+LASUIFIED MESSAGE Tora comes 2 Topounses ANO/OR IETIALS - SEEN BY
+
+SECRET —-—~—~
+
+(Whon Filled by > Sane
+
+rere
+
+CABLE SECRE~AAT DeSSEMNATION
+PERSO UT NOTED
+
+a
+’
+
+moe O ves 0 xo
+
+1 | hath a a | COREG
+CLASSIFY TO FILE ———_——_— : - ‘
+
+7
+a . : |
+REF TO FUE ~v
+Sa
+2¢ fue mo Teer. ro 5 ra ; {
+
+SECRET 2818542 AUG 68 CITE GUATEMALA CITY 9326
+_ME\ICO CITY INFO DIRECTOR
+
+- ) Bhas bo ING7OE)
+“Rep a. mExtco city 6658 CIN GQ? -
+
+B. GUATEMALA CITY 9242 (DV 49331
+— C. GUATEMALA city 9133 (OW 35990) -
+
+RATIO POSITION oy LIRING
+I. 51 Lage asee 25 SeaBeeT 5 CASE CONTIBUES BE SAME. AS
+
+THAT REPORTED REF B.
+2. DURING LAST QUERY OF LIAISON RE STATUS OF CASE (REPORTED
+
+REF C), LIAISCN OFFICER SAID SINCE CASE IN HANDS OF COURT THEY
+UNABLE PROBE FURTHER RE OUTCOME. BELIEVE ANY ADDITIONAL QUERY oF
+-, LIAISON WOULD BE CLEAR INDICATION OF SPECIFIC STATION INTEREST |
+
+Se DY 0 . :
+|" 3, DIRECTCR ‘ioe er B OF MEXICO CITY 6£58) NOT RECEIVED
+> BY GUATEMALA CITY. ‘
+o SECRET. . ;
+
+14-0000q,
+
+“Is! gRTICLE TITLED “MEXICAN ARTIST TO BE EXECUTED", ARTICLE QUOTED
+
+ete H
+
+:
+i
+'
+i ;
+i
+” *GsaceSeceetama’ Dssemmnanon — “*_Cuassirien Messuce Tote COmts “ann ancOn auras - e
+FaROW NT NG FES cecues 7 Py
+SECRET wwe /, :
+
+(WhenFoerm) ZS
+=v REPRO TOm GF Tres COPY PSO ES. TED
+ao Anti COPY oO SUED Go SLOTTED pas
+moa. Ti ves O wo
+
+. CasAstiFy TO fut NO
+a a>
+
+f EREF TO FUE WO
+ossow oy Se mee mo Laer co
+
+_ / i "a Line cory cba wb) jee-1 ce
+
+P akale Cxrjrc-> Fe, lpn
+SECRET B12002 AUG 6 B/CIIE MEXICO CITY 6638
+
+GUATEMALA CITY ,DIRECTOR Bkscke 21g
+REFS: A. MEXICO CITY 6223(7N 47056) . sche
+
+ape
+B. DIRECTOR 16224 hed i Wy
+
+2
+1) PAUTAY CH Tao MARL 1 R40) MIRE FROM LIPTNG-4 ABOUT HOW |
+
+“| JUDGE SCHEDULED TRY CARLOS CJURADG)_ DELNAR COULD BE BPIBED GTHER
+; ™ AtQwe-d :
+THAN STATEMENT BY ARTUHO (SERRANO) BEREA TC EFFECT THIS TO BE
+ARRANSED BY GUAT COMMUNIST PARTY AT REQUEST MZi.-CAB COMMUSIST
+PARTY. PERSON TO MAKE ACTUAL BRIBE, HOWEVER, WOULD HOT BE KHON
+
+AS LEFTIST.
+
+. 2. MEXICO CITY ENGLISH LANGUAGE [AILY “THE NEWS" 5 AUG CARSTED 3
+
+*
+
+Grobe oF INTELLECTUALS incl uDiNe PAINTERS, WRITERS, PCETS + :
+~ VT fiAnNIANG EX :
+
+SCULPTCRS TO SAY GUAT 5 BONE Secure JURADO BECAUSE HE
+EWTERED GUATEMALA IN HIS CAR FOUR MONTHE AGO AKD PICKED UP SOME :
+HITCKHIXING YOUTHS WHO LATER TURNED OLT BE CONNECTED WITH euat
+
+COMMUNIST GUERRILLAS. ARTICLE OBY 1 OUSLY PLASTED SY LOCAL LEFTISTS
+
+“** IN EFFORT SPREAD NEWS JURADO ARREST AND DETENTiO8 TG FORCE OFFICIAL
+
+- -- GUT INTERVENTICR. ROYTON TRYING ESTABLISH FROM LIRING—A WHO
+
+“\ PLANTED ARTICLE.
+
+Doo oe + SECRET oe
+
+(Dt eee ne
+Cas Stcnevsmist Disemmato CLASS IED MESSAGE Tot Comes ROUTING AND/OR INITIALS - SEEMET
+moO wT eater
+SECRET nome wenn
+—
+(Whee Fisted boy me
+REPROOUT He OF “1S TORY ORO EITED
+
+wow G ws 3 ao
+a : i
+
+wREF TO FRE KO
+
+_—_—— tue wo Cert, rc °
+
+* aloe IE .
+7 Fite. ve - - . _
+wu. ~ PAGE 2 MEXICO CITY 6658 SECRET
+wo 3. BELIEVE BEVS ARTICLE COULD BE USED TO APPROACH LIAISON |
+"AND ASK FOR DETAILS ON JURADO CASE WITHOUT INDICATING ANY SPECIAL
+CONKECTION TO JURADO. SPECIFICALLY, WHAT SEBTENCE CAN BE’ EXPECTED
+* TH JURADO CASE ABD WHEN?
+i 4. FOR DIPECTOR: DESPITE SOMEWHAT COOLER RELATIONSHIP: WITK
+
+ROWTON AT THIS ¥2INT BECAUSE JURADO SITUATION, LIRING-4 STILL |
+
+| WILLING G0 PERUMER AS SOOH AS JURADO FUTURE SETTLED, PARTICULARLY
+‘+. 9p HE DEPORTED OR SENTENCED RELATIVELY SHORT JAIL SENTENCE.
+
+" SECRET
+
+i
+o.
+‘
+
+Soe SECRETS
+
+~— - Fon sen pantie agente ene
+
+t
+W
+
+—.
+“y
+
+2 ~,
+be,
+
+14-0000
+
+SECRET 121716 JUL 68 CITE GUATEMALA CITY 9242 os
+TEXICO CITY INFO DIRECTOR i2dese4e3olo
+REF A. SCWASHINGTCY 94613 - oo,
+
+B. DIRECTOR 15576 a De,
+STATION APPRECIATES MEXICO CITY STATION OPERATIONAL PROBLEM
+- WITH LIRISS/4, HOWEVER, SICE ACTICN‘SUSGESTED REF A MIGHT
+RESULT IN LIRING/3 CaSE BEING WORKED OUT WITHOUT ANY ADDITIONAL .
+INTENVENTION, BELIEVE REASONABLE THIME SHOULD BE ALLOWED TO PASS
+| PRIOR LIRING/A TAKING ABY ACTION.
+SECRET BE
+Br
+
+A
+
+a anne eT Sen a
+ae : :
+
+c neadavelbee stems
+r
+i
+
+Pe
+
+~ - .
+.
+Senet - Ente eaegreente cegrene tartare se
+rn
+i ”
+
+=
+
+ieeimnemenbiatieriantntedinelien tum ite aie eek eae Oe TO TT
+
+TAME fereetam as cette ecm
+
+oe TL garty Leen
+
+* . fo cee
+eee .
+
+cepts eenwrents amet
+
+BrcREr "ce pacron te fo
+r 2 Cbz dug LS576
+
+MEXICO CITY DiFO GUsTOUALA CITY . \
+“REFS: A. MEXICO CITY 6223 (IN .47056)*
+-B, GUATEMALA CITY 9236 (IN 47690) **
+
+1. HQS FILES INDICATE ARTURO SERRANO IN 1966 WAS DIRECTOR
+PCM PUBLISHING HOUSE FONDO DE CULTURA IN MEXICO CITY, BUT THERE NO :
+DETAILS RE HIS CONTACTS WITH THIRD COUNTRY EXILES OR OFFICIALS. WE .
+THEREFORE UNABLE COMMENT ON VALIDITY HIS CLAIM TO ASSIST LIRING/3,
+
+2. CONCUR GUATEMALA CITY COMMENT REF B. FEEL LIRING/4 SHOULD
+
+- CONTINUE PRESS SERRANO FOR MORE DETAILS HIS CHANNEL TO AND IDENTITY OF
+
+GUATEMALAN OFFICIALS INVOLVED, BELIEVE LIRING/4 AND STATION WILL THEN
+BE IN BETTER POSITION TO ASSESS VALIDITY SERRANO CLAIN. SUGGEST LIRING/4
+ALSO CHECK SERRANO STORY WITH LEFTIST CIRCLE OF FRIENDS TO ATTEMPT .
+VERIFY & axp EXPLORE POSSIBLE SOURCES OF FUNDS IF FEASIBLE. STATION
+
+- : : . , 5
+wien * . ov)
+I 33
+a e?
+— 7 ~~, re _ - st
+orrare ATTHERTCATNS
+BALEASINO OPT: | secret | ECRET san — akon = on
+ar) REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROWBITED,
+
+maeai
+
+PR Sen ae
+
+SY
+
+0 CIS Me A oe Oot SRO NY Ee LR
+14-0000 x
+
+2 !
+— .
+
+. 3 A
+
+1
+
+uxm WH/1/3E04
+6924
+11 July 1968
+
+: ~ ~
+H ‘ srtsacs poem . BOUTING AND/Ce mITALs - StL BY
+: i TOTAL Comas: ie 16, _
+’ ¢€ouce Marvin Francis:lq9 ra i?
+| | SECRET? | af zi H
+
+rT) ¢———_———} [) monem =] mas orcs rus no. i
+! CONFs OPOe
+a
+: fern tees} ee
+‘Blesssfcaton) ‘Fate ond te Gied) (relorecce number;
+SECRET an ISS7C6 >
+é vo Purxteo criy - PAGE - 2 ot aT
+4 SHOULD NOT ADVANCE LIRING/4 ANY FUNDS UNLESS LIRING/4 ABLE SECURELY .
+. EXPLAIN THEIR SOURCE. oo, ae
+: id
+' END OF MESSAGE . a ct
+WH COMMENTS: *LIRING/4 approached by PCM member Arturo SERRANO whe
+FA clained he has contact with Guatemalan exile who could
+t arrange bribe through relatives in Guatemaia to assist
+
+. LIRING/3 who imprisoned that country.
+**Guatemala City requested more inforration pradr to oan
+commenting on feasibility of bribe offer by SERRANO, -.
+
+i
+i.
+i
+
+|
+L
+
+es COT
+14-0000
+
+CLBLE SECRETARU” OnSEIAINATION
+Faron SR OS
+
+CLASSIFIED MESSAGE
+SECRET a
+
+(Wren Filled bo}
+
+cc senres re
+
+moe. O vee if no
+
+z OASSIFY TO FUE MO.
+vr ate a,
+
+w-REF TO Ful NO
+
+ruc mo Derr. vo
+
+SE CRE T 2022362 JUYE 63 CITE MEXICO city 5984 20 WwESiN352 1 Coy
+~ GUATEMALA CITY , DIRECTOR :
+KAPOK me o
+
+an f. LIRING-4, WHO POSTPONED DEPARTURE TO CUBA IM HOPE HELPING
+
+2. LIRING-3, HAS RECEIVED SEVERAL DISTRESSINS NOTES F20™ LATTER WHC,
+
+CONTRARY TO PREVIOUS INFO, STILL AWAITING SENTENCE IN JAIL. 4
+
+LIRING-3 COMPLAINS ASOUT VERY MEASER FOOD, UNSANITARY QUARTERS Bu
+
+AND CONSTANT FEAR OF PHYSICAL VIOLENCE. : r : ?
+__ i i
+
+t
+2. IN OWE NOTE LIRING-3 STATES MEXICAN EMBASSY IN GUATEMALA ‘ -
+
+ae
+
+CITY ABLE_DO VERY LITTLE FOR HIM AND HINTS HE MAY SECEIVE SEVERE :
+SERTENCE UNLESS SOME EFFORT MADE INFLUENCE JUDGE DECISION. Rtstct
+
+z: 7O BE “INFLUENCED” MENTIONED AS JUAN SANCHEZ, OFICIAL TERCERO DEL
+
+JUZSADO CUARTO DE PRIMERA INSTANCIA. IN OPER CODE LIRING-3 | : : nH
+
+REQUESTED LIRING-4 APPEAL TO ROWION CIN ALIAS) IN COWNECTION WITH
+ABOVE AS EXPECTS HIS TRIAL AND SENTENCING EARLY JULY.
+3. MEXICO CITY STATION DEFINITELY WOT IN FAVOR ISTERVENTIOS
+WITH SUAT AUTHORITIES WHICH COULD FINGER Liniue-jps SOME TYPE a
+: Wor in". ASSET. IS THERE SOME WAY, HOWEVER, GUAT CITY STATION coup
+DISCREETLY ASCERTAIN PROBABLY SENTENCE SIVEN LIRING-3 AND ADVISE.
+SECRET
+ST
+
+Es parental SER amen St - ethene te a wee come ee eee ee .
+
+ade gt eee me age +
+
+as
+
+2 en 0 ee a eran remem
+
+“4
+
+aft care terreno ee
+
+14-0000
+
+: " «SECRET eno re arent
+Whee Filled bj pean
+ee elo REPROOUCT On OF THIS COPY PROHIE'TED
+
+aod
+
+mox O ves 0 x0
+z qusuiry To Mut No
+
+XREF TO ME RO
+
+——} memo Cerer to
+
+SECRET 2118302 JUN 68 CITE A CITY 9138
+MEXICO CITY INFO DIRECTOR a Zi do 68 1535920
+_- REFS A. GUATEM
+
+B. KEXICO CITY-598a CfW 45 alo
+
+SITUATION UNCUANSES Fai TiAT AEF AL LIAISON CONTINUES OPIRE |
+, THAT SEWTENCE WILL BE LIGHT VIEV ONLY KNOWN CHARGE IS DISTRIBUTION
+; QOIHUNIST PROPAGANDA. .
+- SECRET
+; (BT
+i
+;
+i
+- -
+. j
+: . i
+
+- Oo -gecrer ws
+
+: |
+, ot
+
+- 1
+
+. ! ;
+
+Cia :
+feof .
+gree
+
+14-0000
+
+ses soggrny tigen eee tam meen) ewan antst
+
+oom ‘eee aT . < J
+ee sae Renee ca dm ches bait rme oles ae
+
+Tete
+
+- SECRET
+
+“wenen Filled int
+
+Q@ATENALa CITE lar GHAECTCR )
+awn
+RaFS: as wesicu citt $536 (ps /RWT
+
+meee - 41 tena
+2. Dla ala Cae sue qae 4 yew
+
+le néCTOR RLGCLFO GAsuGVAL) ALEGKIA IS GlaTt feel wnt
+
+2 AIGAT Havi Tu Htie uF Said TO Come TU claltG-4 assiStadve.
+
+@COCURDING Hanucl Giancic) PARDIAS, SANDOVAL ankiSTcD 3 UnY SHORTLY |
+
+AFTER HIS. WIFE AeTenacG FROM TRIP TO GUATEMALA. SaccGVAL wlre
+OU STAYING aT HOuSS GudeD BY MakCue TOGETHER WITH FanILy FRauCISCG
+
+fe id ATTEMPT COuiTcA ZVcNTUALITY MEXICAN POLICE (GN SaSIS
+Wru Proviveb oY SakDWal) MIGHT 52 LOOKING FOR LIRING-4 FUR :
+WIcRRVGATION, STATON haS ASKED LIRING~-4 GIVE UP BOTH APARTMENTS
+
+SHE al LIRING-3 Have Sco REATING. LIRING-4 WO LIVIiG W1Td 4
+
+i
+
+GAlFRIew. beFQhE NGVinG SHE RECEIVED VISIT OF dau WHO BeSCRIBED
+
+: i
+ser 6S LavYeK OF MEAICAU EMBASSY GUATEMALA CITY: La#Yea SAID He
+
+i
+#PPOLWT cD viFEND LIRLNG-3. LIRING-4 HAS RECEIVED FIVE SiUnT ;
+
+SECRET
+
+ad eR at
+
+or
+
+ACS
+
+fe ‘
+
+Pier tarsaek Puta Ceaers A suits AND/OF AALS - SEEN OE
+
+y SECRET eigenen
+
+| (When Filled &:;
+
+ater tke.ee
+
+LJ owes il wo
+
+Fa enesmes te re Mo.
+
+8FF WO me HO
+
+FaGe « NcAlCU CLIY 9064 5 E OR eT - 7
+MESSuGto Phos LinL8G-3 SHUGGLEG FROM JAIL. Oke IN OPEK CODE
+SUGGESTED Scie Gt PasoeD Tu HIM. STATION NATURALLY WILL DO NO
+wh TAG. : ;
+i Se CREA ‘
+' :
+i
+‘
+i ' .
+i : : '
+i
+{
+7 Py -
+OM ow hetee! =
+ff . t- .
+i
+a ’
+14-00000
+
+ation, Mexico City _
+_- . |: PME 9 PBRUMEN/Activities of LIRING-3 and Liming-4
+
+Action Required: FYI
+Reference : HiOMA-34484, 16 April 1968
+1. Forwarded under separate cover are eleven contact
+
+revortg on the setinitine of UTOIWC. 2 onl 4 fon the porsoa
+1 April to 10 Hay 1968 prepared by Waliace B. ROWTON.
+
+2, The main points covered in ROFTON'’s reports are::
+
+a. LIRING~3's association wich Guatemalan rebels
+in Mexico City, his departure for Guatemala and his —
+arrest and sentencing there; .
+
+b. Tks reaction of friends of LIRING-3's and
+LIRING contacts to the neve of his arrest:
+
+ec. LIRING-4's efforts to “caee" the offices of .
+the LIRING Consulate, particularly the “safe rooe", —
+and;
+
+: d. The obvious provocations of LIRING-4 by
+Sergio VALDEZ.
+
+Continued.....
+
+Attachnents:
+Reports (under separate cover)
+
+- Déstribution: | 7
+sk sit,J 3 - C/WED w/atts (ander separate cover)
+
+al- tS caPt
+
+14-0000
+
+Decne cng wee nee es
+
+ae ee,
+
+sever
+
+- CONTINUATION OF 7
+DISPATCH SECEET 1 EMOIA-34682
+
+mee emer
+
+Tass Paar Data cm Sowa ANG SoMBER
+
+3. The product of LI2ZING-4's efforts to case the ~
+LIRING consulate will be revieved in a separate dispatch
+which vill also transmit floor plans and dravirgs of that
+LIRIXG cosponent. There is little question that the-1ews
+of LIBING-3's arrest in Guatemala gained LIRING-4 the syn
+pathy of various members of LIRING including LIRING-3, -9
+and -16. They seez to understand LIRING-4‘'s desire to post
+her departure for PSRUMEN after having received her long awaited
+PBRUMEX visa. The problem now is to have LIEING=-4 leave for i
+PBRUMEN while LIRING=-3 is still incarcerated in Guatemala. As
+mentioned in a recent cable, ROWION has encouraged LIRING=4's.
+plans to try to visit LIRISG-3 in jail in Guatemala City as :
+ROWTON feels that LIRING-3 will probably urge LIRING-4 to
+spend in PBRUMEN at least some of the time he has to spend in
+jail. As for the conduct of Sergio VALDEZ (see ROWION's reports
+dated 19 April and 6 May), it appears that the latter has delib-
+erately been provocating Liginc-4. As this Station sees it,
+VALDEZ's purpose was to try to “shake up” LIZING-4 in the absence
+of LIRING-3 to test her reactions sotfal that be acted
+cabal ho aaa atriatin one bine em 2 ~
+indication that he ney have been doing” this for the PBRUMEN‘s
+(although this is no doubt a possibility). The Station is look=
+ing into the desirability, at this point, of placing VALDEZ
+under surveillance. The claim that ROWION in alias offered
+Carmen LOZADA i certain sum oi roney for intelligence information
+in PBRUMEN has no foundatioca. .
+
+4
+
+—_—_
+Z3e207/ L- > Fithin. it
+for/fillard C. CURTIS
+
+GSS CoN
+
+Usk marcus ionew, _ SECRET
+
+a, ae
+
+14-00000
+
+t
+
+» 1% Aprii,1s6a VG
+. 1 |
+Subject: Velisee 2 iceter Meeting with LInINS/a. t yo
+esissippi} oo ee
+froz eect 1245 uct: ‘ fi S Lewton che tad .
+beard angtnics frcz eins
+
+he hac prezised to 1
+write. Zeston preten
+
+ig Cbiepas te cnieh ske ecu
+
+sely where ard fcr tos long i/3 ise
+
+tencec te t+ awey, c tit rhusete %% he het teen
+out of tesn taree cars cm % ead Gic rot have tae benefit of
+
+- a final ¢iccursion. touten ellered thet if} hed rot told hiz very much in
+t.e letter te hed left with L/$ far hte fmet oF o>> Lilslig, anuj am Patt, .
+we DOL Eintiored axytiice abcut Hal Fereno oeyics his ard irancisee icra
+to Chicras ic bis car. In = farther efferz to xeersrextfé cissusde L/4 fros
+believics subsecuently (uhex she fincilr iesrned of tis errest) that sovton
+was restcisitle for tre tresie develosrent, seston alleged tu26 ae bad urged
+L/3 not to cross the tomer tatjonly to cuide Lare to a safe crossics point
+- and return incediztel 2 zie .
+2. L/% steted teat 3 5 little of the firal '
+errangezerts. She ezsl2i: : : 1: é he bei persunded Baki
+horeno to <rive niz : self-isfiicted leg
+wound thet crevents : : added thet 1/3;
+in Bis les <eleptese ccav w a GL i.orezo ued
+fiscally "ctickered cut® and
+Carlos rerszv2l ani icsten 3
+previous cecatitzent, rrebsbly ewen before they leit “exico » 31/3 turned TS
++. to Carlos Fersavel ané persu-ded hic te drive tren to Chiapas in his car, azd
+subsequently to accc=pesy ties asross the border}. L/% ccxutirued that she
+was hecpy tzet hovton bad cissuided L/3 fren crossizr tee borier beessue she
+was well ssare Of tie darters icvolved if te fell into a trap cr sas picked
+up by the Gartenalens. She elied that che didmgt yorticelzrly iikel Francizes my a
+Lara anyvay and feit tast he was tco well kom te escape cetection. { con :
+3. In reply; to Sosten's querz, ifs stated thst Sancoval of the rtairteenth” 0
+(Yon Sesa Group) had telepi-cned ner sov:rii tices to ask if he could help cer
+in any way, Dut cid nct anparently heve acy cevs. iicuton succested ithat L/&
+keep ic torch ith Sandoval gust infec he sieht have leernec cometining frca
+748 or Yon Sosa contacts. 1/% seve -koston Jardoval’s accdress es .2 ; 5&,apt ; fe
+B, bat couzentec thit she felt « little extarra:sed to see hic alone in the
+absence of 1/3. sowtcn then sucg:ated ta.t perhcps it alight de sore disercet
+> ap ° .
+Te Thala AER. cur, 21-799 301
+
+uw
+
+t
+i. :
+
+14-0000
+
+6
+
+\
+
+to.
+the tine) around
+chek she would
+get to tect
+
+to send L/3's 1G-year-cid son
+to enquire. a asreeé thet t:
+
+@ eflises whe rolod soz nercing .
+
+-L.3/t's office}
+
++ found cut thet “ene typewriter in
+ie to'deterkiute the
+
+4 to use ths trse-
+‘xot 2S yet seen 252
+
+exicsn/tuban Culty
+rien sad rot the sam
+
+exect nance.
+Office on oc:
+LIEI:G effi
+
+o
+iS)
+wa
+ct
+oy
+oO
+fe]
+s
+ic]
+.
+fh
+1
+i
+a
+
+5. ft co:
+past sonth
+office. L/S eiped teat «. 2 ke
+the salerizs of Jubana de aviceiém cerscnrel ned been reduced and fast Ler
+
+see rrevicrs
+
+husband's szlary had teen cut from “55 <cliere :
+LIHING office infcrned ter that ceecline .
+perscrnel. vetalina also t:1lé her trerz teczaeres cestined for Cuba were uct
+being delivered by Cubana ce évise:
+two officizls hed just arrived fror =
+involved. cetalina also co-rpisined that she was"sick and tired* of working
+
+. in the office witcout ;ay end psd thtec to quit vat «as told oy LIKINS/3 taat
+she must c:rtinue to teip since the scrsiozad vas so zreat. i/*+ also told -ovton
+
+; Favicuec fcr ail uissisn
+
+and teet the Dacklod #63 BO yPesb cual
+Vane to attenpt to resoivée the trewiama
+
+- that Cetelin: bed cozplaired of =orsr probdlens because of tre cut in her aus-
+bands salary enc hinted that she could use any roney 1/4 could loan her urtil
+next payday. covton suciested that i/& iend Catalina 7CC or eco pesos in view
+of the usefulness vetalina right provide in 1/4's corctinucd zeeess to the iI-
+RING offices. Lf4 aiced that Catalina hed apparently becone so attached ts her
+that she ses <ebce 1/4 to rove into the apartment ecross t.e| ball from ber aa
+which bad d:core vacant ( Sepero's azerteent is 208 at Calle! Juaracatlés. 159).
+
+6. Ivf also reported thzt Cateline bz. told ber thet a nes directs ive acd come
+out prohibisizg all expioyees of the -issicn frcs carryicg back té Havana 2cy
+packages of ;ersoral ite=s ehatsoever. Jetalira cocnented baat for that reason
+Egheserdfa (Suarez de la .azj «no leit the previous week ~ aot take an .
+
+- [ostraciser peek wits hin vo her fazliy.
+i
+
+}
+!
+
+vallace B nia
+
+14-00000
+
+-2. As to candovel,
+
+-perfornance tuat eveaing. shen i/* asked hin shther anythi
+
+- ; 47 april,1922 i
+Subfest: LIZIEG/S Eeport on fisit te LIATTG Offices. :
+
+4.°Rc.tcon set sith iTh™ Gf at the NAssissi aurent from ekout 2035
+until 2415 on 17/4/65 ts 22>rief her on her v: ov 2 ;
+
+that czy. LIalhd/S «as obviously worrie2, ané s.id so
+LIRING/3 in view of the total absence
+Rowtoz prztenzed ts te even sore isno
+If4 herself, and askee anxiously su
+val o> -erc: L/S replieé th
+while irivins “a Lara to 07 &
+proved very costly to hiz,clszourh f
+Valdez ecxtinieé the
+
+experses involved iz
+
+Zaftl ne@ to ap: sel to his feather fom money to cover tae
+
+ine Veléez did net know what
+°
+
+2
+mon serene wy ays sau zere ecter veil erence left then (erocrently enroute
+to Chigpes) end could i ng 2 ciormavicn.
+
+J
+
+lepioned ner
+ners f:¢n Lera or i/3.
+care of Martha I. Lera
+cesala »Gueverala, tel: 46=17-17.
+
+to offer exz telp st
+
+L/& cave =ovton tie hize e.crecs
+de Rodriztez, 15
+3. If% & 2G/S's office as requested by :
+Rowton 2n¢ senszed to cet erother look at the bock-case canizet in the corner
+
+of the roc=z. Cne ceonentec tact con entering the precises she was surprised ° ‘
+to find the ;
+effice (ths rto the back office of L/S and
+that ggsita, the site of Luna, sas struscling vith two finzcers to type ou
+
+something as she entered. L/4 said that L/O was cuite cordial to! her and ine
+wited her ic for e sofiee and prescaoting her with five ticusts to toe dallet
+
+= aad! cone in re
+her re-entry perzit, the latter immediately bagen opening the mail on his <cesk
+with the ctunent tna: perhaps a reply had arrived that corrizs and he would
+check et cice. {ter lookin> throush the rail he repiied in the hegative but
+
+did not éfzceurzse 1/4 from hoping that the reply woulé be &: sof. .
+
+& 1/4 thea stated to iocton that she noticed that the caticet in the corner
+
+of the rvoz was bigzer £aax and lower than she hsd recallec from! previo.s visite
+and had lege about teo incues tigh: She added taet tho cabinet aatch was di-
+vided into tyo secvicnos, the one to the left coutaining a shelf which the:
+
+was nothirs; tut cisars cod cigarfettes end the right /BétSiscing e a consent.
+mert with a door covered with sack cloth (costal) and Peasibly ldecked hd Eoye
+
+14-0000
+
+She stated that the cabinet was placed catty-cornered- and that in the re sher
+spaciousky triangle behind it she coulé see xanz relis of popper Whte & phe
+assumed were discerted pesters apparently placed there at random. | L/% tren
+made the attached sketcs on a napzin 3tressing the di2zficulvy she had in gro-
+viding xoston sith exact seas
+
+Zaciag toe str2et, onde
+the only vindew in the
+
+aurenents. Sav acded that there were tuo Wiréoas _
+a: ie the siddle room, tut
+patio end had a verettan
+
+bliné ani u gauze curtain Sut no <craoe.
+
+5. L/4 ~ken told sowton tiat she had learned f on Jorrfn that he would be re-
+turnics FUS very soon since tis replacezent had slreacy arrived. He gave L/4
+his hone address as Veliscuez C4 Altos, e/Infanta y Craz del radre, Barris
+Villa Kueva, Wanena, F/t ntt2 te Nowte esau suc wouLe take advancaze of
+his return (vcossisly on 22/4/63) to send another lette> to Abreu asking for
+a def ive reply to ser re-entry
+count on Jorrin for tais servi
+very cordial.
+
+sne her relatious vith him tad always, Yen
+
+t
+6. L/4 also mentioned tiat she ned seen and srebted ceseda woo had “gust re-
+turned from Usvana (apparantly vitleur bis wife). 1/9 icld 1/4 that ne biusels
+had been in Eavana the preceding #2ek on a rezguler courior run.
+
+Fe L/t aise turned over to Koston several putlications scick she had ret
+fron Catelina Cepero and the press cffice. ©
+was working 2s secretary to the Chief LIZIHG in adsition to her cuties as res-
+porsible for confidential cocuments. :
+
+¥
+
+. : éallace B. Kewton
+
+est. She acded that she felt sne could
+
+She ccanc:mted that the wife of Crus.
+
+14-0000
+
+ge ae
+
+con meena py ge
+
+“Ae Sergio Velaez, according to L/4, stated in reference to these allegations -
+
+419 April,1963
+
+Sudject: LInlG/4 Rerort of * Gony ersavion with Sergio Valiez re
+LIZING/3 Alleged “O240T AfTiliation.
+
+$. LIgInG/& net rite Ko..ton at the new so Tehouse roos Rowton rented- fer
+
+_security reasons usder the alias Jean Fercier at the Suites Marne. Zouton
+
+had given i/4 a “ey and she entered the ouildinc and proceeded directly
+to the erartnect, arriving af about 19¢0, Rovtos posed as a Preach susinessman ©
+and introduced L/4 to the owwer(and his sister) as his secretary.
+
+2. LIZUIG/4 stated thet s*e was glad to nave sore <i-e elone with kowton since
+she had received a cisturbing report from sercio Valéez acain revealing
+
+ttat reports of 1THTC/Ie et arcs wfliliavio: wica suracl were circulating
+in leftist circles, She exnisined that Serrio Valdez hed talked with her at
+her apertnent (Atovac) HSHEZF evening ( 15 April,1968} far into the aicht -
+about two resorts he hcd received about iTsixG/3. Sergio Valdez explained’
+thet about three weeks previcusly nis father (who works on the staff of
+"Sierpre” told him taat he should be careful in ois dealings with LIZING/3
+since she latter was a «GfACT agent. Sercio YValcez told L/4 that he bacame
+indisnent at this telling sis favher that he hac known L/3 for the past ten
+years ani considered 1/3 es nis nentor in reveluvicoery phicosophy and had.
+absolutel; no reascrs to distrust hin in his current activities. ‘Sereio Val-.
+
+@ez acded tnot he tireatened to break with bis futher uniess the Yatter re-
+wealec to hin the source of Lis irferzation. Eis fcther finclly ccnfessed
+that he learned trie irom Alberto Loriniuez, his toss ® Zierpre, but he could
+
+not say fron when Boninguez had received the report. ° '
+
+3. sergio \ Valdez continued that in additio: to tis repert he had also been
+told sore tine ago by Ceneral Heriberto Jara vara (scx dzcsased) that he should
+be careful in bis dealings wits Li G/3 since the latter was knowh to be
+
+a "traitor to tue revolution". Sergio Valiez sided thct Cencral Jara did not
+opecéify Bry reason for his allecation or cive G@otails. -. -- i
+
+that he was quite naturally very disturbed and had hesitated to zei}tion ‘thom
+to LIRI2.G/3 before his departure in order not to upset him. He stated that he
+had siven the motter a sreat deal of thought and had cone to tue conclusicn
+that Crozco was the person passing out this scurrilous report and jhat he
+
+‘Antended to cet to the bottor of the whole business himself «ituout involving
+
+LIals IG/36. fe explained? that he was planning to orvanize a group of four or
+five armed sen to kidnep Crozco and interrogate him until he ecnfesised every-
+
+thing. He adaed that if Crozco fine ccnfessed that he had pasged this
+COPY
+
+“8 - . 2.
+
+)
+}
+
+calumny to Alberto Dominjuez they would acsassinats Crozco on the spot. If,
+
+., ns + L
+hovever,it decexe clear thet Crozeo «es tarccent ther would pook for sine one
+else wio sight heve been tae esuree.
+
+‘
+Se LIEIG/6 stated that this whole ccnva:sution had shaken her badly since
+
+it was agais an indication snav 1/3 was torough so fault 'of his cwn eccused
+cf betray ying the revolution ard ske wes weil avare of the drastic action teat
+the Guatexalan revoiutiscnuaries as well 2s the Cubans were wil ling to teke
+egain persons accused even on slic. evi.ence of being traitors. ‘che used
+aewton under an cirounstances to reveal nis ltest report to iI: ELG/3 since
+she knew such reports nicht drive hin to do something drastic.
+
+6. LIaliG/4 also reported that in the ccurse of cf eoaversstion vergio felées
+
+* Se ra eS - 8
+= nit ey Vee le Vee ese BAU bus avUVE
+
+povensn eggs Sp eee wee ce
+
+ea that Cercgio Valdez saic that
+
+mentioned report agsiznct 1/3. she exp.
+he imew of i/3's business relations with “arris in the past end that ke himself
+hoped soue cay to de edle to =2et Harris so thet te sisht interest harris :
+in nis own commercial ventures. 1/4 teld Sowton taat she preserded sect to
+
+heve ruch cirect dealing with Hirris asd alleged that as far as she ‘:sew he
+
+JOT
+
+wes currently in Candde.
+
+- . dalle e B dovton
+
+ia
+
+14-0000
+
+a
+
+‘1. iIfa.2 ceoverase of the hore
+
+22 April, 1968 63
+
+iglendo Mendez .cudlar, Gueteralen Medel contabt fu
+
+Subjects i
+‘ezico ity.
+
+A
+
+has. revezled
+" Sandoval
+
+Sudject to be 2 contact of
+of the Yon Losa creup of Guateralan
+
+iodold
+
+n Mexico city.
+
+2. cn tye occesions in early tnril, isco lava, during a visit
+to LISIEG/3's apcrtnent, cade telephone calls to 45-0-30 ( listed as
+Publicaciones ¢ Inpresicnes Vectcanes 3.4. - Diario cvaciones, Calle Lago
+
+Rnakehe 907 So ont asish lu. Sie scudes acuiser cn extension 27. It is
+
+f sinversaticn t:at neect ig a cicse Iriand
+G/3 re;erted the telcphece call
+3 made in kis presence in ean effort: br isra
+to locate zoids. scordins tc L/3, lare asked the person whom
+he telephoned ( =/3 could rot izerntify this person sisce ‘leva eid not use
+nis name while telving) where "c:ere fine friend*™ was. 1/3 continued that
+iera cid not esntion Jsendoval's nuzne, epperemktly for security reascns, but
+be had prevkously tcle 1/3 tat ae was calling to devernine the shereabouts
+of Sandovel. 1/3 siso reported tat he heard Sate = rezer to a certain
+
+"Il Gato" and to e iff told ficaten that ne esuld not idestify -
+the forser, Sut it appeared that "Sl Soerdo” referred to the ycung friend
+of Lare's whose ;hotocraph 1/2 tad previously given to xowton for cozy-
+
+ing and who was razed only “xoderto" in conversations with Lera.
+!
+
+-tafs. Lb
+
+3. The LIFL.7 intercept reveals tast Frascisco isra told Hendaz Aguilar
+that ne hed teen with Sandoval early the rrecedits evesirg but that the
+latter hod nct scown up for the tecting arren ed for tz2t! same mornings
+shen pressed “erdez ecafessed that ssadeval had revurned hoe drunk and
+was ;robably sleerizs off the effects of the ;revious 8 eres Be This dould
+
+“Gndicate that Sandoval probably Lived with hendez as qullary or at least
+
+gsictains close coctact with his . \
+
+a {
+&, The staticn is atin;ting to deternine the home a-iressiof Subject in
+the bore that further specific infornation can be uncovered concercing
+bis relo:ionshis with PAR. . 3
+
+Yallace 5. Royton
+
+'
+i
+i
+4
+|
+i
+:
+
+i disposition of the case. He gave
+-" to keep her informed.
+
+24 April, 1968
+
+t
+‘
+
+4. LIRING/# informed Rowton 24 April,1968, that she received telegram
+‘from Mexican Consulate Guatemala City advising her "Consulate inter-
+
+- vening in case her husband; will|continue to keep inforned”. LIRIEG/4S
+
+on her own initiative (before sh? able meet with Rowton) asked advice
+“Sergio Valdez and Mazuel Marcué fardifias (of defunct Politica).
+
+2. On recommendation Valdez, aaa telephoned Mexican Consulate Guate-
+mala City and spoke at some length with Consul Octavio Serrano. Latter
+assured ber LIRING/3 well and thdt he taking personal interest since he
+pela fvienad Lininss3's Latoey. he expiainea toat 1niti2l hearing would
+take place next day and that judge would have eight days in which decide i
+ILIRING/S his home telephone and promised
+
+ersation with Serrano or in lecal press
+o Lara,althouga arrest of Carlos Persabal
+. Charge listed as "distributing conmunist
+
+3. No mention made either in con
+of simultaneous arrest of Franci
+Marcué mexk reported si
+propaganda”. / ‘
+
+& LIRING/4 also reported that in| her hurried meeting with Manuel Marcué
+Pardifias latter at first took "it-served-them-vight-approach" but.confided
+that he had learned of arrest preceding day and isaediately appealed to
+Carrillo Flores. According Marcué, Flores sent telegram n bis presence to-
+Bexican Consulate instructing it to bring matter to diplozatic level if
+necessary. . :
+
+5. LIRING/& also showed Rowton note from LIRING/3 in peneil on brown paper
+_apparentiy/P8Eki tion paper bag watch she stateé she received that day in
+plain envelope with typed address: and apparently notional return address.
+She assunes this sent at request LIRING/3 by Octavio Serrano. Note reassure
+_-EIRING/4 that LIRING/3 in ggod health and that he can handle matters on his
+“own. He states "Persabal is to blame” and instructs LIRIEG/4S to warn wife
+
+of Francisco Lara not to talk to anyone. Also to urge apther of Lara not
+
+to come Guatenala City in attempt help him. .
+6. Rowton instructed LIRING/& give maximum play this developaent to LIRINGs
+
+"gn hope that this might wipe out adverse reports circulating against loyalty
+
+_LIRING/3. LIRING/4,who expects re-entry permit PBRUMEN Honentarily, will
+esk LIRINGs for extension in view developments. |
+14-00000
+
+abgeet: LIsIns/¥ kepiost 22 Visits to LILIEG Crftces. § I
+
+le LIBG.C/4 reported to
+tact she cad visites t nfoera every-
+
+‘her friend
+
+ene of the Beas cons|es.
+through the
+
+she could rat
+than, despite
+a@ nasty mood, ©
+LI2ING/9 was verv srr3s
+
+fm tha nanan Sl do
+° Se me
+
+which conteiced the sentence "Tersabdal
+very agitated and exclaimed that he voul
+{fichaj receriisg tris
+mst possibly lecve fer
+to cet an extension over
+Qe AX2ING/% ecutinved thot she tuen -ent to see Lo
+duole SCOTTY to hin, inclu: seen if3*s Luvelvenert vich Par apd ib
+
+> would riot Le icult
+of the re-entry pernit.
+G/fé end recounted the
+
+Foverber moverent. She noted thit shen she casually 6 = et
+Secécval bed tcld her that You Tosa had resurned Q
+
+crevicousiv, LISINC/2 pre
+
+City about a 3
+
+od
+
+excleininz, "Irarine, they con't tell us thas
+thet he was icavin
+Barpy te take slons acy letters l/s c ir sutuel
+friencs explainins why she cculd not : at that tire.
+
+Be LIRL.G/4 also reported that stile she was in tte offite of [1:3.6/2 she
+wet leo Seven wno runs a hotel in ‘caculco -nd shox sae bezeabered fron
+
+- eecasicsal visits hee uzde te tha ilul.G offices aiile she was vorzirg there
+She cessribed ceven cs ac obvicas honosexual, «ell -russed ene catresizing
+in his manners. He tols her thet be ;lesiec to travel tol Pawchad "on. Erin
+“dey” (hether 25 April er 3 Nay vas not spacified) to see{his Bon who sas
+etidsing there. 1/4 coumented tast eversese at the ~Talig office speared
+
+to treat Devec with respect and scéfidence. ‘. . .
+&, Re the layout of the office of Lin DG/9 Adackrrea) 2ix HG/& sida ashe note
+the addition of tha typoeriter table (fercserly. in tie siddle rocajagainst
+the left gall vita a yertavle Clycpia tyrewriter ox it. The Goraan typesrite:
+was still ow the ois desk. Also behind the ssall.coffee vie, in che corner
+
+for a week IDY is
+
+she noted that the rolled up posters sere sone and ia th¢ir placexere two
+or ’ three packages of beoks. 7.3. jRowtea
+
+me at pe
+
+~.
+
+14-00000
+
+i
+2a 27811, 1958,
+;
+
+with Yolacda Diaz.
+
+Suddect: LIRILC/& seport of Telephone Conversati
+
+i
+thet ske received a
+enéa [iaz fres
+——
+<
+
+1. i1al.c/4 reports
+telezione call froz
+
+% the evering cf di =p
+hed Geen approved. Yclanda siced ct 21 2ecirtiss to Eta/s, that
+ste wozlé be expectizr her on the 22 Arril
+
+uG/4 conti
+
+ued to novton that she telephoned ter frierd, L2=15¢/9's
+fed
+
+ab >
+r the iI:InG offise losaily
+ert ne
+
+secretary, erly cn ce april, ce find cut «<cethe £
+be feuchvea tas EnpTeval. Ste was tcle that ro werd hed es yet been re-
+S t c te
+
+vallace 3. Zewton
+
+fe & (27
+
+14-00000
+
+27 épril, a9 LE
+
+Subjects LILING/& Eeport of Meeting with Maruel Karcué Fard‘ias,
+
+1. Rowton zet with LIRING/& for lunch at the Funto Slenco restcurant
+on Helcbor'’ Ceacpo at 120¢ on 27/6/68. koston had ¢iven up the sale
+rocm in the Zotel Suites Herne earlier thet corning since he felt it
+was not lenzer necessary. !
+
+2. LIzIiG/4 reported that Menuel Marcué Fedifas, the uncle ef czerlos
+Fersabal Marcué, had telephoned her the previous evening “freut:ie street"
+ené arranpei to see her -rivately at the Koala kestaurant Ciawfa Tashalo
+notel) later in the evening. Accordi.g to LIKENG/4, harcué told her that
+through his arpeal to Carrillo Flores the case of LIAI:.G/3 and ais nephew
+wes newin Giplonatic channels ard he hored that octh priscuers ¢suld. be
+sizply deported efver s sucnary trial. ie could not,however,
+
+thing, especizlly the lezeth cf tine icvolved, ene asxed:1iki:S/4& to re-
+frain froz acy activity thet sizht prejudice the cease. Speciltically he
+instructed LI=2::3/4 to bresk off all contact vith the Guatezalan revolu-
+tionaries in Mexico, the LIXIIG estadiishment, and all cocmusicztion with
+the Mexican Consul in Guctemala City. He suxzgke stressed thet any false
+move on LISI: G/4's part sight cause Carrillo Flores +o vit udrsé tis inter-
+vention. Earcué promised to keep in touch with LIZING sa so thet she would
+not feel conmpietely Lelzless. He added that the mother of Carlos rersebal
+Farcué ( supposedly Kanuel Harcué Fardifas' sister) would be trzveling te
+Guatemala City in the nezt few @ays so thet she could visit her son and
+
+follow tze case at first tand. : 7
+
+3.11KIG/4 also r2zorted to Rowton that Rodolfo Sandoval lor the Yon Sosa
+
+“group had procised to visit ter at her epartzent the previous evering at
+
+22CO in tie cozpany of Sergio Valdez to discuss matters further. H ad ine
+
+- forced her on the phone in making the date that “zl Gorde* hed ‘returned
+
+fron Guetezala City - icplyice thet the latter had ne«s gencerctag the
+tate of Francisco Lera ( whose arrest was not reported in the ress, nor
+
+by Gtavio Serrrano, the Mexican Consul, to LIAING/4). ‘LIRIIG/& seonieed
+
+was aot known. She therefore agreed with Narcué that she hould set see
+Sancoval and the other Guatemalans in public, and especially not at ber
+epartsaent. - : |
+
+that Francisco ara had escaped arrest and his “see op with 21.ING/3
+
+{
+14-0000
+
+™~ . : : : i .
+
+° . 2.
+
+i
+i
+a, LInING/4 also” Feperted thet Mensel Marcué Pardifias nad ‘asked her
+
+not to call biz at his hone again to ask for news, or a3 a w&tter of
+
+fact discuss in any way the czse by telephone. ile stated thet he felt the
+phone of i1s=.G/4 as well.es “is om shones were tapped end thet possibly i
+LIS3IKG/4's apartsent was being watched. ile did not specify by when or :
+for what purpose, but LIRING/4 told Rowton that she assumed it would be. :
+either by the Mexican Governzent or the Meno Blanca of Gustemale or both.
+Rowton again erceuraced LixinG/4 to cove oui of the .toycd. arartsent ane
+back into the less ccnszicucus celizada Tacubdava place, commenting tzrat
+
+this woule not osly prevest future security risxs but elso convizee the
+LinixGs that she was suffering financially because of LIzT:.G/3's plicht
+
+(she stated thet she hes already intimated this inconversstions with the
+
+wife and secretery of the L1xi:G Chief, as well as with LIRILG/2}~ LIRTEG/A
+agreec nut expressed rerret that the Iacubeya epartment did not have a .
+phone and that sne night -iss igportant mail addressed to the itoyse apart—
+ment and arrivics after her departure. Rowton suggested one lest letter
+
+to tle Mexican Consul in Guatezala City sirpiy advising hin of the chance
+
+of address. :
+
+5. LIsInc/s& elso showed Aovion the return address typed on tre envelope
+in which the her nad been Porwarded..foe acEress,
+which fowton | £2 roses is ook Sa pleced on the envelore by tdavic ser~
+
+e tion of ifxc.
+ranoftér” securesy reasons, ik 23° follows:
+
+"
+
+i
+i
+Carlos Rodriguez |
+35 Averida 20-57, Zona 5
+. Guatezala C.A. : |
+6. Zowton concluded with the comment that he felt LIRInG/& need not take
+Marcué's instruction not to visit the LIXING offices too seriously, since
+it was ea well know and eesily ascertainable fact that LIAING/S } had a lo-
+gical reason for going there occasicnally. Rowton did nit wish LISIsG/a
+to break off relations at this critical tine, exz;ecially since 11z1L3/2 had
+_ .-@ompented to her on ber last visit that she should feel free to come in at" ~~
+- any time she needed help or consolaticn during the crisis. | : ‘
+
+ij .
+
+alice B. Rowton |;
+
+14-00000
+
+Ea
+
+ot
+
+i]
+
+e
+
+1
+-
+
+*
+
+g
+
+&
+
+ST
+
+SUB LUSTs LIekiiG/8 Keport of Centsct with Sandovel and Harcué.
+
+1. Sowton met with LI I:c/4 for lete lunch st the lunte Blenco restaurant
+on Felenor Ccazro on 29/4/68. She hed to bricg her child alone wince the
+‘Geyesr-old son of LIXINC/3 was rot at her epertnent at the tise.
+
+2. LIZING/4 rerorted % that cencual of the 13th of Hovexter Group of Ton
+Sosa hed again visited her end sho-n creat cexcern for her welfare. He
+agein offerfed her some reney, suc2 as he had, Sut LInInG/& refused in
+vies of his sizcultarneous ccocpleints of the finazeial crisis he hinself
+was undergoing. He explained that since Yrencieco Lere left he had teen
+supporting Lara's entire fazily cocsisti:s of Temnte #4 | :
+their two young children. [IRING/4 said Sandeval rescted a point ix enoctio~
+nal frustraticn curing the conversetion thet he excleized that he would
+
+have to resort to re>bery ora hold-up ic orcer to gst the necessary noney
+not ccly te support Lara's fasily but to serd screone te Gusteralc City
+
+to see LIRING/3 and srocure a cood lawyer for hin. LIAISG/& told “oston
+
+_ that this upset her so that she srent the rest of the evening yleadisg
+
+with Sandoval not to commit any erinuinal act. Secdovai then revealed that
+ke and his frienés had held up a policezan during the Euzphrey visit and
+taken his gun, since they were short one weapon. i
+
+3. LIZING/4, cosmentine thet Sandeval's only incoxe was from selling lan- .
+guage records for the Cortina Instituto Linguistico, told soxtor that she.
+pronised to contect all her friercs in an etterpt to help him sell tne re~
+cords and thus raise sone nosey legealy. L/4 explaiceé to aovton that Ssan-
+doval's commission is abcut 350 pesos per set of recorés,which is actually
+the down payment xade by the custczer (the resainder beig! paid in weerly
+or centhly instalnents of avout 125 pesos). 1/4 asked sovton's telp in find-
+ing custcxzers srone his business contacts ‘to selp Sancoval.
+
+&. LIAISG/4 also reported that Manuel Marcué Pardifias hed yloited ber at
+
+“her apzrtaent late the previous evening. He told her thet Garlos Fersabal's
+
+wife, Teresa lozsda, would be acconpanying her nother-in-lew to Gus:enala
+City. Ze aso stated that he was optimistic since Carrillo 'Flores had ine
+etrucved the Mexican Consul to appeal to the Cuctemalen Minister of Foreign.
+Affders. Rarcué cocmented that unfortunately the Mexican Consul cou.d not
+reach tis official hiss2lf since he was currently in hee York. Ee hoped
+however that the Consul would see the Minister’s secretary ‘tqarrange direct:
+interveation. L/s ¢ coznented to Kodton that Marcu& seemed v ey curioce about
+14-00000
+
+the LIzING office, but she fenced off tit isticns by alleging t thz
+
+she nad little or no contact with it. L/s zlso cos mented | that Sergi
+
+Valcez, who was Seing Farticulerly telpfui to her at this tine, werned
+
+her sterrly agsinst ecceptine ay money fren Mercué in light of nis re-
+
+putstion as an unscupzlous lLothario.e 1/4 aized that Farcué presised to
+- : gee her again the Iollowing eve= her taforzeds ‘ ~
+
+5. shen soston azain sucsested thit L1n..5/8 rove fron the Atoyze =rart—
+uent back to the Tacutara plese Sespite its creariness and lack of tele-
+phone, she presented ro odgection, commenting that with all the traffic
+in and out of ner atoayae apartcert at ali hours of the nicht her reruta-
+
+- tice gs préecly in jecpardy, eszscially with her izacdiete neighbers and
+he cleaning wonen and caids. She prosised +ovtcn to nove out the Zollowing
+Gey sau0e 2u 925 Ge che OL ure noath ana @ tomical time. she aiso ;ro:ised
+when revisitiag the LIT office the next nornizs to make this Excwn,stres=
+sirg her ficensisl plicht.
+
+6. iisxIiG/4 then eppeaczed to doston to help her establish sone sort of
+contict with LIEING/3, 12 for ncthing elise than to find out how ke was end
+whether he needed anything . L/4 felt that souton misht send some Susiness
+contact of his te visit 7/3 on &
+signal to LIiING/3. shen dowtcn rointed out tie danger in this of nessibly
+mekicg things worse for L/3, LIAING/S conaented that Sandoval had tcld her ,
+that visitors were not required to sicn 2 resister or give Lengshy exzlans—
+tions. L/4 aéded thet she night vind scmeone, including ‘Sergio Valdez er
+
+EaGl Moreno or ore of their frienis who aizht caxe a short trip to Cuatesa-
+
+la City to see LIsI:S/3. In reply to Rowter's query,i/& cos sented that she
+
+did not expect erything fron the sife or ucther of Carlos: iersebal since
+‘they had not even bothered to telepione her since the arrest became known.
+
+on's behsl?, siving somo recopaition
+
+7. kowton ‘prezised to give the satter soze thoucht 2ad dibeuss’ it farther
+with TIAIIG/* the follo«ing afternoon. — co
+
+: . Wellece B. Rowton
+
+cpt en coment
+
+wt
+
+re ote
+
+14-0000
+
+Sudgsets LIZIDG/4 Herort of Contacts with LIdL¢ Cffice..
+
+!
+
+1. On 3 May,1252, LIXT.S/4 reporte? to hoston thet sze had revisited
+
+the LIRING offices the precedins day in¢ noticed tuet the black tele-
+
+Fhone was re:-leced in the riddle o7fice ( shere exe hereelf useé to
+workj. She stzted thet she could ret se certsic trzt it was tne sane
+instruzent end tect it was replaced cy cne of the LISILGS expleyees,but
+kt sppeerec thst way since che had uct seen the instrazent there on
+ber visit on the previous friday (25/8/52) and LI=Ts3/9 hed coznented
+that the telepucne woulé be revlezed in +4~ -£ '
+
+2. .ith regard to iis#7.G/3's current sitcation, LIAILc/4 x
+she hed egair talxee to the Mexican Consul in Guaverzla City by tele-
+phone on 2 Hay,%76G, and was reassured thet LIKING/3 vas iz ecod heelth.
+The vongsul inferred her tnat he could visit L/3 on rsdays and Sunceys,
+ané gould be led to pass acy letters tuct L/% ric t send to hin for 1/3.
+Zhe Consul also coczented tast the “exican xelecisres Sateriores had in-—
+structed hiz to take up L/3's case with the Guateneles Viaistry of Foreign
+Affsirs., Ze added that he hoped with tiis pressure te cersuade the Guate-
+malan government to ceport i/3 witain the next ter ¢ays. 5
+
+G/4 then resorted shet she descrided as a very disturbing con~
+versiticn o2 3 Mey,1968, with Sergio Valdez. She releted that Valdez hod
+coze to see ker ic the =crnizg to apologize fer not caving lany-noney to
+lend her to help her ceet expenses. Ze explained taet he had not been paid
+by the RevisceéForqie? and was very short of funds ninsel?.! L/4 continued
+that she «ould szve to a:peal to all her -riencs anc those pt 1/3 for some
+money to tide ser over until L/3 returred. che then rezretted that she
+
+bad ret been zsle to locate "Sr. Harris" but if and when hel case to Kexice
+again she would bave to "renew diplozatic relations"sith hike Sersio ‘Val-
+“"dez thay secorci:g to LIAING/4, laurhed exd said that t-is bexinded hin of
+another nasty rucor that he had beerd. Hs thea ravesied that nal 61 Koreno :
+hed recently tcid him that a certain Gorzales of the Srertac¢e Club bad told
+hig (Koreno) that LIRING/4 had been fired fren the itR1L6 offices because
+she hai deen provici:g information to the F3:i:éMs Imbessy that he had
+learned this fro= the iIAING "service" officer. Sergio Veldez also men-
+tioed that a “girl who worked in the zona rosa™ who .nows Terese cr Carmen
+Lozeda had mentioned that Sr. Harris ted offargad Caraen Lo the sun
+
+tS fF ad
+
+3. ii
+
+frag
+
+<i
+14-0000
+
+2. rs
+of 34,°C0.CO for izforzation on the situation in PBRTMEN. “hax. 6/4
+told sovto: thet she was badly shaken by these cocrreats but attemp tid
+to assice ag uon-chalert an air 23 p.csible acd did not questicn sergio
+Valdez to deterzine the exact source, che noted thut vergho fo Vaisez nad
+mentioned Soaton sever] tinea to her,elvaye epparer ctly | in passing, with
+the otvicus hore that LIZING/4@ would ‘poveal his eresence in Mexico erd
+arren.e an intrecucti:n to him for sergio Velécz. <LIAING/4 azrced «its
+boston that Velcez was probably provoxing her since et ell tines hey ar—
+peared to be weli cisposed toward Sr. Zarris frcx what he “med of hin fros
+LIaIiG/3. Zowtcn cormented to L/4 that the lest report concerni-cc Carnen
+Lozeda epoesred to hove been fabriceved eitrer by serzio Valdez or onze of
+nis fricnds, sizply on the basis of the fact that Sr. Harris hed been in
+
+touch with Srerer Icriin wllle ous was 1G mexico.
+
+8
+
+4, LIEING/4 then stctcd that she felt she aad to continue to ispress Sergio”
+
+Valdez with ner cespera‘e need for uoney enc accordingly te eracned -the
+LIZis? gatekeeper in tis presence and asked for a Ioan. shen the gatexce-per
+respenied favorably, sae left Sergio Jalcez seiting in the! apartment and
+went te the LIZIG Cflices at once tc collect the ican. The gatexeeper cave
+her 1CO ceson on the spot, fortunctely in the presence of LIRIEG/43. La
+told Roston thet she treorised to return the runey in the next week, 25 soon
+as she received money promised to her by her father. ‘ : ’
+
+§. LIXING/S added tht 2s sho was leaving the i1-ixG cffice she ran into
+
+“the leftist writer, Jaize Labastida, whe exrressec his sorrow at the arrest:
+
+of LIEIEG/3. Labastida concented that sezesne hed told hin recently that
+a@ cartocn of sore kind hed appeared in a Tepackvla newspaper "asainst LI-
+RInG/3". «hen L/4 pressed him he gave « descrirtion of the ngoneone" that
+definite:y icentified hin es Sergi: Valicz. L/4 continced that hen she
+confrcented Sergio Valcex with this upon her return to he ppartment, he
+hotly deried it, cuca to L/4's nystificaticn. j
+
+6. LIkI!6/4 also conmented thet Manuel Karcué rardizes continued to tele-
+phone her at very lace hours of tae night in the rope (she assumed) that
+she would invite him up. She called hin a “viejo verde® and| added that she
+had no intention of seeixg him alone 3 her hoze at night. [. .
+
+wallace 3B. Royton:
+
+a
+at .
+. '
+
+Meera
+14-0000
+
+¢
+iN
+Sy
+-
+a4
+8
+
+Subject: LIaILG/4 xeport Concerning centenci:zg of LIRING/3.
+
+46 LiLiG/& reported to liowton at the Pu::to Blanco restaurant en Kelecor
+Ocazpo at 1500 on 5/5/68 that i.acuel Hareué Fardil had infcrned ber at,
+O100- that sane dey tzst he had sust lezried that iI G/3 and nis nepsew
+un ker of six months. rarer’
+rein-lew v uld be returcing to Fexico
+
+bad been sencencelts prison, with a
+
+eacceé thet nis sister end her Cauca
+City by the exc of the week and stould be ctle to supply éeteils of oper
+
+trial and jrospects fcr the dyrediete future of moving the prison tern re-
+euced. LikinG/4 ex:lzinec to Reuto. that sce Led accepted a dinner i:vi-
+tation at Senborns extented to her ty Aguirre dJerijes. alrecfocens ce Tint
+
+with slow ebs uaa sbucirea et the University of Severa, ard arrived et the
+hore of Cilb=rto exé Elenca Amant (Blenca Pefia de Arant),wkith shen che sas
+staying, rather lste cné found Necsuel Nercué weitinn fer her. Liter ape
+logizing rrefusingly for o1s previous rude conduct with. L/4a, te reported
+the latest revs cercerzizs 1/3 to ber. i '
+
+&. LISING/S e-reed wits scowton that cithoich the priscn sestezce was sro-
+bably Cefinite, she should check ib cut with the © “exican; Con:.! personally. “4
+She stated that fortu.ctely she rerembered = certeirc sosefina sotrd sex 1 to
+worked is the Lersa distzimeia service of Telefones d2 M§xico whos she bod f
+originally set as a ftiend cf LINING/2. D/% ecrzented that $zta sodzinses. :
+whos she described as "ruy fea* yas exnarored of LIT G/2: some years aco but i
+stopped seeinz aim (to ser xnowlsige) when she found out that he vas sactied,
+1/4 continued taat $-ta aodrisuez had already prosisel te put through laag
+distagce calls to Guatezala for L/4 without charzicg tke! jealle, if they could :
+be erranzved Juring her shift at the switchboard.
+
+t
+
+3. LIZING/4 also re-orted thet she hed azein visited the |LIRING offices at
+1345 on 7/5/62 snd agsin adout 1143C shat ssme sorminge it, Rowton's request
+she «gain checked the phone in the shird office. Co the first Visit the of-
+_. ..-£fiee had alreacy been clesed but she ran into LIZI.6/13 als the cate and ac-
+cepte2 2 ride hone ( she felt this fortuaate since 46 dropped her at toe
+‘ Tacubaya apartuent at her request). Cn this oecision Sup.ng a brief exchang:
+of cormzents sith the_catekeeper and 1/13, al:.3/4 leo raed that Lisinc/2
+will returu from :BaUHEN on 10/5/68. pe r- it 4
+
+&. On visitizy the LIHING cffices on the morning of &/5/69, LIRING/A tola
+Bovten that fortunately only her frtend Catalina and sosita (secratary
+
+. of Lisl:G/9) were present. «hen she weat into the third office where <osita ;
+was working she asked to use the phone and aofproacheid the ‘instrument. che ‘
+
+t
+:
+“f
+t
+i
+
+4
+
+14-00000
+
+: : 2.
+
+eee : : ~ . ~ . . lef .
+!
+:
+\
+
+was able to note that the naze "Cki Electric,Tsxyo,dapan” was mcrked on
+
+the instruscnt. She else reted pee werd "Gall* out could not tell whsther
+
+it was pert cf the manufacturer's nize or a Mexican or U.l. subsidisry.
+
+She also noted that below tze receiver were forr switches (like |the orcinary
+push licht ewitctes) uncarceé or urnuzccred. -heo she exclAézed to acsita:
+"How do you dial on this stone", Rosita replied: "Sut it's uct a@ phone,it's
+
+an intercon". LI:IUG/4 tcl2 -oaton’ tiat she then commen:ed:"Zut ‘now come,
+the intercom is in th: first office.” acsita tha, eccorciug to iya, siateds
+“But thet's a specizl i:tercon." (L/4 explained that she was referring to tre
+phene she hed in her hand). ‘ i
+
+« LIHISG/4 continued thet when she p.ss 7ed through the seconc office, she
+noted that the prone wich ted been replaced in thet ware ce co?) Dillion
+wanusoccure anc wee the sare instruzont previcuzly there wren she worked in
+that office. She asssurs thet the LIAINGs repleced the phcne themselves.
+
+6 LIZING/4 alse t2ld Souter tiat ste bad located an excellent epartzént
+
+in the 24ifico Condesa ( Metzatlfn end Veracruz) through ber friend Blarca
+Pefa who lives iz the saze developsent. LIZITG/4& 2dded thst she had siven i
+the adcinistretor 300 resos ts hold the arertcext for her uatil she could 3
+arrange e fiador. She also st<tsa that she could chtain a telephone aventualh
+since the forzer tenant bei z;rlied snd receivec arproval just before he lefti
+LI:iNG/4 reessured sowten thet she was telling everyone, particularly “tue i
+LIEZINGs, that she was living <t the Sacubaya apsrtmcont end teaporarily stay-*-
+ing as a bsuse guest at the tcze of Blanca Feta de Azant. She‘also reassured .
+Rowton that she had inforned the LIKING gatekeeper when she r-turned ths 100
+peso lean thet she hed received money from her father in lew York. LIHING/4
+adéed tht soveral friends, iccludi:¢ the well-krown writer nevueltas, had
+
+. offerred to fird her sone sort of work. She stated that if she, eculd find
+
+suitable ecployzent in the uornings she wuld accest the offer, if only for
+appearances.
+
+re _ |
+
+dallaze B. Rowton’
+
+. SECRETARY OrSSEWENS TION: Sx BSF 25 MESSAGE TOTAL Comes ye CITING ANDVOR maenats- |. er
+Anfuntt nome wet - : °
+/ me : SECRET emis ne cover
+
+{Wren Filled tn} rowecasonn
+
+saecenee
+
+estan 10 mano :
+7 DE Line
+nezr Tome wo
+
+emo Crer 10
+
+SECRET i621032 MaY 63 CiTE GUATEMALA CITY 8996 [bam 6Fiw [2@3 ;
+
+MEXICO CITY NFO DIRECTOR . so—
+mo m—ay, -
+EF s MEXICO Cit we OVS SC : / fj
+pers mexteo cizy 5542 (/ 70) hf
+‘ LIAISON REPORSS THAT PERSAVAL ND LIRING/3 BEING HELD PAVON) !
+i! IpRISON FARM PENDING SENTENCING BY FOURTH JUZGADO DE PRIMERA
+
+GUSTANCIAc ORLY CHARSE IS DiSTRIBUTING COMMUNIST PROPAGANDA.
+
+| LIAISON SPECULATES THEY Wiki RECEIVE LIGHT SENTENCE IF ANY.
+
+i ECRET .
+
+Le : ‘3 .
+
+: BT i fe i
+
+t : .
+i
+
+“
+
+SECRET
+
+Atropine WE sammie genie | Hen
+
+14-0000,
+
+CASE SECRETARAT DISSEMINATION “neo Messace i :
+TOTES ° ~
+
+QUASBIFY TO FILE NO.
+
+EEF TO FILE 0.
+
+rue mo Ore~ to
+
+SECRET S216i2z APR 68 CITE MEXICO CITY 5425
+GUATEMALA CITY INFO DIRECOFS i :
+PERUMEN LIRING-3 LIRIKG-4 3Obmts 40 | a -
+REF: wextCO CITY 5375 (eal 93394 - 4
+1. RETURN ADDRESS OF ESVELOPE 1¥ WHICH NOTE FROM LIRING-3
+SENT LIRING-4 IS a
+- GARLOS RODRIGUEZ :
+
+cord
+
+35 AVESIDA 28-67 ZONA 5
+GUATEMALA C.A.
+2. ALTHOUGH THIS MAY BE NOTIONAL ADDRESS YOULD APPRECIATEM
+
+STATION CHECK. ; CC
+
+nr ora
+
+Tot ae pac srbalinntrten amine mor we
+
+ae
+
+14-00000
+
+SECRET : :
+
+Bon Filled Eny
+
+ARSE se Co aT
+
+3. Bisearcu Ge SOURCE DOC.
+
+Sywe0L AG.
+
+LIC MENT GISPOSITION
+
+ira. Teansrceeeo TO
+J as ice ao.
+
+[it ©9288 eareeweD to MIs PLE
+
+PEST INENT _INFOOMATIO
+
+i
+> JURANO DEL MARs CARLOS . '
+‘ 201-799301 035-004-017 :
+. SEX K hOB ? DSC 15440 :
+. . 26 APR 68 !
+- It? _ FRE CABLE :
+: Dacc ? . P2 .
+} MEXICAN PASSPORT ONE ZERO THREE THREE EIGHT 1
+> ENGHT : :
++ ARRESTED BY GUATEMALAN SECURITY FORCES ON . ‘
+: APRIL ONE THRE! Oe NINE SIX EIGHT» WHEN :
+‘ ATTERPTING TO INTROSUS INTS GUATES RALA : ,
+' COMMUNIST PROPAGANDA WHICH HAD BEEN . i t
+: CONCEALED IN THE SIDE PANELS OF THEIR :
+- AUTOMOBILE :
+, . ‘ t
+_ : R 6805270834 i
+
+FILE IN 201- a
+
+te.
+
+Sree BGT vse ceeviens aerriees. SECRET . i aneaep
+
+i
+7
+ie
+
+dhenerre
+
+Chief /WHD
+
+COS/Guatemala City
+
+Chief of Station, Mexico
+
+Action Required: For Your Intormation
+
+1. The purpose of the present dispatch is to“Ganaatize the
+
+developments leading to the trip made by LIRING-3 to Guatemala in
+-the company of FAR member, Francisco Alalberto #LARA Barrios,
+
+and Carlos Manuel “PERSAVAL Marcue, Mexican national and nephew
+of Manuel Marcue Pardinas. ev-dirertear af the mom ay
+Politica. This trip, as the Guatemala City Station has advised,
+
+resulted in the arrest of all three persons in Guatemala just
+
+over the Mexican border on the weekend 13-14 April, and their
+current imprisonment in Guatemala City in the custody of the
+Guatemalan army.
+
+continued... a see
+
+Distribution:
+3 - Chief/
+2 - COS/Guatemala City
+
+VIOLATION.
+TBUTIO“
+
+es
+14-0000
+
+Cuasso hn ON Ba im Sewae~ AnD BREE
+
+CONTINUATION OF ( i o- ) ;
+DISPATCH HMMA - 34531!
+
+2, According to reports submitted to Wallace B. ROWTON ly
+LIRING-3, the latter s<t Carlos Manuel Persaval ¥Yarcue origiqally
+through the latter's sister-in-lay, Carmer*Lozada de Ramirez;
+who had been carrying on an extra-marital affair with LIRING-3
+Since early November i3¢7. On the evening of 3 March 1968, *
+Persaval approached LIRING-3 in connection with the essftavie™
+
+es
+
+that a young Guatemalan woman living in Mexico City was havi
+in ovtaining false docusentation'to enable her to travel to
+Guatemala to recontact her husband, whom Persaval described as
+“an important guerrilla leader". Persaval revealed to LIRIN
+that he had been assisting the FAR in propaganda work in Mexico
+for some time and gave LIRING-3 several copies of a pamphlet i
+eatitled "Violencia en Guatemala" which Persaval said had been
+published cn one of his uncle's presses and was being sold at the
+nominal price of three Méxican pesos to help raise money for ithe
+FAR, 1
+
+t 5
+
+3. When LIRING-3. under ROWION's direction, responded
+
+favorably to this initial approe-a, Persaval pursued the matter
+and finally, on § April. reveals. ‘that he was in touch with two
+“eportant gucwsllle leade.o” «uu neeueu erp in returning '
+clandestinely to Guatemala. Persaval asked LIRING-3 to arrange
+to guide these persons across the Guatemalan border south of
+Chiapas, an area LIRING-3 had previously told Persaval he was very
+faniliar with from his previous residence in San Cristobal.
+Persaval made no further reference to the “young Guatenzlan wife
+of the FAR leader”. LIRING-3 surmised to ROWTON that this person
+might actually have been the wife of Francisco Lara Barrios, but
+that plans for her return were discarded in favor of the trip
+by Lara himself.
+
+4. At ROWTON's urging, LIRING-3 insisted on reeting the tvo
+Guatem2zlans involved and in talking to them before undertaking
+such a mission. Persaval finally introduced LIRING-3 to Francisco.
+Lara Barrios on 17 March 1968, and the latter presented LIRING-3
+to a certain "Rodolfo", who LIRING-3 ascertained subsequently was
+a member of the 13th of November group headed by Yon Sosa by the
+name of;Sandoval. Francisco Lara Barrios confided to LIRING-3
+that he had in his possession a false Guatemalan passport in the
+mare of Jose Maria‘Oliva Carranza and that he had obtained legal
+residence in Mexico with his wife and children through the efforts
+of ex-Mexican President Lazaro Cardenas. He also named 2 certain
+Eskenazi and LIREBEL-1 as persons wo assisted Guatemalan exiles
+-in Mexico, Station believes Eskenazi may be identical vith
+Luis DavidfEskenassy Cruz, a former agent of the Guatemala City
+Station. ~
+
+5. With the approval of ROWTON, LIRING-3 agreed tol help
+the above-mentioned persons to cross the Mexican/Guatemailan border
+and to accompany them to Guatemala City. This latter extension of
+the original trip was made by Lara at the suggestion of LIRING-3
+so that the latter could meet with the FAR woman responsible for
+logistics, _LIRING-3 reported to ROWTON subwequently that just
+before their departure, Lara also offered to arrange for LIRING-3
+to travel clandestinely to the Sierra de las Minas to meet directly
+with FAR and 13th of November leaders to discuss s comereiai
+that LIRING-3 might be able to provide through his co ial
+contacts in Chiapas and northern Mexico.
+
+6. “ LIRING-3 fabricated a false Mexican identity d nt
+(Secretaria. ‘de Education) for Francisco Lara Barrios in the
+name of Jacinto/Rangel Cervantes with Lara slightly disgdised so
+that tke latter could move about more unobtrusively on the Wexican
+side of the border just prior to crossing. On 3 April 1958, |
+just prior to their scheduled departure date, Francisco Lara
+
+USE PORWOUS ERINON,
+1400000
+
+CONTINUATION OF
+' DISPATCH
+
+twee”
+
+informed LIRING-3 that their mutual friend Rodolfo Sandoval.
+would not be accozpanying them since he was too vell Known and
+his mission was not important enough to justify the risk and the
+expense involved.
+
+7. \LIRING-3 did not depart as he had hoped on 5 April 1968,
+because Lara unfortunately accidentally shot himself in the ankle
+on the norning of that day while cleaning his gus and had to be.
+given medical attention before he could make the trip. LIRING-4
+told ROWION that LIRING-3, Francisco Lara and Razl/Moreno, a
+friend of LIRING-3, finally left Mexico City in the personal
+car of Raul Moreno on 10 4pril 1958. but that Moreso had returned .
+to Mexico City two days later as a result of an-eeccident that
+disabled the car sorewhere in Chiapas. LIRING-4 did not report
+anything concerning the subsequent involvement of Carlos Persaval
+Marcue, stating that she rad not received any ccanunication fron
+LIBING-3 after his telegram of 12 April, in which te reported
+the return of Raul Moreno. Z0¥TON surmises that when Raul
+Moreno Lad to return to Mexico City. LIRING-3 azd Lara asked
+Carlos Persaval Marcue to join them and drive trem to the border
+Sn hic om cor acd thet Persaval cantinued on with them toward
+
+Guatemila City. : ‘
+
+8. Guatemala City Station advised on 22 April 1968, that | -
+the story of the arrest of Lara, Persaval and LIZING-3 had reached .
+the local press and that they would be turned over to the appro-
+priate courts for trial. This indicates that LIRZING-3 may :
+eventually be released and hence be available to HOWION for 1
+complete debriefing. .
+
+9. The only significant nanxe that had surfaced as a result
+of LIRING-3's involvement with the Guatemalan reseis in Mexico
+City is that of Rolando”’Mendez Aguilar, whom Francisco Lara '
+Barrios contacted on 45-60-30 extension 27, in early April from
+the home telephone of LIRING-3. (This number corresponds to the ...
+*Publicaciones e Inpresiones Mexicazras. S.A. - Diario Cvaciones, .
+Calle Lago Sirahuen 297, Mexico Citr). From the LIFEAT covera2ge -
+on LIRING-3 it is apparent that Mencez is a close contact of
+both Lara and Sandoval and may be providing or btave provided
+employrent for them in Mexico. The Station is attempting to
+determine the home address of Mendez in the hope that further
+details of his possible collaboration may be uncovered. |
+
+bos. an ety
+
+retece C. CURTIS
+
+:
+i
+
+Lan tsaeeyeenenny ue tent ermmatmrsine ng i ace emtemme ees Weems
+
+ete gs
+
+2
+
+SALE SECO. TeFAAT OT EANATION C1 nn cere J Tom Conte % POLAT. ANVOR PETES - SEEN AY °
+Fionn wo eS 2 ee LEO eT Sete
+
+| 2eCRET mete 77
+- . P [When Faved by} wecere ,2 i?
+— {Tatencaut tam Of Fens Cont On ETD Lat
+sovance cory |_| cso | sone Ot TS)
+, [we Fe G~
+
+| Cuassey vO Rat WOW -
+
+wate 10 vat MO le !
+
+enue mo (eer. ro
+
+FA, LYINTL, Cols. Ofte
+SECRET 252152 aPR 68 CITE MEXICO CITY 5375
+pircerer ,cuaTenat-SiTy .
+PERUNES “Gare stain 25 he, 09998 84
+| - REFS GUATEEALA CITY aa ia wag s7:) ae.
+lo LIMING-4 RECLIVED CABLE Soe MEVTICON CONCULATE GUATEMLA.
+
+40 wares
+
+CITY 24 APRIL STATING CONSULATE INTERVENING ON BEHALF LIR18S-3.
+
+ye
+
+LIRING-4 PHONED CONSULATE » WAS TOLD BY
+
+CONSUL GCTAVIG SERRANO THAT LATTER CLOSE FRIEND LIRING-3 FATHER.
+SERRANO SAID LIRING-3 “ALL RIGHT,” WOULD HAVE INITIAL COURT HEARING.
+
+25 APRIL AFTER WHICH JUDGE WOULD HAVE E.GHT DAYS DECIDE DISPOSITION
+OF CASE. CHARGE IS DISTRIBUTION COMMUNIST PROPAGANDA. HO MENTION '
+MADE BY SERRANO OR PRESS OF FACT FRANCISCO (LARA) BARRIOS ARRESTED
+
+WITH THO MEXICANS. :- :
+2. LATE 24 APRIL LIRISG-4 RECEIVED LETTER FROM LIRING-3
+HASTILY SCRISELED ON BROWN PAPER, AND PROBASLY HAILED TO HER BY
+SERRAVO. LETTER IN DOUSLE TALK SAYS LARA TALL RIGHT” AND wARSS
+AGAINST HAVING HIS VIFE TALK TO THE 2RESS OR HIS MOTHER COME!
+GUATEMALA TO fr HELP HIM. GOES OR TO SAY “THINGS MAY TAKE A ] ee
+_ WHILE” ASD BLAME PERSAVAL FOR ARRESTS.
+
+Se LIRING-4 CONTACTED MANUEL (MAR CUED PARDINAS AFTER RECEIVING
+
+*
+.
+
+14-0000
+
+x
+
+3
+2
+ig
+
+ae tweeter et
+
+Mewes emure es
+
+Fae tee eee
+
+cot mtemeneen em ce wae cman ene,
+
+een
+
+fe
+
+ST teenie canteen
+
+ERED MESSAGE
+
+PaGl 2 MEXICO City 5375 SECRET :
+CASLE. MARCUE SAID HIS BEPHEY PERSAVAL “ALWAYS IN TROUBLE Amp
+DESERVED BE LOCKED UP” BUT ADMITTED CALLING ON MEXICAH FOREIGH
+
+MISISTER ANTONIO (CARRILLO) FLORES ON SENALF PERSAVAL WITH RESULT
+THAT MINISTER SENT MEXICAN CONSUL GUATEMALA CITY TwSTAUCT IONS TO
+
+ISTERVEEE. :
+4, PER STATION SRIEFIGS LIRIRG-4 TAXING LIRING-3 LETTER TO
+
+LIRIHG 25 APRIL WITH VIEW ASK AID LIRING-2 AND LIRING-9 AND USE
+
+LIRING-3 ARREST TO TRY CORRECT ADVERSE REPORTS CIRCULATING RE HIS
+
+LOYALTY. LI@TIG-2 DEAT TWEN OUAHT eaty COOH erMLEOEKD In ronoTT
+
+pomramnegentaney
+
+CAPITAL 19 APRIL SAYISS (LIRISS-1 WHO ASKED GIRL 10 CALL HAD
+SUCCEEDED OBTALIZING PERUKES EcTRY VISA FOR LIRING-4. iF SWS
+
+VISA GRAETED ALREADY aprie, LIRISE- te STATE SHE DCZS BOT ,
+waar LEAVE UsTIL LIRIES-3 FREED OR HIS HE CLEARLY SETTLED.
+STATION nate CRALLY HOPIES ARREST CF LIRInG-3 IN GUATEMALA @ILL HELP
+LIRILG*4 POSITION DGRIGG VISIT PERUHEN. IN REPORT ANROUUCING
+LIRIfG-5 ARREST IN GUATEZALA PASSES STATION 23 APRIL LITEMPOS ©
+
+BRARDED LIRING-3 AS “COMMUMIST.”
+
+SECRET - oe .
+ne. ; |
+- - . \ :
+we + ee i
+
+. t
+
+|
+23 April. we
+L
+
+MEMORANDUM
+SUBJECT: LIRING-3 Visit To Guatemala With Guerrillas
+
+FRANCISCO ADALBERTO LARRA BARRIOS and CARLOS’
+MANUEL PERSAVAL MARCUE :
+
+1. On 5 March 1968, LIRING-3 had dinner with CARLOS }
+PERSAVAL MARCUE, nephew of MANUEL MARCUE PARDINES, director
+of the now defunct magazine "POLITICA", a Corzsunist bi-
+monthly publication, During the dinner PERSAVAL queried
+LIRING-3 if he could obtain a false passport for the wife
+of an important Guatemalan guerilla leader so that she:
+COULS tiaecl feu Reaicu LU ULatek-ta, Lininu-3S replied
+that he would do his utmost to assist.
+
+2. On 8 March 1968 PERSAVAL told LIRING-3 that two(2)
+Guatemalan revolutionaries had need to travel to Guatemala
+by mid-March. LIRING-3 commented that there was limited
+possibility of obtainirg false documents, but that he could.
+brief the Guatemalans so as to facilitate their illegal
+crossing of the Mexican/Guatemalan border, or if they desired,
+he would guide them.
+
+q .
+
+3. On 9 March 1968, PERSAVAL again discussed the matter
+-with LIRING-3, saying that one of the two travellers possessed
+‘- legal travel documents. Since the other person has no such ‘
+legal documents, they should enter Guatemala illegally,
+f MEXI-479077 i
+
+4. MLIRING-3 reported on 27 March 1968, that one of the
+traveller to Guatemala is FRANCISCO ADALBERTO LARA BARRIOS,
+The group is of the opinion that LIRING-3 should also go to
+Guatemala in order to meet an unidentified woman, described
+as the FAR logistics officer, to discuss FAR support from
+Mexico, |
+
+/-MEXI-50007 . |
+
+5. Departure was delayed because LARA sustained a self-
+inflicted gun shot wound while cleaning a weapon. On 10 April
+. : LIRING-3, LARA, and another person--described as a member of
+pepe ee: - the YON SOSA Faction--departed en route to Guatemala, ji
+LIRING-3 was informed that the FAR and the YON SOSA group
+are now working together, but that a certain amount of
+compartmentation exists. :
+
+/WEXI-5205 7
+
+i SECRET
+
+Trini ante
+
+14-00000
+
+oot oa SECRET —~
+
+1
+6. During the 14-15 April week-end, Guatemalan j
+authorities arrested three individuals near the Mexican’
+border, They were brought to Guatemala City where they are -
+being held for interrogation.
+The persons arrested are:
+a. FRANCISCO ADALBERTO LARA BARRIOS (Guatemalan)
+b. CARLOS JURADO DEL MAR (Mexican)
+ce. CARLOS MANUEL PERSAVAL MARCUE (Mexican)
+When arrested LARA admitted that he is a Communist, and that
+
+he is returning to Guatesala to renounce his affiliation.
+Z GUAT-3880_7
+
+7. The G-2 of the Guatemalan military was not success-
+ful in its interrogation of the Gehiente Tintcon attomptcad
+
+mo nttcmpece
+
+1t but wa. compelled to conduct its. interrogation in the
+presence of G-2 officials who continually interrupted,
+
+‘ Liaison was attempting additional interrogation under more
+favorable circumstances, Seanwhile G-2 is considering turning
+
+over the Subjects to the "Army Special Unit" for further -
+interrogation,
+
+7 GUAT-88907
+
+i
+j
+
+a ampere A TE me mE
+wn
+m™
+fa)
+n
+tm
+~+
+
+* sa Senn SEN Fish meme 9 Serene
+
+tytn
+
+3
+i
+3
+
+,
+
+1
+LIAM = 3
+Cael SECRETARIAT DISSEMINATION CARS IED MESSAGE F TOT COMES [erect AMO/OR HETALS - sen ar
+fe]
+
+FEREOW CIT NOTED =
+SECRET eas coe oe
+(When Filled tn) —-
+
+Cc
+
+CLASSIFY TO FILE NO.
+
+|
+
+AREF TO FILE NO.
+
+_ vie mp Caer. 10
+
+aie iat
+
+SECRET 2221452 APR 68 CITE MEXICO CITY 5528 ;
+GUATEMALA CITY INFO DIRECTOR
+
+22 Are be 958.
+REF: GUATEMALA CITY -3906(0 7S 1) 26) #95887 '
+ti '
+
+1. ALL INFO IN MEXICO CITY-53GfMaAY 5E PASSED LIAISON.
+
+.
+
+2. WOULW AFPHECIAie CUFL UF méwSraréA nATICLE O& FERCAZAL |
+#iD JURADO.
+_ SECRET
+BT
+
+‘SECRET = ld : ;
+
+14-00000
+
+PERSONUMT NOTIFIED
+
+Kt oe.
+
+CABLE SECRETARUT DSS EMENATION Cussgmie Messace
+
+ECRET
+
+(When F dled tn)
+
+Tora comes Yl pct an0/O8 IMTULS - SEEN BY
+7
+fi
+
+woes: (J ves 0 no
+
+z QUASSAV TO FILE NO.
+or: ar: '
+wREF TO MLE NO. |
+- _ - 1
+ee et enero Caer. ro eraser > oestscrr Ci sic.
+7
+
+f nse o~ i
+SECRET 2217582 APR 68 CITE GUATEMALA CITY 8526
+
+MEXICO CITY INFO DIRECTOR 22 Arg b2 49570 I
+
+REF A GUATEMALA CITY 5889 Ga) 9793 6).
+Be MEXICO CITY 5301 C/D seu gg)
+
+1, RECS of 2: APRIL i308 AgPOATED Imai rEkZaDAL AND JURADO
+HAD BEEX CONSIGNED TO THE GUATEMALAN COURTS, LARA STILL BEING
+HELD BY THE GUATEMALAN ARMY. CONSIGNMENT MEANS TF> END TO INTERROGATION
+AND HAS, IN THE PAST, RESULTED IN A SPEEDY TRIAL AND LIGHT SENTENCING,
+IF AT ALL. OFFICIAL MEXICAN GOVERNMENT INTEREST HAS HOT YET SURFACED.
+CHECKING MILITARY SOURCES if ATTEMPT OBTAIN ADDITIONAL INFORMATION.
+WILL ADVISE. . Co
+
+2. PLS ADVISE WHAT PORTIONS REF B CAN BE PASSED LIAISON. =|
+SECRET ;
+
+BI : y
+
+7 . oe tania .
+
+Fay amt Steer emma ne ee a: . . we ee eee aot nears
+
+14-0000
+Wee
+
+i
+fi
+H
+1
+!
+1
+
+|
+
+“4
+
+a
+CASLE SECRETARAT DISSEMINATION ci
+
+jirita, ‘ 1
+S LASSIFIED MESSAGE £: Tori “Comes ) ROUTING AND/OP BEITIALS - SEEN BY
+D) Peet owumt worwieD Se cea
+
+=) SECRET meltttinn
+
+. (When Feied in} Sine cunee :
+
+=> oO 0 fer ON OF Tr S CCHF PROHIBITED
+
+BON ANCE COPY BILD SLOT! ———
+
+a had woe. O ves O no
+
+’ |
+
+: . = eusier to me wo
+
+4 errr .
+
+i
+
+AEF TO FHE WO..
+
+: mss: rug ao (eer. 10
+
+SECRET 2216282 APR 63 CITE NEXICO CITY 5381
+
+PRIORITY GUATEMALA CITY IFO DIRECTOR 22 eT S5SS
+a REF GUATEMALA CITY 88e7 (7 gabe y/) a &
+
+1. TELEPHONE NUMBER 46-44-97 IS REGISTZRED TO ELGA SOBEROX,
+HUlheit if Lad Ur MANUEL MANCUL PARDINAS. LAIiLK Lives In Hove
+
+bo WHICH LOCATED AVENIDA DE LAS FUENTES 616, COLONIA JARDI#ES DEL
+
+PEDREGAL. THIS TELEPHONE HAS BZEN TAPPED BY MEXICAN FEDERAL
+SECURITY FOR SEVERAL YEARS. ,
+: 2. TELEPHONE NUMBER 32-62-18 (UNLISTED) REGISTERED TO
+FRU GARZA, CALLE SUR 71 HUMBER 427, COLOHIA BANDIJAL. © STATION
+CANNOT IDENTIFY THIS PERSON.
+
+i
+SECRET
+a
+H
+i
+_ Bee 7
+|
+h
+i.
+{
+i.
+ero a ee
+L
+1
+y
+* . io
+‘ . rd
+‘ADEA desanenassamren enema
+
+Seat
+
+1400000
+Be
+
+1
+
+Casi t SECRETARIAT DrSSEMINATION. A ASSFED WESSAGE b Tota, Comes: BA #2ymns meron nemials - Seen BY
+MOUNT ROE conri | _ fe
+- SECRET woes rs me
+(Wien F dled In}
+
+RE T 1616252 APR §8 CITE MEXICO CITY 5225
+~ IMMEDIATE GUATEMALA CITY INFO DIRECTOR , TESUCIGALPA i
+
+LIRING :
+16 fats 194879
+REF: mexico city 5221 [, »/ aye a) of AY Re
+
+im Conaiciivas i méren Gee PPARASKAr mus waned MANCUE
+
+PARDINAS IS A COMMUNIST NOT slesprisn HIS nggadras aig
+“POLITICA” WOT “PERIODICA”.
+
+- SECRET . \
+
+BT
+
+wee wd ce ee
+
+oo
+t
+°
+ert tte
+
+ne cmanad 5feat BERENS
+
+i
+J atm. |
+‘
+
+TA DDDOD ae
+A
+&
+
+C28-£ SECRETARIAT DSSEMENATION CLASSIFIED MESSAGE
+oF rmt
+ons ee eee
+
+Sere “ECRET =
+
+{When Filled thi peagnepend
+
+f
+
+ADWANCE COPY DO sxe (CO sores
+
+QussiFy TO PLE NOL
+
+or. Fe 2
+
+REF TO PLE WO..
+
+rue ua Cost. 10
+
+SECRET 172146 APR 68 CITE GUATEMALA CITY ESS2 —
+“  WEXICO CITY INFO DIRECTOR 17 Rea 5 393083 /
+REF: GUATEMALA CITY-8887 (w7 aus ; OQ”
+
+1, ACCORDING TO LIAISON, G-2, BECAUSE OF LACK OF AELE
+BNTERROG31 10" UFriterS mad sion uaabee Uoinin nat iar cna ice”
+@ VALUE FROG TWO MEXICAN PRISONERS. LIAISON FORCED INTERROGATE
+
+@ARA) BARRIOS IN PRESENCE TwO G-2 REPRESENTATIVES WHO CORT IBUALLY
+
+“  STERRUPTED EFFORT. PRIMARY LNTERROGATION LARA ADMITTEDLY NOT
+- COMPLETE. ESMICA WILL TRY ARRANGS FURTHER INTERRCGATIOK 18 MORE
+
+i FAVCRABLE SURROUNDINGS. :
+2. BECAUSE G-2 HAS BEEN UNSUCCESSFUL IN ITS ISTERROGATION OF
+
+MEXICANS, THEY ARE CONSIDERING TURNING B3OTH GYER TO “ARMY SPECIAL
+
+t
+
+i UIT" FOR ISTERROGAT ISU.
+
+r 3. WILL ADVISE DETAILS AS AVAILABLE. . F
+~ SECRET , ! i
+i BT - i '
+: : :
+- “4
+: i , i
+: St me me nn cp ne nn pie te ee 7 - ~ fp -
+io i | i
+' SECRET
+t : -. ° :
+
+Sm rere enmtionanesee tine 0m
+
+aod
+14-00000
+
+a SECRET ; i
+
+: . seen Pied fos
+t : »
+COCUMENT TAAMSFER “MD CROSS EEFORENCE :
+SLBJECT CF IOC eat COR UMENT SS EOT UF IC ATIC
++ ' , on FILE wD.
+COC MEST CISPOS'TION
+ee ec
+or rug 0.
+t
+SURADO CELMAR, CARLOS
+201-798301 035-004-017
+SEX M008 2? GuaT-08880
+' _ 16 APR 68
+. CIT MEXICO . .
+occ 2 ' '
+
+MEXICAN C&QRVING PP PO. 103388. ‘
+CAPTURED GY GUATEMALA AUTHORITIES SEAR REXI~ ‘
+CAN BORDER CVER PAST wEEKFND. ITEMS TAKEN '
+FROM PRISCNE®S WAS MESSAGE FROM /GR TO oe : ‘
+
+NESTOR VALLE /FAR PSEUDO OF NERY DE LEON :
+LEICARDIEs FAD LEACERS, GUERRILLA TRAINING i
+MATERTAL AND THREE SMALL STONE BELLS
+
+® 6805160769 ¢
+
+“FILE IN 201 LIL 361
+
+soy *
+
+~ A > a LIRMIE -3
+
+oars SEC OE" AAT 7 OPSSEMNATON Cas > Meseece Tora. COMES.
+
+ADNANCE COME ne [J stores
+
+SE CRE T 1684222 APR 65 CIiZ MEXICO CITY 5221
+
+IMMEDIATE GUATEMALA CITY Taro IMMEDIATE DIRECTOR KCUTINE TE
+
+LIRING
+REF a Mexico city 52a5( fa; 4aae) IS deata we
+B GUATEMALA CITY asaz(ra! Gia) “wR egg
+
+1. DESPITE DESIRE HELP LIRISG-3 WHO GEPARTED FOR GUATEMALA AS -
+PART STATION EFFORTS AGAINST GUAT REBELS, MEXICO CITY DIES BOT SANT
+LIAISON MADE WITTING LIRIKS-3 SAS STATION CONTACT. —LERING-$
+HANDLED BY ROWZON USDER FALSE PLAG AND NEVER MADE WITTINS ROZTON
+CONNECTION WITH BOFIRM. SELIEVE DISCLOSURE LIRING-3 CO¥NECTED
+WITH WOFIRM AT THIS TIME WOLLD CREATE SeRICUS DIFFICuLTics Foe
+
+STATION WITH MEXICAN GOVT WHICH COMPLETELY YawITTING STaTicg
+IN MEXICO DIRECTED AT GUAT FZ3ELS. 17 WOULD CREATE SIMILAR
+DIFFICULTIES FOR LIRIHG-3 I EYES CUBANS AUD MEXICAN LEFI!STS KOT 79
+MENTION LIRING-4 WHO CURRENTLY AWAITING CUBAN VISA. : “4
+2. CARLOS MAWUEL PERSAVEL MARCUE IS HEPHEW OF Raty BL ARGUE
+PARDINAS, IMPORTANT MEXICAM LEFTIST AND EX DIRECTOR MEXICAS PERIOS-
+ICAL WHICH RECENTLY DISCONTIZUED PUBLICATION ALLEGEDLY, ANCKS OTHER
+_w-swa REASONS, AS RESULT WITHDRA@AL CUBAN SUBSIDY, PERSAVAL WHO MARRIED 10
+SISTER LIRING MISTRESS ORIGIYALLY INTRODUCED LIRINE-3 TS GUAT, REBEL
+
+4
+
+SECRET
+
+;
+
+cmetwaed cacnmgherne 6
+
+..
+som srt ae
+
+wee
+
+Cab. £ SECRE“SD AT DISSEMINATION CLASS FIED MESSAGE Tota, COMES ROUTING AND/OR MGTIALS - SEES BY
+
+meee SECRET
+
+{When Filled in)
+
+y
+
+wr «7, = I
+WREF TO PLE KO t
+
+:
+
+Dssem or____ren mre mo Deer to era] pasta Cac :
+
+PASE TWO MEXICO CITY S221 SECRET
+
+EXILE GROUP MEXICO CITY. ALTHOUGH ROWTON LACKS LATEST DETAILS, it
+PRUSABLE PERSAVAL WAS PERSUADED ACCOMPANY LIXING-3 AND LARA AT LAST
+AISUTE. SHNCE HE HAD CAR AND LASA GUN WOUND HADe BUS TRAVEL
+dazvaainic. aubucS! GuATCMALA CITY INFOR* LIAISSN MARCUE vELL mews
+MEXICAN LEFTIST RELATED TO EX DIRECTOR PERIGDICA AND LARA GUST :
+LEFTIST EXILZ BUT HidICaT= IT HAS 89 TRACES LiR1c-S. 0
+
+: Se WOULD ALPRECIATE DETAILS LIRINCG-3/LARA/PERSAVAL ARRESTS add
+
+: SUBSEQUENT IHTERROGATION AS BECOME AVAILAZLE. IS THERE CHANCE ARRESTS
+
+j LIRING-3/PARSAVAL MAY LEAK TO PRESS OR LOCAL MEXICAN AUTHORITI=5?-
+t PLEASE ADVISE. : : “
+i i
+} SECRET i
+BT an i
+: vd ~
+t :
+- po 1
+
+Aa.
+
+FS
+
+eee wee Sor ae
+
+14-0000
+
+oo 2 a e. . . . :
+
+toons ~. ook LI E1We -
+on 4 ‘
+Cadi £ SEC PETARAT Octewmnaron CAS FIED MESSAGE 8 Tore, Com te BOUTIN AOD/OR IMITULS - SELON EY
+Geese :
+
+REFROOUT TON OF THIS COPY Foran ETED
+cectcon Qoauna LJuorne meters eon ree
+
+vox Dons Ono ; fra?
+Foam
+
+Ere 7
+
+a-as TO mE WO
+
+erasees wy _____ ee ve ao Dees. 10 1 pesreort “e : '
+
+tye Bee Beal _— a
+
+SECRET a ke :
+
+SECRET 1523572 APR 6S CITE GUATEMALA CITY eaea .
+IMMEDIATE MEXICO CITY INFO IMMEDIATE DIRECTOR, ROUTINE TEGUCIGALPA 2
+LIR1iG po Q | og
+REFS: A. MEXICO CITY 5285 (IMT) ATE) ;
+B. SCGUATEMALA CITY 521 CNOT SEXT TEGUCIGALPA)
+
+C. GUATEMALA CITY 8822 (HOT SENT nunincuciweese) =
+
+Je ON APTERMOOH 15 APRIL 68 LIAISON REPORTED THAT FRANCISCO,
+ADALBERTO (LARU) BARRIOS, GUATEMALAN COMMUNIST WHO CARRIED ~
+MEXICAN IDENTITY DOCUMENTS IW HAMZ JACINTO CRANGELD CERVANTESs) © gt
+
+CARLOS (JURADO) DELMAR, MEXICAN CARRYING PASSPORT BO. 1053883 ,
+(AND CARLOS MANUEL (PERSAVAL) MARCUE, NEXICAS CARRYISG PASSPORT
+8. 33171, WERE CAPTURED BY GUATEMALAN AUTHORITIES SEAR MEXICAN FE
+
+BORDER OVER PAST WEEKEND CZXACT DATE KOT AVAILABLE) Ae ALL THREE
+WERE BROUGHT TO GUATEMALA CITY AND ARZ BEINS HELD FOR INTERROGATION.
+2. AMONG ITEMS TAKEN FROM PRISONERS WAS MESSAGE FROM (OR To!
+_“WESTOR VALLE” (FAR PSEUDO GF HERY DE LEON LICARDIZ, FAR LEADER), .
+GUERRILLA TRAIBING MATERIAL, AND THREE SMALL * Stowe" BELLS. wHER
+ASKED ABOUT BELLS CEACH OF PRISONERS CARRIED A BELL) “ AWTERROGATORS ©
+GOT THREE DIFFERENT STORIES. DURING INITIAL INTERROGATION BY ANY, |
+LARA f ADMITTED HE COMMUNIST, BUT CLAIMED HE RETURNIUG TO GUATEMALA ~ a
+
+eI
+
+t
+|
+!
+1
+¥
+
+14-00000
+
+Cass ttn Wessace Tota Comes:
+
+at —__
+
+I4SCE SECRETAPAT OSSEsenE TCAs
+ee ores caer 5
+| SECRET an oe treme L $i
+| ow Filed fe} — fae 7! .
+[verecoucnen OF Tins Com PromeTip heb
+MOF RCE COPY (CD «sco DJ sorts — 7 “i Sion
+nom Dos Cn st Tet
+z CLASSPYW TO PRE WO {
+{
+\
+
+| peas 10 ree no.
+
+fie mo Derr. ro
+
+PAGE 2 GUATEMALA CiTY 5823 SECRET
+
+TO RESOUSCE HIS AFFILIATION.
+3. LIAISON REQUESTZD STATION FOR TRACES ON THREE PRISONERS. :
+
+ADVISE INFORMATION MEXICO CITY WISHES PASS LIAISON. :
+
+Sse aRET
+
+BT
+
+ABT ele Late tipsy fete staeenn tenet = nt gnte wre then
+
+14-0000049
+
+2
+
+L
+
+coc uiry f
+D operations Against PBRUMEN” ing LIRING-3, LIRING-4,
+ACTION REGUTEED - FEFRERCES and Their Contacts - January to 31 March 1968 i .
+
+i
+
+Action Required: FYI |
+i
+References : A. HMMW-16222 i
+B, HMMA-33842
+
+1. The development, handling, and exploitation of any
+asset under false pretenses by someone operating under false
+
+fled hee and wEll contiowe te hove many tromhacke Tr the!
+
+case of LIRING-3/LIRING-4 the situation is further complicated
+by the fact that PBRUMEN nationals at home and in LIRING (the
+main target against whom the two have been directed) have -
+long suspected their motives for maintaining contact and
+wanting to cooperate with them. The ups and dowus of the
+LIRING-3/LIRING-4 marital relations have from time to time
+further complicated the conduct of operations involving them.
+The Station can understand that Headquarters has some reser-
+vations on the conduct oi these operations. They have been
+complicated, time consuming, and have blown hot and cold
+depending on the state of mind of the PBRUMENers at the time
+and the difficulties between LIRING-3 and LIRING-4. Because
+of incomplete control, an almost inescapable feature of this
+type of operation, a considerabie effort was made to check
+the reliability of LIRING-3 and LIRING-4. This involved ,
+LIFEAT coverage, audio monitoring (LIROSIN), and occasional
+
+Continued.......seceseeeecenes
+
+: Attachments: . (3 .
+i VX Reports (15), u/s/c r i
+\% Identity Sheet, u/s/c | py
+i Distribution: ‘ !
+: Orig & 2 - C/WHD (w/atts - 1 copy att A; 3 copies 5
+att B) | ,
+
+SECRET
+
+TASS CATON TASPA-Os SrUaCe AND NOMBER
+
+CONTINUATION OF :
+DISPATCH SECRET ° HMMA - 34484
+
+surveillance by the LIEMBRACEs. The results, at least in the
+PBRUMEN phase of this operation, have been unspectacular so-
+far. The main usefulness of LIRING-3 and LIRING-4 has been:
+a) as access agents to LIRING, (although this has been l
+largely reduced to the LIRING Consulate), and b} to introduce
+
+Wallace B. ROWTON to visiting PBRUMEN officials and members|
+
+of the local leftist community with access to PBRUMEN and
+
+LIRING. A major effort was started recently to take this
+
+operation up one more notch and, taking advantage of a recent
+
+crisos in the relations between LIRING-3 and LIRING-4, send
+
+the iatter to PBRUMEN on a mission to assess and hopefully
+
+recruit new sources of information. The exploitation of
+
+LIRING-3's coutacts with representatives of the Guatemalan
+
+FAR rebel movement was the object of separate correspondence.
+LIRING-3's renewed contacts with these representatives do.
+
+not at this time involve PBRUMEN, although the latter clearly .
+supports at least some of their activities. : .
+
+2. Yorwarded under separate cover are fifteen reports
+prepared by Wallace B, ROWTCN on the activities of LIRING-3,
+TERTING-4, and cows nf their contacts from late Januarv to
+31 March 1968. ‘The Station has noted Headquar‘ers' desire
+for more frequent progress reports per reference A. It felt,
+however, that in this case partial reporting of LIRING-4's
+difficulties in obtaining a PBRUMEN visa (by far the most
+important aspect of this: operation during the period under
+review) could have been misleading, as the situation changed
+several times and LIRING-4 did not really know what to expect
+from LIRING from one meeting with its representatives to the
+iraxt, not to again mention the ups and downs of the LIRING-3/
+LIRING-4 relationship, which hit a new low during this period.
+The Station would like to point out in passing that, in.
+addition to cable reporting and dispatches transmitting:
+ROWTON's contact reports, the operations in which LIRING-3
+and LIRING-4 are involved in are reviewed in sone detail in
+the over-all monthly report submitted by the PBRUMEN Section
+of this Station.
+
+3. The last time LIRING-4 accompanied LIRING-3 to PBRUMEN,
+she obtained an entry visa in a few days. LIRING-4 thus felt
+that as an ex-enployee of LIRING with good connections in
+PBRUMEN and LIRING she would obtain a new PBRUMEN entry' visa
+fairly easily. Entry visas are now quite a bit more difficult
+to obtain, however, for PPRUMEN nonofficial citizens abroad.
+It also appears that the LIRING staff did not really know
+what to make of LIRING-4's stated desire to return to PBRUMEN
+for an extended period of time, as this was obviously based
+‘on a domestic quarrel. LIRING-3 and LIRING-4 have had other
+quarrels, and the LIRING staff may have thought that this last
+one would subside and that LIRING-4 would postpone or cancel.
+her plans for going to PBRUMEN. It was to convince the LIRING
+staff that the difficulties with his wife were serious ‘that,
+LIRING~3. first went to LIRING. In a maneuver to further
+convince the LIRING employees, particularly LIRING-2 ard
+LIRING-9, that LIRING-4 seriously wanted to go to PBRUMEN as
+a result of domestic problems, ROWTON decided to have LIRING-3
+openly question LIRING-4's right to take their child with
+her. It must be remembered that, in “exico, «a wife cannot
+leave the country, and especially take a child with het,
+without the express and official consent of the husband. This
+little scenario appears to have been well played. On Ves
+other hand, it did not help LIRING-4 obtain a visa any [faster.
+LIRING-2 appeared to be waiting, among other things, for
+LIRING-3 to arrive at a decision regarding their child jaccept-
+able to his wife. LIRING-3 finally "agreed" to let LIRING-4
+take the child at his 26 February meeting at LIRING. Two
+days before, LIRING-4 had been told by LIRING-2 that _ the
+
+COASSIFICATION
+
+USE FEOUS EDITION. SECRET : TX ocecueo
+
+14-0009
+
+“
+
+7 carrer a WS SET ETSTUROC INS WOUER
+CONTINUATION OF
+DISPATCH SECRET HMMA - 34484
+
+‘
+
+“consejo superior” of LIRING, of which he said he was a member,
+had not yet taken up her case. This was indirectly confirmed
+by LIRING-16, wko told LIRING-4 the same day that nothing ~
+about her visa case had yet been sent to PBRUNEN as he would
+
+otkeivdisc kuov it, cinco he handled 212 vis. correspondence.
+
+4. There is naturally the possibility that LIRING-4's
+visa request was handled by LIRING via classified correspondence
+not seen by LIRING-16. This channel may have been used because
+LIRING-4's visa request brought out the old problem of
+LIRING-3's reliability in the eyes of the PBRUYENers. Although
+LIRING-2, LIRING-9, and Idertity appeared sympathetic toward
+LIKING-4 and her projected visit to PBRUMEN (to the point
+where they advised her on nore than one occasion not to come
+back to Mexico), they, at the same tire, sought to clarify
+two things. They first made another attempt to throw some
+light on the sources through which LIRING-3 had obtained
+information of particular interest to LIRING. Secondly they
+brought up the question of "the Greek” (ROWTON) and tried to
+obtain answers to pertinent questions. LIRING, as mentioned
+by pOtTh LLKING-Z2 and luenlity, id uve uscd wo uciug Bavcu
+sensitive information without at the same time obtaining good
+source description. Specifically, how did LIRING-3 hear of
+the arrest of the LIRING member involved in a subversive case
+4n 1966, how did he learn of its proposed publication in the
+press of a Central American country, how did he obtain the -
+report on Rico GALAN which he passed to LIRING, and how could
+he have learned of certain of the activities of Moises OROZCO
+Leal? To all these questions LIRING-3 replied by saying that
+he had good sources in Mexico and Ceatral America and that he
+was not about to divulge tnem to the PBRUMENers. Both LIRING~-2
+and Identity in their conversations with LIRING-3 and LIRING-4
+took pains to say that LIRING-3's conduct in his dealings
+with LIRING and PBRUMEN was “above reproach." They wanted to ,
+be sure, however, that he "had not fallen victim to unscrupulous
+elements constantly surrounding the revuiutioa." To quote the
+old cliche, LIRING-3 "got their message."
+
+5. ROWTON’s introduction to LIRING-2 and other LIRING
+members by Rodolfo REYES Cortes and his subsequent meetings
+‘with LIRING-2 were bound to make the latter sonewhat curious
+about this wealthy Greek businessman and proclaimed friend of
+"the revolution” who seems to travel extensively and appears
+to have well-informed and influential friends in many parts
+of the world. LIRING-2 was apparently ruffled by ROWTON's
+criticism of the LIRING efficiency (see ROWTON's report dated
+1 January sent as an attachment to reference B) since he
+
+_ finally phoned ROWTON's "office" after the incident described
+in ROWTON's 1 January report. For some reason LIRING-2 made
+the call on a legal holiday when offices are usually closed,
+and the operator of ROWTON's answering service answered
+"Mr. ROWTON's (in alias) office." This apparently made
+LIRING-2 even more inquisitive. During a one hour meeting
+at LIRING on 15 February LIRING-2 asked LIRING-4 about her
+relationship with "the Greek." LIRING-2 wanted to know where
+and for whom he worked, et cetera. ROWTON's report of
+17 February covers this conversation in detail. LIR{NG-2:
+appeared to suspect ROWTON may have been one of the sources
+of the information passed LIRING by LIRING-3 and warned
+LIRING-4 "to go easy with the Greek," if not for herisake, at
+least for LIRING-3, who "has not always treaded on firm ground."
+LIRING-4 provided some "information" on her Greek acquaintance
+on 24 February. ROWTON, who had briefed her in detajl on what
+
+CLASSIFICATION
+
+SECRET
+
+?
+
+os 53a USL PREVIOUS EDITION,
+
+TONTINUED
+a —-——L——
+
+14-0000 4
+
+CONTINUATION OF
+DISPATCH SECRET | HMWA - 34484
+
+Cusp oe cation TSPALCM SYMB. AMO fe aa>
+
+'
+
+t
+she should tell LIRING-2, felt, after listening to LIRING-4's!
+report, that the latter had at least partly succeeded in : !
+lessening LIRING-2's suspicions. These suspicions may have
+been further reduced after LIRING-3's discussion with LIRING~2
+on 26 February. ROWTON did expect LIRING-2's questions and }
+felt in the end that he had “passed the test."
+
+6. The Station does not know at this point whether
+LIRING-4 will get a PBRUMEN ‘entry visa but is still optinistid
+that she witl. The PBRUMENers appear convinced that there is:
+serious trouble between her and LIRING-3, and LIRING-1, to
+whom LIRING-4 wrote for help recently, asked her to be patient,
+pointing out that red tape in PBRUMEN taxes time. The i
+possibility that the PBRUMENers may allow LIRING-4 in their ,
+country to interrogate her about the activities of her husband
+and some of her friends has occurred to ROWTON and the Station.
+Such a possibility is, however, most unlikely as the object
+of the PBRUMEN suspicions is LIKING-3 and net LIRING-4, who
+has several times told them that she knows little of what
+LIRING-3 does. The most important consider*tion, however, is
+that LIRING-4 is married to a Mexican citiz.a, and as
+suspicious as they may be of the latter's doings, the
+
+ppvinrevere Rowe, to the beet of ont browtetos, no rreof that
+
+this Mexican has done anything against their regime. On the
+contrary, LIRING-3 has time and again warned them of impending
+difficulties or problems. The fact that LIRING-4 is married
+to a Mexican and that she enjoys the status of immigrant in
+Mexico is also the best assurance that she would be allowed
+to return to Mexico, as the PERUMENers want no trouble with
+the Mexicans. The SGSWIRL exanination recently given LIRING-4
+has cleared the air at least on two points. First, that
+LIRING-4 is not an enemy penetration, and, second, that she
+has not revealed the nature and extent cf her contacts vith
+ROWTON to anyone else than LIRING-3. The Station agrees with:
+ROWTON that LIRING-4 would, if given a chance, prove herself
+to be a good asset. As for the question of being left with
+continuing obligations in this operation, both LIRING-3 and
+LIRING-4 know that there is little ROWTON could do beyond :
+providing legal-type advice to bring LIRING~4 back to Mexico '
+
+if the PBRUMENers refused to allow her to return to her husband,
+
+an unlikely possibility as mex*tioned above in view of current
+Mexican, PBRUMEN relations. The letter of understauding signed
+by LIRING-4 specifies the extent of ROWTON's commitment and
+leaves no doubt as to the extent of his obligations. .The
+Station hopes that LIRING-4's relationship with LIRING-3 will
+not improve with time to the point where she will lose the
+proper motivation and cover to undertake the mission to PBRUMEN
+for which she has been trained and briefed.
+
+7. The attempt made te exploit Carmen LOZADA's trip to
+
+-PBRUMEN to obtain assessments and vulnerability information
+
+on a number of persons she knows who have operational potential
+turned out to be a complete failure. LOZADA ran into such ,
+difficult family problems in PBRUMEN that she had no time (or;
+as it turned out, desire) to obtain the information requested !
+of her. The strain of her personal problems was such that
+
+‘she-nearly had a nervous breakdown after returning to Mexico-
+
+City on 16 February. Not even LIRING-3 could get anything out
+of her. The victim of a type of family blackmail by her |pro-:
+AMTHUG husband, LOZADA returned to PBRUMEN on 15 March. }{
+ROWTON did not fare much better with Rodolfo REYES Cortes, i
+who returned to Mexico City in early March. REYES, who if i
+preparing to go to Chile to put ona ballet performance, (has.
+been extremely busy since his return with private and
+professional matters. ROWTON nevertheless managed to debrief
+: j
+
+TLASSIFRATION
+
+i
+
+7
+14-0000
+
+TeaSs CATION “DisPaTen Bema ANG NUMBIA
+
+SECRET HMMA - 34484
+
+rea
+
+him at least partially on his contacts in PBRUMEN. The only |
+concrete result of REYES' trip to PBRUXEN so far is the contact
+which he made with Sukendah**HANAFI, the ex-Ambassador of \
+
+onesia in Havana. According to REYES, HANAFI expressed
+rest in meeting ROYTON to "work something out" to tke |
+mutual nrdvantage of boih the Greek and Indonesian revolutions.
+After a couple of phone calis, it turned out, however, that
+HANAFI would probably be unable to obtain a Mexican entry visa.
+The Station believes, anyway, that little would be gained by |
+ameeting. From the information at hand, HANAFI is a convinced
+leftist who does not lack for money and seems to have an!
+enjoyable life in PBRUWEN. The Station is finally not !
+interested in the Indozesian “revolution” or in what HANAFI
+could do to help the Greek leftists. : |
+
+8. If she does not go to PBRUMEN an effort will be made
+to further exploit the antagonism LIRING-4 has developed for
+the personnel of LIRING in the course of her attempts to.
+obtain a PRRUMEN visa to obtain additional operational ~—
+information on LIRING and its employees. LIRING-4 has been
+
+WA so humiliated and angered that she is willing to do literally
+
+Mey Lidge Gene Laden, Out eu ROnao cual Sus euudiu put
+
+a time bomb in the building if he asked her to do so. LIRING~4
+has already been used unwittingly for NECREDO purposes. It
+may be possible if she stays in Mexico City to use her in
+connection with an audio operation against the “safe room" of
+
+the LIRING Consulate.
+P. genre AS. Kole
+
+for Willard C. CURTIS
+
+CLASSIFICATION
+
+ose S30 USE PREVIOUS EOINON, hl SECRET
+
+14-0000, -
++
+
+” . } Via
+, SECRET
+: i
+: MCROFU Cr, :
+: Separate Cover Attachment B to Mar 2 1568
+HMMA-34484 BOC acre. gen
+a
+‘
+Identity Sheet is
+i Identity: Ismael SUAREZ de la Paz r
+q r
+i :
+i :
+|
+: i
+i 4
+
+ee 7 ee seerer
+MMMA-3H4gH . OS Copy IO -718301
+
+t
+i Q
+. if i
+i . ; bo i exk.
+
+14-0000
+
+_- , 31 Marca, 1963
+
+G/4. SUi SETASLE 7
+
+——_ . Sudject: SGSJ1sL Sxanination of LI2
+
+4. LIfiiG/4 was gives an sGSIRL exazinetion fron azout 1030 until
+1300 on 34/3/68 ob room 602 of the Hotel del Bosque on Calis Lelchor
+Cearpo. Kowton renteni tae suite in the nate Nicolas Spyrczcoulos and no
+security problemas were enccunted in using tais site. .
+2. sowton first preposed the exerination to Linli.3/4, after ciscussing
+it briefly with LIn1.c/3, at 1500 on 30/3/68 in tre coffee shop of the
+Hotel osque in tLe cresence of the exeniner. L/4's initial reaction was
+
+: elcont identical to thst of o1h2. 6/3 - one of sacck, indignation, and out-
+
+ricts refusal on the sround that it was "servil" 2:4 beneatno ner dinnity
+at anv price. She sede it clear that she felt she & been and was texing
+all the risks and conziered it coapletely unfair thet she snould have to
+
+= svtiect heres’ to cusmic "elles deuCas CRaedl HSE pue cau Gone novoing
+wreng and in fact knew nothing edout ncwton. At one point she commented
+thet this whole thing made her taizk teat Rowten «as an agent of WOFACT.
+She did riot dwetl on this point, however, or return to it sudsequently.
+
+3. Im view of this unfavorasly turn at tae initial sessicn “owton agreed
+i with the examiner thet tne latcer should crecefully tow out and give aowtcn
+
+3 a cconce to soften L/4 up by a more thorough exclanavion,empecially since
+4 L/4 refused flatly to accompany Rowton and the exeniner to the safehouse
+room upstairs. Kowton then spent the next two hours explaining the tesb
+: emphasing that it would not ircluce any indiscriminate frivolous questions
+La ané that 1/4 would mow beforenend what the precis2 questions were. sodton
+: made it clear that he was interested mainly in deterainins whether 1/4 had
+: betrayed hin to her [IZING contacts aud had any sort of secret agreement
+: with PsaUMci to work esainst him. 1/4 finally agreed to teke the examination
+i “the following rornin> since as ske stated ner conscience was clear.
+; 4. The responses appeared favorably on pertinent questions and the control
+question on any théft of soney (cuggested by Nowton on the basis of the
+r repert given to him in conficence by lirins/3 that 1/4 bad taken 2,000
+; Fesos from the L1kIiG safe which she alcost immedistely fzplaced on his. ~~
+: “ Gmsistence) proved to te excellent. L/4 aid not reveal the specific theft
+“pat she was evidently thoroughly convinced after the test that the SGs.IkL
+oan is reliable and cannot de beaten gowton and tie exaniner/felt it unwike to
+i break her on this ccatrol question since it "gould prove counterproductive
+and would probably expose L/3 as thé source. jhe test will proably serve
+as an excellent deterrent and additi nal coatrol hes futu assessment of
+
+L/4 and évaluation of ter reporting. ~
+
+enue HH 84 “tin | Uke Tiaae 7090)
+
+Wp tetattehied
+
+eo eee oe
+
+1 eee amen eng ret See
+we
+
+14-00000
+
+t
+
+|
+: . |
+Subject: LIsliG/4 Kerart of Status of Zecuest for hke-entrz Pera
+
+l. Houten cet with LIPING/4 at her request et 1630 on 23/3/65 at the
+
+Denny's kestavrant (Reforca =. Tiana) to discuss the status ef her visa
+
+(re-eztry) request. She stateé thet she had just received a letter; from
+
+her friend Doctor folanda Uiaz, transnitted tirourh Jorrfin and civen to her
+
+by the latter tiat same morning. The trensiatio. of the text of the letter
+
+is 2s follovs: . _ ;
+"ano del Guerriilero Herdico”
+La Habana.vebrero 9/58 -
+
+Sra. : t ‘
+México,d.?. : '
+Quex Dear + 'e T onplotisc iv you sast nicht when we ‘spoke
+
+(on the telephone) the processizs of your entry is deizs held up
+“because of a number of tainss tzet heave to be done which in sim
+view of tee pricrities you known exist result in it& not being done
+as rapidly as one would wish. : :
+I don't think you should be discouraged and rest assured that as
+soon as it comes throtrh, we'll aévise you, especially since Abreu
+ie goins to follow it tarough. Eisses to your child and regards
+to Carlos. - : :
+
+/s/ Yolanda ‘ :
+
+2. The letter, 2 copy of which was made by kowton, also conteing a F.S. from
+Sbreu, a transletioc of which follows: , .
+
+I'm taking an irtercst in your matter. as Yolenda exslains . oe
+red tape taxes tice. I received your cable and letter.
+. . Fondly, ; t
+
+/s/ Abreu poo Lee
+
+3. LIkLiS/% called to Rowton's attention the length of tire ( alrost six |
+
+weeks) for she lstser te rerch her dispite the fact that Abreu ninself most ~
+probably forwarded it through the pouch. L/4 commented that when she ‘re- : .
+gerked this to her ‘riend Catalina Cepero, tae latter stated that she had
+
+received a itter in tne pouch the same dar out it was dated-in » ecender 21967,
+
+and anctner from folenda dated February 9, 49S56 !
+
+& LI40.5/4 also rerorted that sce had fi.slly managed to talk with her a
+father on the telepione, and,altaouch he evreared uneasy and sozedtat abrupt
+(seco), she was rea-sured thet ne was in reasonably =00G hezlth. iShe finally
+assured “oeton that she no lnnzer suspected hin of any foul play ees agreed”
+
+that her feather was arparently actiug om the advice of his iawyer in con-
+
+nection with tae visa reugest of her brcther (to emisrate to the U.S.) : that
+
+was being processed in iiew York. wB zowton
+
+owes Temes
+
+wal
+
+eee been ee cee
+
+14-00000
+
+4
+
+‘hesing his residenc
+-Fertuorndo (a leaé furnished by iI:
+.this, syeing sixcpiy that she would look into tne zatter herself. She said
+
+“that she suspected cowton since he ‘was the only person to whom! she ‘had given
+
+i
+fl
+
+. 22 Marc, 1963!
+
+i :
+
+Subject: ELsd: 3/4 Report of News Concerning her Father in hew rors.
+i
+1. At 1600 on 22/3/63 Rowton visited LIRIiG/4 at her residence to discuss
+with ter eae report zhe had received fron a mutual frierd concernirs ner fa-
+ther. terlier in the day LI=ZI.S/3 had informed aowion that LIKIKG/® nad re-
+ceived a Gisturcics riece of news to the effect thet someone Had azzroached
+her father in New York vity and told him to breax off all contact with Li-
+BinG/4 in order to eroic jeosardising his residence in the U.S. tccerding
+to LIRING/3, LIeT.5/4 wes convinced as a result of this report tzat xowton,
+and possibly with che Enowlecge cf LIRING/3 hinself, had arransed tris ap—
+proach to preclude eny mexcontact L/4 night nave ned with her father taat
+sight ceoperdise her mission to Hevana. Rowton assured LEaIKG/3 that ae had
+take no such action ond arrecd to +038 to TTTTUL/S So acascuie UEP ais0 SINCE
+aecording to LixIsG/3 she was very upset and her conficence in doth 2owton
+and Lixi13/3 hinsel? szaken.
+
+2. Zoxton reassured 122!
+
+‘G/& ween he saw her but, of course, could aot fur-
+mish proof of any ind that te had not intervened. Ze aszed several tins the
+
+identity of the soutse, out LIkTNG/4 seatfastly refused to divulge it, sas-
+ing only that a lavyer friend of her father cad written to her stating taat
+
+the reascz= her father had not communicated with her over xkak the past three .
+
+sonths end had nct answered her letters and telephone calis was that "toey*
+had toid him not to zsintain ary contact with his daughter at the risk “of
+
+tue 0.5. Xowton asked whether the lawyer's name was .
+3/3) but L/4 woule rot confirs cr deny ¥;
+
+her father's acdress in Sew Yorz and she c:uld not inazine why; any other
+person would heve a iotive to contect hér father in taat way. She adced that
+if her father had just given her sone sort of explanation she could under-
+stand, dut acting the way he did indicated that someone had terrotized bin
+
+inte somplete silence. Rovtwn acain insisted that he did not in any way... ne -
+
+contact her fcther, acc woulc never heve done so witsout first| consulting
+her. He surzised that possibly her father's lawyer had counseled bin to
+break off contact in connection with the application Ler father was' making f&
+for a visa for LIkL:5/4's brother on the ground thet the American aut iorities
+mizht deny tae visa if they mew of LIRI:G/4's crevious mee in the
+
+iIRIG offices.
+
+dallece 5. ot 7
+i
+
+wae oe eel
+1. Rodolfo Keves Cértes informed -ovton 8/3/68 that woile in Hevana
+
+he discusse@ with sis frierd Sukenian —
+
+Peet Rate Riparian eer a eat pes
+
+“to Cuba, possibility of colledoration with sis Greer lef
+
+sian Ampessador
+ftist susinessnen
+friend ctoth in intvernationei cornercial teats and politically. According
+Reyes, ianefi expressed immediate interest, acceptin: Aeyes' word that be
+coulé place full trust in. Rowton. Hanafi state? that re felt something
+could be worked out to thexr mutual <edvantaze of doth the Greek and the
+Indonesian revolution, since se hac contact aizself with tne liberation
+
+-army of Irdenesian.
+
+SC poe Le
+
+2. Hanafi acted Pevea tn net welcocetting fer tin with
+pierzoly in te
+return to Nexico vity, KELxnecomlaxyrszes iexicc vity where
+Reyes could naxe the iztroéuetion rergonaily, cut inéicating that he mizt
+run into difficulty in odteinine a visa. Ee added sat if Kexico vity not
+possibie he vould travel to reris where he nas never had visa broudle.
+
+3. Reyes resorted to gowton on 11/3/43 that he had t: iked te Hanafi on
+telephone gmt asking hin artenze trip soonest co i.exics “ity, out Hanafi
+had replied that his initial caeck hed revealed xicans would insist on
+Clearance sith inconesian iadessy itexico City tricr to issuance of visa.
+Hanafi added, however, that he tak matter up with Xafl doa and might
+
+be able arrange scme sort of official travei to fecilitate issuance of visa.
+
+He prouised advise Reyes soonest sirce he aware that Reyes aust leave for’
+Chile by end Harch (as scon as =is wife, Pationa, obtains Chilean visa).
+
+i
+
+i
+
+- ; : - d3Rosebon
+
+a
+
+i
+
+. s
+1
++ ‘ > 1
+i .
+: : ;
+ce ences eotnmennen deemneeets cea op cmt tienen ce cbetenne en nous tomarenneere seemed meee Same state ee om etme ce cnt eta oe
+. % ‘ f
+i 4 1
+wey
+ry 1 1
+a
+. oe | ; ;
+: a |
+. °
+: Pr)
+( gy
+oy :
+s 1
+a: i
+°o a! Pp
+a on o
+a a © 8 ‘ ' 1
+' rn) . . 3
+3 3| *4 .
+oh
++ Pod wan
+hd, HAO : ‘
+a” RSda : . .
+: o a! fh os 9 \
+. ® onmn H
+o| Mo oa :
+¢ 3a| © o's |
+Net pn
+oa ad '
+wy 8 8g
+tor Hs} Oo 7 . .
+{ % © '
+na Do
+.
+. A} . .
+| ;
+' 1 . an
+. i)
+. \ }
+’ \ :
+. . } t
+: . ' i . ; eens)
+t
+
+De nenqunse cents tie eens miwenmtenae mie ae TENG SAE GE RnR Sy eee tse seateennngatnartssenl
+
+| i . 7
+| . !
+1
+
+14-00000
+14-00000
+
+° : 9 Farch,1%63 :
+
+Subject: LISIiG/4 Report of Contact with ELEING/2 and LIRING/9.
+
+4 : }
+
+1. At 0930 on 9/3/63 L12_NG/& reported to ao.wton thet she had again on 2/3
+
+visited the LIXiiG establiszment to check on tie status of her re-entry
+
+permit. She stated that ilki.G/2 wes cordial ‘out politiely passed the .
+buck cn her re-entry pernit to LIzi:¢/9, stating taat it was a matter fer
+
+L/9's office end that in any case he himself was so busy looking for a
+
+house for the Chief that he could not do anytiing else at the moment. He
+
+said in passixe that he had to go to acapulco thet evenirg and would te
+
+there until Sunday might ( 10/3/63). de joxingly invited L/4 along fer
+
+the ride. He also commented that he nimself would be back in Havana about
+
+June and why didn't L/4 wait tu go bzcx with him. de added thet in any case
+
+he hoped to see her there.
+
+2. LIiINC/4 also reported thet Echezendfa ( Isnail Suarez de la Faz),who
+happened to be present when she was talking te 1/2, conmented thet his wife
+would de leaving on the 11 i.arch flittt and that he hircself expected to be
+returning in about two weeks. L/4 then commented sarcastically thet at the
+' pate things were going with 1/2 she would protabdly be still waiting for her
+entry sermit wnen he left and in thes case he could rersonally expedite it.
+L/2 then by wey of apolosy stated that the motner-in-laws of the Swiss 12-
+bassador kad been waiting for over <nree weeks for her entry visa and trere
+was nothing ne cluld do to spped thicss up fren this end. L/4 replied tzet
+this was after all little consolatic=z for her, although she felt very sorry
+
+for the Swiss mother-in-lay. . H
+
+3. LiniiG/4 continued to Rowton that she then spoxe briefly with LIRiné/9 : -
+_ who greeted ber cordially and askeé ter to take a coffee with him in his
+private office. Cu enterizg this office L/4 noted that the plaster had falle:
+from the ceiling just above the desk end 1/9 connented that kexpi it bad
+just happened the day before and that ae aored to have it’ repaireé soon. Se _
+
+‘added that he would also te getting better furniture and some pictures to oy
+decorate the bare walls. L/4 noted that the phone was still attached to the’
+
+wall and no ianp of any kind was in the room. | : 7 con
+
+a ~&, According to 1/4, LIRI:G/9 is still waiting for a reply from Havana re
+her re-entry perzit, and hoped to have some reply by 11/3/68. | His secre-
+
+tary privately assured 1/4 that she would let her ‘crow at once if anythi.;
+came in. LIRING/& also reported to Acwton that she talxed to her frtend
+
+14-0000
+
+ees ~ ~
+
+2. i
+
+1
+
+Yolants Diaz cn the telephone as a follow-up on her telesren to esx
+
+“Randre Abreu to excedite ner request for tae re-entry pernit. L/* told
+
+Bouton that Yolande vxpiainec toast she had been unable t> ecntget “abreu
+at first but finally got to him on &/3/68 and he pronised to do shat he
+could sconest, aivhough he cozzented that it would beSmpossidle to do
+
+{
+
+i
+
+: , t
+
+Se LizixG/4 also reported to Xoxtcn that she hed telked triefly with srta
+Esperin of L/2's office and was surprised to hear her complain cf the "in-
+suppert2dle" conditicns under wich she kad to work. ‘Srta Zsperén ssid
+that sne had been ezployed in the LIRING offices for tee rest'32 years and
+
+anything over the week-end. — oe
+
+“prior to the revclution had been reletively baz
+
+y. Latels, however, every~
+thing wes fuli of aystery, all coors and cab-nets locked up, and nosody
+Vsunving @-yobe. oue Gonilaea ip iys4 that she had had enough ("arta") and
+
+.was afraic that ske would neve to leave, atandoning any hese che still had
+
+of getting ber pension after so many years.
+
+walle
+
+Ballace B. Rowton
+
+i
+i
+:
+
+Y eee ak cow
+
+i
+4
+i
+iF
+
+'
+i
+{
+|
+i
+\
+i
+i
+\
+1
+
+‘
+:
+i
+
+t
+
+i
+
+’ :
+ep teneclinpremee
+
+somes Vite hams tes 3d
+
+14-0000
+
+tte ramen
+et
+
+To 4 March,1953
+
+Subject: Miscellaneous Infornaticna Purnished by LIBIUG/4.
+
+ro
+
+1. At his meeting with Li.inG/4,on tze mornings of 1 Ferca,1968, Rowton
+asked L/4 for various miscelieneous infornaticn that right be of fuse to
+the Station. _L/4 recelled_thet when she worked in the Consulate} ofZice,
+
+the combination of the ssfe was as follows: : i
+
+"4 times to right ,stopping at 10,
+
+3 tines to left, stcprins at 65,
+2 times to richt, stozpinsat 75,
+then turn to left until one can feel tumbler drop in place.
+
+Pee}
+
+ot
+2. L/4 also furnished nowton with izformaticn for the attached sketch of
+
+the constlar office where she farnerly warked, indicating the Tonation of
+the safe (in the corner concealed dezind 2 wooden door locked by key). Like-
+wise 1/& gave details of the office ¢ Abelardo Curbelo «zich she stated he
+sheared with his new secretary ,Conchita - the wife of the @l-npic attaché.
+
+. i
+3. L/4 also told Zowton that she learned recently froz corrfa that all
+confidential papers are now handled 2rd processed by one yerson. 1/4 added
+that she learned from conversation with MercededMartizez Morexo de Gonzalez.
+that she is in fect the perscn handling tae confide.tial documents. She.
+stated to L/4 that she has to process the confidential vapers of all: the
+offices, specifically Curbelo, Cicard, Luna, as well as her husband's, (Cruz)
+and Mertinez'. L/4 explained to Zortonthat previcusly each' office handled
+its own confidential docuzents, and filed them in their respective safes. :
+4. L/4 also save Koxton the form given her by the Consulate to be filled in
+for the “Registro de Ciudadano. Cubaros". L/4 explained thati she alleged
+that she had lost the original fora give n to her and taus obtained another
+so that she could provide Rowton with a sample of the form( attached here-
+with). : : :
+5. L/4 also reported that,as Rowton had requested,she typed out a letter to
+ber father (given to the 5Stati-:n) at 1330 on 4 Harch,1968, on the consulate
+typesriter. She regretted not having been able to obt2in tha name of the
+$ypewriter since it was not visible on the case. shen she asked adia z.
+Lopez de Valdes the name the latter surprised her be saying that 1/4 was
+the: second Ferson to ask for suco information that day. In view of that
+
+“comment, L/4& felt she could not press for the inforzation desired.
+
+®
+
+om 4
+
+ws be . ASKtOn-
+
+eve ise}
+
+1 Mandan GS
+
+7 en aetna adit at RAN RS RAD pan UM aE TT
+14-00000
+
+olga Vasline 5
+
+A
+
+1 =F
+
+DS <.
+
+SG
+
+e
+
+get m's
+
+Sedion whos 2 Cac
+
+ene fe re EN BR rep arr ce eect a ae
+
+Cuxbele's
+ofKice
+
+— Lend “4
+
+oT
+
+V Mand Mab
+
+de
+
+csoeer
+i
+
+bj
+
+- 27 February ,1968
+
+Subject: LIZILNG/3 Report of Conversation with LIKING/2. |
+4. At 0930 on 27/2/68 LISINS/3 reported' to sowton that he had spoxen
+briefly to Zcherendfa (i:nail Suarez de la Faz) on 24/2/68 and|to ilK1u3/2
+
+“at some lengtn cn 26/2/Se in the LIains offices. 1/3 explained|to nowton
+that cchemendfa nad passed e messaze to him throuci 1/4 that ne wentea to
+talk to nim gnd thet he would telephcose nimto arranaze a meeting. 1/3 cone
+tinued that xchenendfa finally cor, ected him by phone at about neon on
+24/2/68 and asked aim to coze to the 2G office thet t sfterncon. L/3
+
+_told xowton thet when he finally saw Echenendia the letter was very vegue
+
+an: general in bs statezents and that all te could eather fron ‘bis state-
+ments was that cchemend{a was apologetic for the "_dsunéerstandizg" that
+bad arisen as a r:sult of L/+'s request for a re-entry perzit., Echenendia
+stated thet "we" are concerned that i/3, whom they considered aonest ‘ond
+above reproach in wis dealings with PSRUi=y, aight have fallen victes to
+unscupluous elements who constantly surround tne revclution. 1/3 convessed
+to iiowtn that tiis vague and alnost inccherent iine of Zehezencie aanoved
+him to such an extent thet he felt it useless to cont nue ‘his conversation
+with him and as a result terrinated it at tae first opportunity.
+
+2. LIEGIG/3 continued thathe net with LIRI“KG/2 on 26/2/68 ae the latier's
+office with much more fuitfgl results. Accordin, to 1/3, 1/2 besan by
+stating that "they" apprecieted the informavicn L/3 nad passed to ‘then at
+various times in <he vast, specifically the repcrt of Julian Lopez’ exrrest,
+the proposed publication of the a:rest in the Guctenalan press, the report
+conceruing the letter of Rico Galan end the Crozco afcir, jbut they were
+frankly perflexed with regaré to the so.rce of such sensitive inforastion.
+L/3 told Xowton that he explained to L/2 that he had exce ent Central ine-
+rican contacts,as well as ‘.exican sources in good positions, who coule fur-
+nish suck anformevion witout naming anyone. He tcld 1/2 that he had no in-
+tention of jeopardising bis business ccntacts by revealing their isentity,
+and os felt that wh-t he bad done was in the interest of #BALKLN ang the _
+revolution. and thet L/2 ane bis friends shoild uot lock ice horse in the
+mouth cnd see spies behind every blade of xgzizz crass, just becasue taey
+thenselves had no capability to cheek out his reports. |
+
+3. 1/3 then tcld novton that 1/2 asked directly aboot "el Griego™ snd. his
+relaiicuship to 1/3. 1/3 stated that he feigned surprise jand asked fitat
+Gréek", acding that be knew several Creeks in Gu:temala, Yenezuela and he-
+xico. L/2 clarified by stating thut he meant the Greek in roduced to bin
+
+_ BS Cory
+
+~
+1
+ta cep entreaties en
+ie ~ 2. ™~ :
+
+Dy Rodolfo reyes. L/3 then excl-imed: "Ch, you tean se“or Harrisi" to
+
+woich Lfe replieé m th fiirmative. L/3 then exclained that ne felt that
+sr. Earris was a nizh-minded revolutionary with bicja level ccntactw taroigh—
+out the world davelored vunrotch jis cusiness exaxrucxeg relationsnics who hea
+helped hin a crest Ceal over the past tuo years bota financially jand moraily
+ad toes asxed L/e .n20 2: ne wud. in--:. stlenel business, to dich L/2
+repiled that he mew practically rotbing, L/3 tole +owtcn that He then
+closed in wita a scsewhat elecorate explanation of now international pusie
+nessmen ecouire valutable bits of iuteeligence with trying as a result of
+the sexsitive relavi:aship they dezelicp with political personalities in
+various governnents. i/3 stated to “owton toast he felt L/2 was impressed
+
+.-_-_-.--__. ... -favorably_with his_explanction, sinc: he finally stated that in reality_
+
+"they" (meaning nicself, Sersio Martinez, Ismail Susrez de la Faz and
+Cepeda), the Consejo iupericr de la cnbajada" had nothing against sr. Harris
+but sinply that they did not iknow @nouga about hin. L/2 then stated that
+
+L/3 aust realize that the revolution was surroundéed by provocateurs and
+that when they heve the least suspicions that they xust put on "tue amber
+light" of caution. L/3 then stated thet his ceclings with sr. Harris were
+sensitive hish-Level business negotievions for the srocuremens of sulpaur
+and that he coule produce docuzsnts to prove tuis. i/2 replied thatthis |
+was not at all necessary and that it vas simply just a question of <nowing
+a little more about the sources available to L/3 and abou: the "Greek". L/3
+coniuded with a statement that i/2 must in tae last analysis weigh the en-
+tire affair in terms of whether L/3 in fact had ever done anyt:\ing ageinst
+the revolution. i/2 replied without hesitation that everyone felt that L/3
+had always acted in good faith and h-d the best of intentiogs. It was simpl
+“that they felt that L/3 might have become a victim of a provocateur without
+realizing it. :
+
+4. L/2 then stated that he had no objection to giving L/4 an entry perait
+but he hozed that 1/3 was not just trying to solve a domestic: problem by
+sending her back to her mother. L/3 replied that there was in fact a serious
+domestic problem snd confessed th t he had had an affair with another woman -
+which L/4 had disccvered but he felt tais was a very personal problem about _
+which 1/2 should not be concerned. L/2 replied that he asreed with this and
+was concerned sizply avout the child whe he felt L/a shoukd be ‘pernitted
+
+_ to take with ber. 1/3 tcld Rowton that he finally conceded to 1/2 that per-
+
+haps he was right and that he should te more considerate of L/4 and perait
+her to take the child to .iavana. L/3 told Rowton that the ngetine with L/2
+ended on a rather cordial note end that be had the impression that 1/2 would
+grant L/4 the re-entry permit without furcher deaday. |
+
+14-00000 J
+
+~ ~
+25 7 ebruary 1963 |
+
+Subject: LintiG/4 Report of Conversaticn with EIRCNG/2.
+
+1. LIADLG/S reported to Rowton at 1045 on 24 Pebruary,1962,. thé¢ she
+had again spcken to LiR=G/2 about her entry sernit to returr td Havana.
+Sane epresred cepressed and besan the conversation stating thst she was
+"fed up” (rabta) with the LIkI.G office, explaining that she felt that
+she hed teen treated very unfairly 2nd shabdily, particularly b¥ LIRING/2.
+Ske staced thet she nad waited for several hours to see LininG/2 on the
+mronin: of 23 february inside the preaises of the LIKING offices Sut had
+finally to ieave after only e few viords of conversation with him. she
+~———-— - —---—-related that—Li:iiG/2_end iTkIG/O_were cecupied in conversation with
+
+Eugenia Cleuin(whe had recently returned from a three-nonths stay in
+havena with he sister iarcela) exrd she did not feel it proper to inter-
+rupt to <sk about her pernit to return to Cuba. shen she finally tutton- .
+boled iIsiiG/2, he said that he would rather talx to her the follewing -
+morning - etout 1000, since it was Saturazcday, explaining that he was very
+busy with a numter of difficult tases. : : .
+
+2. RING/& continued that when she returned to his office ‘about 4015 the
+following sornirng ( 24 February) she again hsd to wait about 15 -inutes
+before fincéing LIni:G/2 alone. ‘To her annoyance he again brushed ter off,
+stating that se still did not h-ve @ final arswer since the matter hud not
+as yet been taxen ur by the "consejo supericr” of the estabiishnent. 1/2
+continueé thet he acped te have sone sort d decision dy honday and asked
+L/4 to see ain again. L/4 stated to Rowton that she could uot ccntain her-
+feelizss ayy longer and exploded in a burst of inveetive again the LIXING:
+office, accusing thes anong other things of givics visas to all sorts of
+hippies ané delinquents and making her wait on pihs end néedles ‘wien she
+hac a right to return. L/& then staved thet Just as she was leaving, she
+turned to i/2 and said:"Ch, I forget to tell you, dut I sanpaged to see the
+"Greeke'" L/4 tolé Rowton that at this L/2 cane sudcenly back to life and
+invited her ints his office again, closing the door and ushering her to
+“",° " “" “"q ehair. She then stzted that she had telephoned "the Creek" (Rowton) on
+the pretext thet she. wanted him to buy some jewelry for her on bis next
+trip to Switzerland and succeeded in having coffee with ain at Sanborns.
+She continued that in the course of conversaticn she learned that his tele-
+phone is actually an answering se-vice and hence o;erates 24 hours .er day,
+and that he is interested in buyinr gulphur in sexico and jthat bis principal
+client .is the Greek saipowner, Nierehos. She then showed 1/2 a natchbox on
+woich the Greek had written the neme iiarclios in both Greek and 2nglish
+
+: }
+
+e
+
+Setar Het cenenene
+
+meee neeancemeegbaen
+
+2
+eed
+14-00000
+
+a 20.
+
+i
+
+|
+
+|
+__ kecording to L/4, 1/2 snatched up the natch-box with expressicns of appre-
+ciation, ané continued to listen with interest. 1/4 ccntirued that; the
+Greek expleined to her the difficulties and complexities o? working with \
+the Mexicans in procuring sulphur and csther critical products, but ‘she
+confessed to 1/2 that she chew nothin: about’ such matters and ‘felt very
+confuded. she commented, however, that the Greek appeared quite relaxed and
+willing to enswer her questions. Sne acded that shen she turned the conver-
+saticn on Cuda, the Greex rezlied chet he was interested neturelly ‘as a
+geod revolutionary, but fransly was very disappointed ("decerpcicnedo") at
+the treatmext received by the LIZING officials he had aet, including 1/2.
+
+script, since she pretended to de curicus about the spellizs of ‘of name.
+
+i
+__.  __.._l1 f4_continued--that- the-Greex -eed_commerved that—he-had many dealings with”
+, foreiga officials in his norz;1 busiress operaticrs cut had never enccuntere¢
+
+-
+
+Pe x . nd Pa sa . wh -
+the discourtesy shown by 12 -%-4 af ftanene, who ais SVL enews uo veLe-
+
+phone calls. L/4 conluéed wita a statedert that she felt tae Greek was no
+lenger interested in Cuba and assumed teat he had obteinsad whatever, infor-
+
+nation he needed from other sources. .-
+
+3. LIkIKG/4 then asked L/2 whether he needed any core infornaticn since she
+
+might be seeing the Greek once more before he left for curope again. L/e
+
+replied vh:t he appreciated what she had already obtained ard added that he
+
+felt it wise in these cases to get to know the person "nore and nore” before 5
+meki:g a judzenent. 1/4 told Jowton that at this poimt she could not refrain
+
+from the outburst:" Sut you have known ne for several years, and you ‘still
+
+cant make up your ming. How mi mch tine dv you need to rigure taings out™. in
+
+She told Rowton that 1/2 just smiled at this and again asked to be given
+
+until Monday for the final answer re the permissicn to return. i
+
+4, LIRIEG/% then told Rowton that as she vas leaving the pre=isee,she stoppet
+briefly to chat with Jorrin. Zhe latter appeared genuinely surprised that
+LISiNG/& had not as yet been granted her permit. shen she commented that
+probably L/2 had to wait for a reply frca Havana, Jorrin exclaimed:" Ko,
+that's not probable, since he did not send any cable on you; otherwise I
+
+_a dispatch which he wculd not know about, but he doubted that in view of
+
+the time element involved. Jozrrfn then cocmented thet"everytaing"hed changed
+since L/4 had left her job, explaining that now all. confidential papers,
+
+not only from L/2's oofice but also from 1/9, the Cocserical “Sectiog, ‘and
+fron “Luna's oifice" were handled by one person rather than ab} j previously
+
+by each office, (L/4 commented to Rowton that she bad never negra of a per- -
+
+son by the nese of Luna) and that things in generals hed been| ti ghtened up
+froz a security standpoint. t : .
+
+.
+
+i
+4a
+
+would know". He added as an afterthought taat possibly ne could have sent Sree
+14-0000
+
+a enaotic®. ~-econc icalix.a cisaster—
+
+5
+
+Subject: Carnes Lezade Statments to LIXING/3 re trip.
+
+lL. LIKING/3 re;orted to aovtsn at 2130 on 19/2/68 that Carzen Lozada
+had telephoned hiz about Ct3o that mornin: and that he hed seen Her
+again et her request. Cn t2i3 occasicn he found her relatively jeozposed
+and quite coherent as cocrered te their first aesting since her return.
+‘
+2. L/3 reported tnet she stated thet tre situation in Xevena was:
+
+ay
+
+h-no-rice—on-the-rarzet, cescline
+rationing ( & gallons per zonth for ordinary cars and 20 for larger)
+f
+
+strictly enforced and volice contrel Shrutal®. Sha etotoa thee ott
+Havana airport everything is searched even of Mexicans eas terself and
+shat can be tazxen for perscnsl reasons is recoved on the pretext of uo
+
+having it "checked".
+
+"3. Cornen Lozada stated specif cally to L/3 that she hed heard strong
+_ Pumors in =
+because of
+that sugar procuctiong would feli Zar below last year's firure, ;cssibly
+exceedins 4,0CC,COO tons ty only a fraction. Jad fertilizer p.6.9- 0.0 +00 ve 54
+
+wext is blamed but the general feelins is that it is rather bee menszenent
+
+i
+'s econozic policies. it was also rumored
+
+‘and Fidei's advisers are tazing the Slane.
+
+AR, Carmen also resorted that she had heard "cconfirzed" re:orts that César.
+Montes is no lonser leeder cf the Gustenalan revolucion, clthoughn, she
+could aot say who had replaced hic.
+
+i
+~ ~ | 10
+i
+19 rebruary 1966
+Subject: : LIRIGG/4 Rezcrt of Conversaticn with ichexexdfa ( das
+
+_ Suarez de la faz). . i |
+i
+
+sted to Zovton at 1000 on 19/2/58 at the Tica atiste
+
+café thet she nsé met with schecenc{2 for abseut one nour on 17 Fe5- .
+
+ruary at a sz2ll coffee shop off calle Fachuca in Colenia dondess. Sbe
+
+explained that ste had telepnoned cctecendfa fromthe hone of her 2riend
+
+Blanca Fefia ce anand and arranged to meet nim avout 1730 eat 3 nesrby corner.
+
+en en nn mann ns Be ETE TRG/4 stated tret Schexenéfe-w2s-cordial-as usual end-telé-ker-that
+he hoped - loocxeé forward- t. seeing aer again whenever she felt sae could
+
+Zo out with hin for lunch on dinner, 2 pered her occan of hor trin te
+
+Hevara and she informed ainthat she tored to leave on the 23 7ebruery
+flight. Echemendfia asked if she tnooucat she rcisht have difficulty re-
+turning to Mexico, to which L/4 replied in the negative, commenting thet
+in the past neitser the Hexicans nor the Cuvans nad given her ar~ trouble.
+3. according to 2/4, Zehenendia then queried har in scze ives ‘ebout how
+LizizS/3 was Going, his tusiness in Chiapas, where they sere living, and
+what his plens were. Sane replied in as matter-a-fact «az as possitle,al-
+iegics that L/3 was selling his painvicgs and doing well ani business.
+
+4. Schenendfa then commerted that the LIAING office leceils bac commented
+re L/3 thet altbough they appreciated the infornetion be nad passed to thex
+they ¢id not have the soirces end cetzils enc hence had to view taem with
+suspicion. Echerendia apclosized to £48 LinIN 7/4 for beving te say this
+
+(me da mucha vera) but he felt obliceé to pass it alons to her. =e added
+that doth Havana and LIsin? are accustomed to set sources glong witao the
+reports turned in tc then and always are uneasy woen these lere lecxing.
+
+He agreed with 1/4 that i/3 had acted in good faith, but also defended the
+position of the sicinG office which he said was surrounded py prevactions
+ang infiltraticns. -_ ee rr meron cs oe Saf pro rrr rs nee ae
+
+{ ©
+
+5. 1/4 told Ko-tcn that she did not tell L/3 about this re Kavous with
+Echezendfa ( whese a tenticns to L/4 iz the past have nade /i/3 -perticularly
+jeeloas and annoyed) since she did not want to disturb hias LI2i.G/3,
+however, reported to owton at about 2100 the previous evening (12/2/68)
+
+in an obviously irritated tone thet dy.pure counce he had geen “achemendfa
+and LISiNG/4 toresber at a coffee siop-about 1800 on 17/2/48. hea xowton a
+
+3
+a
+!
+i
+
+explained that te had known of and eprroved of the neetias jbeforetand,
+11ai:.3/3 calzed down and shruvemed it off. : Mala ; cro
+
+14-0000
+
+4. LIZDIG/4 signed contract with Rowton (alics) effective 15 Pebrue
+
+thro-sh 30 april,%968, provicing payment for inforneticn end services.
+No obligations specified ctrer than finencial{total 3750.26! for period
+specified). 11:
+gan" which was used in contrect and receipts for funds. |
+
+G/4 also sismed acxnowlz@serent of elies "Harla zerra-
+
+i
+all7 scheduled for 16 Fetruery 1966, sill
+
+2. L/& deparcure wich orizin
+be delayed until followins Fridzgx to pernit intensive cozrzo,and security
+
+trainins, and strencthen backstop for objective of ¢ - Crif2 Fetruary
+
+LIRING/2 told i/4 that he sould issue perzit to return en¢,/in expression
+t
+
+apparently genuine sympathy, urced ner take trin end mereini tehar> rhs
+
+belonged". Cz corning 13 February Ichenendia ( Iszeil inuerez de la Faz)
+
+_ who net L/4 by chance inside ilXIng compound remarked b+ aazp7 to learn
+she going back here for a trip and then added "ge back
+invited her to lunch or dinner out i/4 felt iz wise to turn kin Gown first
+time. They bad lunch insite 1121°5 dining rooz. On Zovtsn sucsesticn she
+will, tovever, accent for outside lunh so sounc hir out farther on nis
+reaction to her return. |
+
+stay2. Ze then
+
+3. Situltaneously in order build up conviction in minds LIZING officials
+that L/S returnizs becasue of nerital proble= with LI&=:¢/3 shied she
+herself stste@ tc owtcn that F reveal tc 2n¥one), LIaluG/3.—
+talked with LIRIG/2 in his office 13 February (at zonext L/S elsewhere
+im LI&IKG cffices) exd pretexded to have just léerned of L/4's request for
+perzission to return. L/3 in arery tone allezed that he eoulé not uxcder-
+stend why L/4 would went to return, that he hed treated her ‘as well es he -
+could, and that in er; case he would not per=it her to taxe their seushter.
+LIRIIC/2 although obviously scnewnat endarassed took L/&'s part anc urged
+I/3 to reconsider erd cive perzission to L/S te take dauracer alone since
+she would be reluctaxt to leave as a "good nother". L/2 went so far as ;
+i. . to state that if L/3 insisted it would be tantacount to ” tecknafl” against
+LIRING/4. L/2 continued thet he felt obliced as a LINING cf cial; to grant
+LIRING/4 permission to return but be did not want to odlice her to éepart
+without her child. LIRILG/3 told Rowton that he did not give! in ana left
+LIRING/2 with the izpressicn thet his mind was xade up reg ing the
+child. CS COPY it
+
+& LIR:NG/4, who was not witting of the above action of L1-IiG/3, laccepted ,
+
+pe
+
+® wt : oa
+
+oA EE TE Pa
+
+N
+
+‘it later wren inf Ske
+agreed tret child gould not =e properly taxen care of at =otner’s
+
+hone in Cantiazo becas : neither
+parent presert, that her jerarture witsout chiid would pernit frequent
+
+i
+-. ~ }
+2+
+
+by Scston as being in ter best interest,
+
+a
+1
+
+Pa
+we of short supply of essential feos wits
+7
+
+corresperience wits L/3, ené rrovide excellent pretext for resvurn} to
+tr
+
+Mexico (to convince i/3 te
+
+sae established.
+
+5. For he
+ont
+
+paravic:
+
+whereas i
+
+can be petched up and that
+releticns. 3:
+do nothings r r ray
+betiy best control that caz be hered fer in her operaticnsl werz}
+
+fe)
+
+2
+a
+6. Following lengthy neetizes with.1/%, xowton nas eveleved fol to:
+
+i
+wants cersenext s2-
+clertble’,
+
+their dexestic difficulties
+
+can resune rerzal sarital
+
+hat she would remain loyai ts Sim and
+for ner. (Rewton feels 2
+
+operationz1 pien with her sopreval: an :
+1
+
+(a)
+
+(>)
+
+(c)
+
+(a)
+
+LIAILC/4 on arriv:
+
+re-sstablish contact «ith and assess
+tae followize cox .
+
+cts: -|
+
+tw
+
+(1) Fasiro 4br.
+(2) srnol and
+
+} Cariszei S
+) Capt Luis
+} Lel6é de la Torriente’
+( () Mercedes Kereles Lereverent.
+
+Tnese rersens will se referred to in 5/i messezes by nunter .
+only for securitr reasons. i/S ‘mows that numbers tiree 2nd five
+have alrescy exrressed strona anti-rivcluticzary sentinexts and
+will attenpt discreetly to determine present attituce and access.
+
+Discrest e2forts will be =sae learn of efficiency and mccus
+opererci of DSS 3G/% insisted cn tais for heriowr pr
+tection since xsostcn allezec that he could not vrovice her with
+necessery brielins. She feels conficent that she can ret at
+lezst sone basic ésta from issiro abreu. L/4 cocnented that she
+alzost certain the [SE ée cecizluated ty a "fcreish service™
+since she certain thas Cubans tuemselves incapble of efficient
+and secure operetions.
+
+when L/S feels ste sas reached point with any of above what she. - —-- -- --
+can aax2 sone sort of "desl" (for instance assistance to then |
+from outside in excnanse for selp to her in finding "interesting
+position” curiuc ter forced stay there). she will notify Soxton
+by S/é and croceed further or withdrae as per instfuctions.
+
+In event 1/4 meets otner persons who zisht prove recruitabdle
+
+she will ‘cention their names maz acdress and positicn in text
+
+of orea letter to LIsE:G/3 aldins that they send their recards
+aod need, sozething =o availsdie in Gudea. The perso! thus cen-
+tioned will be referréd to in S// by next consecutive suxbder in
+subsequent messs:e. xowton as stressei that he interested only
+in persons in excellent positi.ns and cenceivably recrsitabdle.
+the list should therefore not'de exhaustive.
+
+*
+
+‘and at
+
+f
+
+1
+i
+i
+t
+
+(e) LIRING/S will have two chancels for 3/W#. First to "Lic.
+Antonio Scxce " wits false a dress and sent throw
+oren mail, 3/3 sent ty hand thro:
+abrcu to ad ty hand by Jorrin to
+Sacubaya apartcoant, or given » te sone frisnd traveling
+to Kexico. In first case all ietcters tailed, except: the frist,
+will contain S/s ressase; ic seccné esse ail letters aitk en~
+velope tearing "Coicnia Concesa™ after eddress will!be for Zow-
+ton and have S/i. 1/+ premises sent several letters) so L/S
+witfout sessazes as scon as sh2 arrives to test channel.
+
+(gf) ¢ is: ine messeres for L/4 will be letters from
+i ini iore Fs * and "arte" and either band
+nrourh open mail. ; :
+:
+
+iro
+
+!
+(& The following simals have been ecreed cn for purpose specified:
+(1) Sexser signel will > cinguat in open
+text to 1/3. Ia ell: will mention reme.
+In event hostile control chile. will Me referrea to by
+Hicsaane, OF Cnuuearanes sap Ded LEY mUYE yy ene
+(2) "all my B-12 complex vitsmins-are gone" indicetes need
+nev cerdon. beve no nore colosne thst evervoue
+liked so cuca" indicetes :.ced for developer. '
+
+(3) Yew carbc2 sext to LIZINS/3 will be reccgnized by simple
+uredint avtrisuted to daughter and sent as
+expression of senvinsxt oy LIRING/3. *
+
+' :
+
+cticn in event she has reports
+
+2 S/4 destroy S/w supplies, end
+
+take refuge “in Nexican Zmbassy in hope tzat she would be able communicate
+
+with LIZINS/3 ( she cid not asx nor dict Zcwton volunteer now she could
+notify tin since she assumes Zowton would renain in contiauing contact
+
+LIRL.G/3). i Le
+
+'
+
+8. LizitG/4 encoura-ed by attidute ana sympathy shown by LIRING/2 end
+
+Echemaniia re ner reneining in Cuba, but sne meade it clear to Rowton that
+
+she would not do anything jeopardize her residence pernit in Kexico or
+
+forfeit the time eccuculeted,unless aostor could arrange have Mexican
+
+ply her que ry re dest course of
+t, nowton advised Lint
+
+ambassaior Sn Savena renew her BaxEXXE visa and assure her. Ske ageed that
+
+beat apzroach would be return efter tire up to attezpt bring; child 5
+
+het time rake new contract with xXowton providin; fori puabantees.
+Howton ezreed statics thet re not in pecsition fer many reasons,inciuding
+security, to make such commitments at this time. L/4 made iticlear to
+Rowton also taat she realizes that he rrobably cperating in alias and
+
+“4s affiliated with some sort of service or organization (this caze out
+
+during c¢iscussion of contract and acknowledcement of pseudonym waoich she
+did not want),but she stated bluntly that she did not want to know any
+gore abcut sowton than the little she already knew since "itl would de
+easier to face an icterrogation without betraying bin complepely”. .
+
+i
+i
+
+14-0009 -
+6S
+
+wo, : - . "49 February 41963 oo
+Subject: » LIREC/4 Report of Questicning by LIRING/2 re Rowton
+. ("The ureek"). | :
+
+1. at 1030 on 17 Fedruary,1963, LIHIUC/4 inforzed kowton that she had
+Gropped into the LiaiiG offices at about 1230 on 15 february and egein
+
+on the norning of the following day to check with iIRLiG/2 concerring
+-her entry permit for travel to Havana. Cn the first oceasioa LIRI:.G/2
+asked ker casually shether she had seen anything of the "Greek friend"
+lately. LIkLG/4 tcld nowton that she replied that she and LIkIiG/3 heard
+from him from time to time, mainly by telephone, and that he had invited
+her out cccasionally, out she,lIK-2.G/4, had turned hin down.
+
+wo durin the Unta mame nf AR Behrnary AOER,
+nO Oa =n? Tree OS wot, cea iia :
+
+DP Bn thn nen nea
+
+Linine/2 sew L/4 ezein on the precises and asked to not to leave until
+she ad seen him, since he wented to discuss something with her. ihen she ~
+finally saw him in his office some 30 cinutes later, he again asxed whether
+she had seen the "Greek", not mentioning Rowton by bis alias (Berris).
+Since 1/2 hed mentioned L/4's Greek friend whom he had met through Zedolfo
+Reyes on a previously occasion, LIni..6/4 felt she could not pretend -ot to
+know about whom be was talking. She therefore replied again that cccasiviai-
+ly she heard from Lin when he was on a trip to iiexico. LIK NG/2 asked
+waet L/4 thought of aim (the Greek), to which she replied that she fcund
+him pleasant and very generous ( bonéaéoso). L/2 replied, "Yes, but waat
+does thet generosity come from?" He thea added that he had ‘many question-
+merks concerning that person. He gave as an exazple the fact that shen he
+telephoned his numter on a holidey, 31 December or 1 cacuary, his "secre-
+tary" replied. It seened very strange, continued L/2, that ‘the Greek's
+telephone was manned et all times, night and dey, and even jon holidays.
+
+. He then further expressed doubts about where this person lived and how
+
+- he earned ois money, anc why be was so interested in Cuda.
+
+3- LInIiG/4 stated to Rowton that she was st first quite taken aback by
+this direct "interrogation", even thouch it was nace in a friendly tone,
+and replied as ‘best she could by ear. Sne stated that she fei the
+
+Greek was carryirg on lucrative business and lived in Zurope alobough she
+could not supply any specific answers. She was aware that he had brought
+some of LIXING/3's paintinces at an exceilent price and took hisgenerosity
+fpr granted since she enjoyed living froa the good businesd LIRING/3 ceained
+through bim. LIdLiG/4 then asked L/2 why he himself sietlag some checking
+‘of bis own, since she assumed the that LIHING cffice was pe of such
+
+t
+
+Sie sheep meee aes
+activity when che occesion aalleé for it. LIni!S/2 rezlied jthat he had
+too meny other things to do, anc anyway, when scxoething sndlled bad
+("apesta") he-keeps away from it. LIsILG/4, continuing to'taze the of-
+fensive, stated that on several occesicns inthe past the Greex hed invited
+her out but sce had not accepted, Sut that ste easily could accept cn the
+next occasion. azd pcssibly even obtain a rnoto of some. kad for L1EhG/2.
+L/2 replied thet a paoto would not de of any use, all he coulé Go with
+
+it being to send it to Havana. He acded that he uid many suspicions,parti-
+culerly as a result of the telechcne, but hac nevhing concrete "in his
+
+hands”, and that what te needed was "datos". 1
+
+4, LisliG/2 then asked 1/4 whether she knew when Xodolfo Reyes wes return-
+ing end where he would be living? she told aowton that she replied in the
+negative, commenting simply that she had hes#d that he. would be coving
+
+to Chile to work in the nations] ballet there. 1/2 returning again to the
+Greex wondered why he was so generous with gifts end entertainment. L/4”
+stated that she never looxec a gift herse in the south, to which LIxING/2
+replied that she aust be careful, if not for her own sake at least for the
+sake of LIKI:G/3 who, ‘he felt, was not treading on firm ground( “terreno
+firme"). L/4 adnitted that she was often worried about L/3's activities,
+about wrich he told her alnost nothing. L/2 then commented "Invesitisate
+the Greek and you'il feel better." (Averizua lo del Griego). He then added
+that taat supposed letter from Rico Gal4n was not considered autnextic,
+and also the case of Orozco definitely involved the police. Li. S
+she was awars thst 1/3 hed discussed both these cases with L/2, except
+that £/3 had not to ter knowledge zentioned the arrest of Crozcc, stated
+
+3/4,since
+
+that she felt L/3 had acted in ccxzpletely good faith, ¢ even though te might :
+
+have been somewhat inp&lsive ("precipitado”).
+
+5. LIRING/2, continuing the conversation, waich sosondine to L/4 lasted
+ever one hour,stated that both she and L/3 cust be careful of their con-
+tacts. re commented that he could not even go out on a date with a girl
+without thinking of the consequences. iie could go out pnce maybe, but
+
+he felt it wiser to dpop the contact for securit+ reasonsL/4 told xos#ton
+that she concluded the conversation with a promise to biicit as mich data
+from tae Greek as possible as soon as she could get touch with him.
+
+6. Rowton then tole L/4 that he felt relieved in fact that 1/2 had brought. ©
+
+this whole matter up, since it was better to face such) an.interrogation
+
+“here in Mexico rather than in ‘iavana witout the benefit of Rowtoa’s advice
+. and briefing. Ke then stated that he felt it essential: that, L/4. provide |
+
+1/2 with much- beeced ¢ answers to his quegions. To avoid the’ impression of
+
+wot
+
+specter ees an se
+
+\
+wegen
+
+{
+|
+‘ collusion, Rowton surgested that L/4 see 1/2 again and | ‘ask for itiowtca's
+telephone number, which she could alleged she could not re at howe and
+which she preferred uve be ask 1/3 Zev, bu créer not ty arguse bis sas-
+piciozrs. Cuce she odtained the nunzer she could alles ‘that she t-lepaoned
+~ - -.. . Rowtcn on some gretext ( provided if possitle by LIXINS/2 himself) ex
+manased to see nim at lunch a few @eys later. She could thgn report to -
+L/2 thet Kowtcn had told her that nis telerhone was actual ly an axseering ‘
+service and hence only zessazes were taker ercund the clock. He had a0
+need cf an office since he traveled in ané out so cften and bis business
+did not require an office with the acconpe-ying neadactes. L/4 would con-
+tinue that Rowton confided that he was working on sensitive deals to pur-
+chase Mexican sulpzur ( an expersive and Cifficult itex to procure arcywrere
+
+im the world at this tine ) and that his principal business connecti.n was
+with Stavros Kiarcos,the wealthy shipowner. His inverest in Cuba stezned |
+from Niarcos' desire to study the shipping possibilities there in the event
+
+the Lorthanericsn emoargo was lifeted. i |
+
+; 6. Rowton instructed 1/4 to commented to 1/2 that when she spoke of the
+
+: LIRL:S office, howton appeared very irritated and remarked that he vas |
+"“Gecepcionado" with the tre tment he had received from voth L/2 ené the
+commerical office. If i/é2 appeared surprised and curious about this, 1/4
+could continue that Sowton commented to her that he could not undersvand the
+cavalier manner in which the LIRiNGs did business. He cited the exazzle of
+at lecst three telephone cells he bad mace sone weeks previously tc oto
+I/2 end the commercial office, leavinf his name and telephone, ané that
+
+no one had had the courtesy to reply. 1/4 cculd then added that as « result
+Rowton wes aoncyed anchad decided to go directly to Eavana to get the info-
+mation he neéded on prospective business on behalf of er
+
+wer |
+
+- ese cope - - \wat 3. sore
+
+;
+
+14-00000
+
+th
+
+“ a ~ 12
+2 ;
+. . : : 10 February, 1966
+
+Sudject: Briefiing in Commusications end Security of LIRILNG/4.
+
+id
+
+1. During the cast four cays Rowton has had daily meetings with LIRING/S
+to-give her initial training in 5/a and discuss cbenzels of; cousunicaticna
+that micht te used securely and lorically by LIM: 6/4 and xowton. A"¢on-
+tract" to serve as & letter of understencing for both xXowton end LIRl.c/s
+was Grefted es a basis for present and fuvure colatoration. No reference
+
+0 NCFACT was sade or icplied, but xc.ton made it clear that he had "firexd:
+and colleagues” who were interested in intellicence coverage of FSH
+
+and woo would carry on his collaboration with L1#zii'G/S in the event of
+Rowton's death or unavailability.
+
+2. The first item discussed was a simple oven ende to Aactenstea nananne
+of interest eivnoer as targets or possible hostile elezents, so that L/4°
+cculd sention these perscns in the text of her 3/i correspondence witkost
+comprozising Lkerself. 4 list of the persons concerned vith Ghe code nezes
+is attached terewith. Lek G/4 understands thet these cede names will rst
+be used in o;en letters to LIXING/3 under any circocstarnces.
+
+3. As far as letter drors are concerned, Kowten instructed LIR21G/4 to
+send her S/i nessceges with innocent text cover to the following address:
+: Lic. Antonio Ponce Cortés
+
+Kultifaniliar Miguel Alenén 0-326
+México 12, D.F.
+
+using @ nceticcel return address thet could not be eas ily sraced, and crez—
+ping the letter in a public mailbox in the center of town. xXowton dia not
+‘give Lisi:G/4 an indicator for the cover text since it was understood tiat
+all ressazes, except the first, would ccntain an S/w zessage. LIAING/4 pro=
+mised to aail an innocent text letter as scon efter arrival as possible so
+that Rewt.n would have a g- od idea of the lenta of tine anvdaived in his
+receiving future letters.
+
+4 LIRiNC/4& was advised that she would receive S/. messages from xowton
+
+on: the paper backing of Seriographic designs ( aztee seals) being produced
+by LisiiG/3. The designs, prepared in the fcrm of greating wards, would :
+be auécressed to a thiré perty and contain a brief nesssge of greeting in
+
+* the hanéwriting of LIRIi:G/3 and woule be sent as an attachment to a rou-
+
+tine letter from LIKING/3 sent by hand or through the ifRING pouch. Both
+LIaI:.G/4 snd acwton agreed that open mail, since it would have to bear her
+true name. and ea-dress, would be both too risky and too jslow. In the un-
+likely event of di:covery,l/4 would have some say out, prieging that she
+
+a]
+t
+os
+
+im
+|
+
+- we! ee. et ; ‘2. . . _- -
+
+. . . . t
+
+bad nothing to é> with the messace end placing the blaze. én Isat 2/3.
+
+BI saving. . Terns: .
+. z a c € 2
+5. At subsequent neevings however, ZLIRING/S accepted th probatl long
+er, inveived in the
+
+Geclazs in receiving warscies, botl io and froc
+
+open sail and ai a that it would te necessary
+volded in sending et least sozec’ the messcges under cover of cor=al
+corresponience ts LIRIiG/3. She also agreed with Rowton that’ serding
+S/w on the back sf sericgrephic designs would ¢ecnstitute a pattern and
+might eftract urige attention. ;
+
+6. It was theref:re apreed that LIz...G/4 woulda also write S/w ic letters
+
+to LIRING/3 thst would be aand-carried to HNexico oy a 2rierd or seat in
+
+the pouch and Gelivered by Jorrin to ner Tacudcya address. iiowten structed
+LIRIVG/4 to insert"Colonia Condesa” in the aéiress on tue enveloze if
+
+the letter contained 3/w, ctherwise leave out this addition. Since Zodton
+would have a key te tre Caizada Tecusaya apartzent ne could cheek regularly
+for any letters that Jorrin 2i.at rave slipped under the door curing periods
+when LInlnG/3 mizat be absent from Mexico City.
+
+te take the ris in-
+
+?. At his meetine with LIRI:G/4 on 14/2/68 the following acditicnal signals
+were agreed on:
+
+(a) Danzer Signal : Cmisicn of name Zirzuni from open text. The
+child woule alway eferred to in regular
+correspondence with if G/3 by name. Ia e¥ent
+of hostile control, iI fe would refer to
+child as "hijita" or by sore cther endearing
+name, but refrain from using ter :irst name.
+
+(>) New Caron lieeded: te be indicated by the shrase "I need
+more vitacin B-12" or "I have run out of ny
+: 3-12 cozplex vitamins".
+’ (ce) Hew Developer Needed: " I have ren out of tiat nice cologne
+I brought with ne".
+
+'
+8. As far as incering S/# was concernéd, dowtor stated that if a cover
+letter from Lixi:S/3 contained the words "Chiaras” and“arte" it would in-
+dicate that an 5/* message was being forwarded in that letter.
+
+14-00000
+
+5
+
+“explainec thet cn 15, 1012/88 their mutual friend, Osrzen Molina, a &
+
+i id
+A: February , 1968 t.
+
+5
+!
+'
+i
+
+Report of Meeting with Carsen Lozada.
+
+Subject:
+
+4. At 2100 on 48/2/65 LInILC/3 reperted to Xe.tcn that se had met v
+Carmen Lozada at ebout 1130 co 17/2/62, at the square in Coyceén. :
+
+tacted Caraen Lo end bec learned that the latter :
+to return to hexico the followis Gay ( Prider, 16/2/62). Carmen Lezsda
+hed told her on ire phone te ¢ her regarcs to ter friend ( i 3/3)
+but to ask hin not to meet her at the airgport since she sould be accoa=
+
+panied by ter ceuzater and wicid be =et by Ser carents cn errivel in he - +
+
+xico. LixiiG/3 fore contacteé her through Carcen «olina on the
+
+morning of 17/2/S¢ snd made the date to meet her near her parents tcae.
+
+2. OD ccuiluucd euav as SOCK aS be Saw Uermen Lozada he imew et once tuat
+something unpleasext had Lepreced durizg ner visit to Havana. He toi dowtaa
+
+that shoe had ep .tly lost five or six pounds, was dressed in ea slovenly
+
+manner and geve of esrearance of a distraught verscn, aincest cn ite verze
+
+of insanity. ser cicter anc sequert conversation, often incoberent and
+
+half hysterical, ccnfirned ic =/3's zind thet she was suffering frcz severe
+strain and depression. L/3 told Rowton that he understoéd from her renarks
+
+that she hed fouré the Havana eirport, Savana, Cuba and tke Cubans in '
+general "detestable". Bhe excleined at cre point: "Cdio a esa isl2 xzicital'
+She added tact ste wes on the point of beconizcg an eneny of Cuba (volverse
+gusane). In the next breath, Lovever, she stated thet she ‘had to return
+
+"en pocos dfas" as soon as treatment had been arranged for azer daugsser,
+
+‘(suffering fron esthna). L/3, pretending to think that she had patct.
+
+up things with her husband,=sricgue, asked whether she had been recexciled
+and founé taat sre really loved her nusband after all. She eflaines, accor-
+ding tc 1/3, in <« calf hysterical voice that she hated ner husGand 2nd
+everything her recresented. |
+
+"3. L/3 continued taat despite is reprea.ed questions Caraen iozaca re-
+
+fused to give hin ¢etails of what actually had happened to her. She re~ a see
+peatedly stated tact she was uncer "intense, horrible pressure" thes she Se
+could not explain. snen L/3 ccumented that L/4 was preparing to return to
+
+Havana, Cermen Lozeca burst out again with "{ué horrible!" but again did .
+
+not explain. Im vies of Carner Lozada's obvious state of psycholozical
+
+‘end physical disintegration,iic..G/3 told Howton that he felt it best to
+
+terminate the mecticg at the first opportunity (about 163 and leave as
+gracefully as he could. He adied-that shen he left he lcokee back to f4e
+her standing in a ¢aze for a full five misutes before walking off
+
+ete ee nem me
+
+a
+
+nie eee bee
+
+ten - . 30 Jerver:,1°53
+
+Subject: LIGING/4 Report of letter fron Yaceiro, Vice Minister ”
+7 i}
+
+£ cducation. : |
+- 2. At 10CO om 30 canuary,1965, LIRING/& resorted to zowton © nat
+
+she hed seen Jorrin the vrevicus afternoon ari that be. nad told ter
+that te had been to ter azartcent the previ evenics tut bad failed
+to find Ser or 2Is1h6/3 in. He expleined tzat ir. Ferizelo,w#no was
+visitin= Mexico City, nad asked hin to deliver to LIziit/4 ax letter
+from their mutual friend, Dr. Maceira. Jorrin then save LIRING/& the
+letter.
+
+bah o4
+
+to
+
+2. LI-inG/& stated to Rowton thet the letter was sisnlv a request for
+gnoes for Maceira's chiia which coulé not be obtaineé in Cuba. LIBING/s
+commented that this was moly srotaer of a series ef such requests that
+Maceire and Figueroa cf the Ministry of iducation hac been makize to
+her since their last visit to Mexico. Ske had in the nest ignored the
+recuests since she felt she had done enoush 2nd could see no useful
+purpose in runnine around town as a purchasins arent, partaculazly when
+there was no guarantee that they would rei=surse her.
+
+3. Eowton suzgested that on this occasion, however, it indght prove worta-
+while, in view of Maricele's apsarently ispertant position in oavana and
+LIRINS/4's fortkconing tris. Ee sugested taat LIZz: Jf
+(about 69 pesos) and attezpt to celiver tsen sersonaily to haricelo; She
+coulé then invite hin to lunch or dixner in the hope of assessins his
+presert feelings toward the regize. LIZinS/4& recalled that Marinelo had
+been Eector of the University of Zavana and was a penber of the old guard
+comsunist party. She adésd that Jorrin had rentioned that Marinelo held
+Ambassadorial rank and «as serving at the rresenot tine in sone sort of
+internacional delegation. . : : i
+
+t
+e LIRGNG/4 also reported that she bad run isto an eld buben friend,
+
+- irate Ariznendi, on the street, end that the latter bad 5 given her her
+
+home phone ss 23-70-95. LIRiNG/& explained taat Arizmendi bad: married
+
+a Mexican psychiatrist and left Cuba some years back. . far 8 she knew
+Ariznendi was syzpathetic with tae Castro resine and on zore or less
+friendly terns with LIHING. Cn this cccasicn irizmendd Koxed with L/a
+
+about the inefficiency of the LIRING offeials, sayize ‘prt the only per-
+
+son she felt was doing a decent god was Cepeda. . -
+
+OS CaPy
+
+t
+t
+;
+
+14-00000
+
+}
+
+5. LIRINS/S also reporvea that sne hai written 2 snore ietter tu
+her negro sedical student friend, Yolanda, aud drorpied the letter,
+
+as requested by Rowton, in the ozen £2il ( to escertain the tine taxen
+to deliverrta¢ letter to Savana. LIXIIG/4 cave Tolarcda's full nase and
+
+adéress as: : i
+1
+Yolanda Diaz ‘
+t : Forverir 112 - Beste 12,
+entre Artilera y Souza
+Lawton :
+no Bel: 99-06-88. :
+
+14-0000
+
+: oe 1:
+. ~ | . wine
+i
+t
+1
+woe See nsey ay aaah be "a tdaiene ae
+| 1 *
+i . i omad
+ae i . ee
+oi cect eens fie i hme ioe tle te ence mee ee me cane ee ree om :
+1 ce eee . Ce eee eat _ j
+: / : i
+; / | ‘
+' t
+i
+. .
+bai |g *
+' a ° aq os Lain
+ot o a] iy
+Ls) [+] 2 o ; / 98
+ba » iP) Md i we
+a i a Cy
+3 tal
+-
+' 2 a
+* < : |
+q woe,
+t & a
+5 f-}
+]
+ee)
+4
+g
+
+BMAA-34484
+
+Identity:
+
+14,0000
+
+~ \
+
+GASSITEATION
+SECRET
+
+DISPATCH
+
+Chief, VOACRE
+
+SCL D:AUPED DEK
+[Ue K0@ woos
+
+Chie?, WH Divisio
+
+Chief of Station, Hexic City
+
+AGUATIC/TIRING-3 ™ LY RING-3 LIROSIN Deactivation ‘of Andio. Installation.
+acoe aout aA
+
+Action Required: Hone : : ;
+Reference: HHMA-31821, dtd 3 April 1967.
+
+1. Om 15 April 1968, cirea 1410 hours, the audio installation
+described in reference was deactivated. The SPT™2A vas recovered
+by Walter W. CORNEURY and returned to Station stock. The LP equip-
+ment, an SPR-2A and UHER 4000 L, will also be returned to Station
+stock. :
+
+“lJenze” on the target apartment, it was felt the SPT-2A carrier
+eurrent transaitter would have to be removed because of its shallow
+concealment. To continue the assessment of target personalities.
+however, we wanted to wait until almost the last minute. ‘The week
+of 15 April 1968 vas selected as an appropriate time by Waliace B.
+ROZTON, who is in contact with the targets. :
+
+2. Inasmuch as LIRING-3 and LIRING-4 vere terminating their
+
+3. At about 1300 hours, 15 April 1968, Walter ¥. CORKBURY and
+Giiver b&b. CimOCH enieréd tae LP and were greeted by LIRGSIG wno kev
+we were coming but did not know why. A check of the audio device
+revealed that LIBING-4 and a young (teen-age) male relative were in
+the target. This was as expected. At 1330 hours, LIRING-< left.
+the apartwent, alone, for a luncheon date with ROWTON. She returned
+& few minutes later aad made the wale relative accompany er. (This
+was obviously at the insistence of 20¥TON.) The telephone number of
+the target apartment was tried a few minutes after their departure
+and was not answered, again as expected. At 1400 hours a telephone
+@all was received in the LP from the Station as a relay free ROWTON
+that the targets were safely ensconsed for at least the next hour.
+(It was known that LIRING-3 was out of the city.) Another ‘telephone
+eall to target with no answer, and CORNBURY entered the target
+
+ah.
+14-00000
+
+- CONTINUATION OF
+DISPATCH
+
+:
+
+/ apartment using keys provided by ROTON. The wall plate was removed
+- the AC lines to the SPT~2A ciipped off close to the plug, the 372A
+_ easily removed, the wall plato refastened, and the target azartzent
+wacated. Total time about tvo minutes. CORNBURY and CI#OCH left
+the area immediately. There were no security prot!zas noted at any
+4. The LP equipsent will be removed by LIROS(S and returaed
+to stock on 17 April 1968. . |
+3. Please note that no ADP sheet has been subsitied with thiw:
+report. a i -
+
+for/¥illard C. CORTIS
+
+wae
+14.0000
+
+>” Ci hits & ~F
+
+Cable Sec aevamay Dsssrwamanicey C. ED VESSAGE Tom Comes / 7 BSG BNC OR DATALS - SEEN BY
+i
+
+{¥en F tled in} =o
+
+ADvaMCE COPY anes DJ sconce
+
+¢ iP
+SECRET 1518152 4P2 68 SITE Metco ciTy s2as1fAreta9 1298
+
+Cc
+
+REFS: A. MEXICO CITY 51it ( , ysres) . j
+i
+
+SUATEMALA CITY INFO DIRECTOR, TESUCISALPA
+
+B. MEXICO CITY 5141 (LU, ge 23)
+
+de UPON ROTORS ThOG SHOAL UncnT aves anbenee Os MUSIUN ADS
+
+i
+
+GIVEN SEALED LETTER FROM LIRING-3 BY LIRING-4. LETTER INDICATED
+
+A. LIRING-3 DEPARTURE FOR GUATEMALA AND HONDURAS DELAYED
+WHEN FRANCISCO LARA ACCIDENTALLY SHOT SELF IN ANKLE WHILE CLEANING
+GUN. LARA ANXIOUS NEWS OF ACCIDENT NOT REACH EARS OF FAR AS FAR
+MEMBERS FORBIODEN CARRY WEAFORS iK AEXICG. : ;
+
+B. LIRING-3 DEPARTED 18 APRIL ¥ITH LARA AND OTHER SuAT
+WHO NEMBER YON SOSA FACTION. LIRING-3 STATED IN LETTER THIS GUAT .
+INSISTENT HE TALK DIRECTLY ¥iITH YON SOSA. 7 ,
+
+C. LIRINS-3 AND LARA WILL PROBABLY VISIT SAN SALVADOR IN
+
+t
+
+ADDITION SYATENALA AND HONDURAS. { i
+
+2. PE® LIRING-4 OTHER GUAT WHO INTRODUCED TO LIRINS-3 BY LARA
+
+AND IS PROBABLY RODOLFO SANDOVAL CALLED AT HER APARTHENT Ss APRIL
+LOOKING FOR LIRING-3 ¥VHO OUT. SANDOVAL STATED HE HAD TO TALK TO :
+LIRINS-3 IN PRIVATE AS DID NOT WANT LARA LISTEN TO CONVERSATION. Len
+
+' .
+SANDOVAL IDENTIFIED SELF AS MEMBER SOSA FACTION. EXPLAINED THAT.
+
+n
+
+14-00000
+
+nee nines tens ae
+
+CABLE SECRETARUT DissiemaTon CLASS 7 HED VIESSAGE Tota Comes ROUTING AND/OR DeTULS - SEON BY
+
+FEO SPAT OPED ; SECRET
+
+{Weren Fetes tr}
+
+i
+ew. ar. ze | cassev ro ms so.
+__ Oe . 4
+i a*F TO FE XO i
+i En
+
+Dissem geen ene en Tirer to seancn Destroy £5 $6.5
+
+PaGE 2 MEXICO CITY 5225 SECRET
+ALTHOUGH SOSA SRCUP AND FAR NCW GENERALLY WORKINS TOGETHER THERE
+WERE STILL MaNY THINGS “KEPT ON A COMPARTMENTED BASIS." ALTHOUGH
+- bin ikG-S vid sUT SE°ER TO SANDOVAL IN HIS LETTER TO ROWTON, HE
+MENTIONED THAT HE HAD "LONG TALK” BEFORE LEAVING.
+
+3. LIRING-3 WELL KEEP SOWTON ABREAST OF FURTHER DEVELOPMENTS = -
+VIA ACCOMMODATION ADDRESS IN MEXICO CITY. WILL ADVISE,
+SECRET
+: BT :
+
+1
+i
+
+i
+i
+
+‘
+|
+L
+q
+
+14-0000
+
+note nee as an . von ah 1 Lite 3
+
+ve bat. 8 OF - . wet atin _
+
+| Chisf ef Statice, Gmtamla City coactee eae
+
+| _. Ghdef, Wouters Eemieaphere Rivisics | as!
+de ._ Gish of tation, Eomies City ae ea
+
+~ edi-i ag MERU _Conteeta rath, Seatemalaa Syvelutiovarica ta: Fentee ii
+
+‘
+
+sot tor pequired: Hese; FYE . iy
+Reference : Berice City-5600, dated 23 Kuret 19965
+
+1. On 23 ont 25 Exreh 1983, the Baloo City Ptaties riaaed
+: photo ceveruge om filic Leram 64, tho sddregs wheres eoreral Gute.
+i Balan, tesledieg Praaciese LAMA Sarries, were otariag ta Korieo,
+i ezeording to LIRTBe-3. Coverage of this address ied. to photo
+. WVVOCEGR C4 O22 ASEH ES OD, ATIEOT RIZE VER WER TERE nee
+eppeared to COEF OEAES 5
+
+&. Gives LINIES-3 to met aveiladle at the premsat tine to
+igeatify any of the perenag in ths pistograpa:, tha Siatien «+
+aosidei to make then available to tay Guatemala Gitp Station fer
+peasible ideatificatices.
+
+Pistribation: . i
+2- WS, Gotemlea City v/att es ae
+"2 © C/mip eo/att |
+
+wae
+
+1400000
+s
+
+Caace Secrets ay OSSEMINATION ~ 0 SPIED MESSAGE F Tota. COMES it ' ING AND/OR MTHALS - SEER SY
+
+PERSON UNIT BS> ED SECRET cose ome pt t
+
+(When Fied inf
+
+rere
+
+a a aa REPSODLC TON OF THS COPY PHO. RITES
+: uaencom Pau []aore = =
+3 moo. O ves DO xo al ~psith it
+
+Gass TO HH - 3 5 : ts
+wee . ° > { 4 Ha
+
+i REF TO FILE WO i ”
+
+: 2¢ * 5 ene wo eer to eaxcn DI Ose.
+
+ta
+
+SECRET 26@232 APR 68 CITE MEXICO CITY 5141 Ffeeie 26252
+GUATEXALA CITY INFO DIRECTCR, TEGUCIGAL? * fo—
+i
+
+I
+
+REF: aEXICO CITY 5111 GS8SIGD) 4
+
+i * {
+
+: 1. ON 5 APRIL 68 STATIGN RECEIVED PROTOGRAPHIC COPIES OF
+
+"GUATEMALAN PASSPORT WHICH LIRING-3 SAID FRANCISCO LARA WOULD! USE
+TO ESTER HONGURAS FROM GUATEMALA. COPIES INDICATE THERE WAS DIS-
+CREFENSY IN WANE ORIGINALLY REPORTED IN REF ANG NAME ON PASSPORT.
+CORRECT NAME IS JOSE MARIA OLIVA CARRANZA, ORDINARY GUTENALAN
+PASSPORT NUNBER 134825 SERIE)D REGISTRY NUMBER ¢2743 ISSUED 27 MAY
+1963 18 GUATEMALA CITY. OLIVA EORN SAN FELIPE, RETALHULEU ow
+9 FEB 1955. ' .
+
+2. OTHER DOCUMENTS PHOTOGRAPHED iWCLUDE MILITARY INSCRIPTION
+IN GUATEMALAN ARSY, CARD NUMEZR 45259, BIRTH CERTIFICATE NUMBER
+2825671, CEDULA DE VECINDAD 287165 AND ELECTIRON CARD 127817.
+3. THESE DOCUMENTS PHOTOGRAPHED BY LIRING-3 WHEN THEY PASSED
+TO HI BY FRANCISCO LARA TO USE IN MAKING FALSE MEXICAN DOCUMENTA-
+_ TION. POUCHING COPIES OF DOCUMENTS TO ADDRESSEES.
+
+4 wee ee
+
+i
+
+SECRET ; ;
+Br oo ‘ =
+ooh,
+
+ie
+
+SECRET | jae
+|
+
+14-00000
+
+tert cna cae NEN Nt ttt St Yn tReet
+
+Chief of Station, Guatesnla city iGG
+jéctern Healsphere Divialos
+Chict” ef Statios, Tegucigalpa
+
+Chief of Btarres Hoxice City
+
+CO -Gariee'Sonbo 8 Delmar and Francisco Adalberte LARA Eririce.
+eee
+
+: !
+: Hexico Citye-5lll, dated 4 April 1968 |
+J
+
+1. Attached for the Addreassces’ inferuation asé retention
+ere cepies of the docuneatation eited in tho eo above.
+
+Y
+
+2. Biecas note baad Poon * Ban ttcmes Se ime od
+iO iases spt/Eransisco%eLaras: Histo gol tecnTvA Castanods
+
+W, salsacinto’e RARGEL Cervastes, tr te anes
+
+@2 11: Guatemala ¢
+
+= Ai Mexico # for/Uillara C. CURTIS
+
+Cce: Propesser .
+
+At F fanccses Ads Vher te
+
+LALK Btrries .
+C2e/- 32057 J.
+
+tachment :
+4s stated in Paregraph 1
+
+Distribution: . ts cory co
+= COS, Guatenala City w/att ray~ ce
+C/vaD wv/att . .
+hho gts: 21 = COS, Tegucigalpa v/att
+yee pe
+
+STIG « EET , PNAS BE TEE RL TOSI MEST SOON Se] CPP drt |
+
+DIRECCICN GRAL. DE ACMON,
+DEPARTAMENTS CE PERSONAL
+
+TARIA DE ECUCACION PUBU'CA
+
+Cer eee hee
+
+con
+CABLE SEC PETARAT DISSEMINATION AEASSIE ED VESSAGE - Tom comes / ¢ UN. oem
+
+f ) soe = :
+? SECRET au Fi
+5 (Wher Fit0d ey poeta) ry 7G
+
+2
+at
+REPPCPACTION OF THIS COPY MROMBITED +
+“omcccoy Lame []uome = ms
+: mom O ves O wo =
+é
+
+z
+
+QASsY TO MLE NO.
+
+KREF TO MLE wo fi AY ‘
+
+rie eo Orev 10 i gq wunen a he
+
+GUATEMALA CITY INFO DIRECTOR, TEGUCIGALPA a Joa
+REF: GUATEMALA CITY-8a22 cucT SENT TEGUcIGaLPA> CA 20309) @:-
+
+1. AFTERNOOK 3 APRIL 68, LIRING-3 REPORTED HE PLAKS DEPART
+
+trem ney eee
+Be UR eee Fees Ban ema ae Ue
+
+“- LpRa CIRCA 4 APRIL 68. ALTHGUGH LIRING-3 HAS VALID NEXICAN DGCUREN-
+
+LAND IS COMPANY CUATEMEL2e CITIZEN Fosecrecs
+
+TaTiO% AKD LARA KAS FALSE MEXICAN MINISTRY OF EDLCATIO¥ DOCUMENTATION,
+THEY WiLL ATTEMPT ENTER GUATEMALA ILLEGALLY.
+2. IH GUATEMALA CITY, LARA PLANS INTRODUCE LIRIBS-3 To BONAR
+
+WHS LOGISTICAL OFFICER FOR FAR 18 GUATEMALA CITY. TRIP WILL THES
+: fe ARRANGED FOR LIRING-3 TO VISIT FAR SIERRA DE LAS NI%AS HEADQUARTERS
+TO DISCUSS FUTURE SUPPORT OF FAR FROM MEXICO CITY. 7
+
+3. AFTER APPROXIMATELY TES DAYS IN GUATEMALA, LARA AnD LIRISE~-S
+WILL TRAVEL TEGUCIGALPA TO IKVESTIGATE POSSIBILITIES GF SETTING UP
+PRINTING PRESS UNDER LIRIWG-3°S TRUE NAME. :
+
+4 LARA‘S FALSE MEXICAN DOCUMENTATION IS IDENTITY CARD FROM.
+SECRETARIA DE EDUCACION PUBLICA UNDER NAME JACINTO RASGEL: iCERVARTES.
+FOR IDENTITY CARD PKOTOGRAPH, LARA WORE GLASSES, HAIR DYED GREY 25D
+te —- 80 MUSTACHE. LARA TOLD LIRING-3 THAT FOR TRAVEL TO TEGUCIGALPA. Comes :
+~ Fron GUATEMALA CITY, HE WILL USE GUATEMALAN PASSPORT DER wane:
+
+oo reece
+
+4
+e
+
+4
+.
++o ketene eapa ne remem!
+
+14-0000
+
+Cael SECRETARY OSS EMNATON CLASSIFIED UStsGe Tot Comes: SOSTING AND/OR MITIOLS - SEE SY .
+
+SECRET
+
+{When Fited in)
+
+wox C ves D wo
+
+ate z CLASSIFY TO FLE nO
+
+t aeanreninrensermiomes! -
+
+: BREF TO FILE NO. .
+
+i memo Geer to sj je.
+
+! ——_____—
+
+PAGE 2 MEXICO CITY 5111 SECRET an
+MIGUEL ANGEL OLIVA CASTANEDA. LIRING-3 VILL PRCSASLY USE VALID
+MEXICAN DOCUMENTATION. POUCHING COPIES OF LARA AND LIRING-3
+' DOCUMENTATION. , I
+1 5. FOR TEGUCIGALPA: LIRING-3 (IDEN) IS STATION PEMETRATIOG,
+| “OF GUATEMALEN GUEPRILLA GROUP IN MEXICO CITY. FRABCISCO LARA IS
+| FRANCISCO ADALSERTO LARA BARRIOS, GUATEMALAN REVOLUTIONARY WHO HAS
+RESIDED IN MEXICO FOR PAST YEAR AND WHO CLAIMS TO EZ FAR REPRESES-
+TATIVE I #EXiCO. SO
+
+6. ALTHOUGH LIRING-3 HAS TELEPHONE HUMBER AND POST OFFICE .
+
+BOX IM MEXICO CITY FOR STATION CONTACT, DO NOT SELIEVE sat io & WiLL
+
+A
+
+FE ABLE SUPPLY ADSESESSEES WITH INFO ON HiS TRIP 7G cua TEHALA AulD
+HOMDLURAS UNTIL KE IS THOROUGHLY DEZRIEFED AFTER E RETURW To
+
+i
+
+MEXICO CITY. WILL ADVISE.
+
+> SECRET :
+: BI
+f
+
+14-0090
+
+ye
+
+aad
+
+* . SECRET
+
+SR .ECT OF DOCINEeT
+
+F- SQuGCe CAVOTORVe| a. Gata OF tard. e- evaluation
+
+ac
++
+
+CeOER TO THES FILE
+
+PERTINENT 19 OOMATION
+
+SURADC DELMAR, CARLOS
+201-798301 035-009-008
+SEX 4 DOB 2? HEMA-34406
+. 04 APR +8
+CIT MEXICO
+occ 2
+. < MEXICO :
+: RE DOCUMENTATION RECEIVED ON SUBJ.
+}
+R 6804180322
+a
+:
+i
+yor FILE THIS FORM IN FILE NO.
+© TPB G67 te cearsene cevrsaee. SECRET oot a
+.
+
+14-0000
+
+s
+
+rene: fone : 7
+CSdO-
+
+SECRET -
+
+{Wran Filed i}
+
+1 SECRET 2825272 MAR 68 CITE GUATEMALA CITY &éa2
+
+PRIORITY MEXICO CITY INFO PRIORITY DIRECTOR :
+REF: MEXICO CITY seaalray foa/G) 29kz6 2380369
+le RE PARA 4 REF: DUE 28 MARCH CHANGES WITHIN GUATEMALAE ARMY,
+
+2
+
+INCLUDING NONSVAL OF Hiaisvza o7 DEraaSc awe AEL vaksiacad DUSQUE,
+STATUS OF “OPERATIO® AZTECA” UNCERTAIN. COSSEQUENTLY STATIONS CABEOT -
+GUARANTEE ABY TYPE PROTECTION FOR LIRING-3 I CASE HE CAPTURED. .. ALSO
+NOTE THAT MEXICAN BOHDER AREA BEING HEAVILY “PATROLLED. : . .
+2. ESMOOSE-1 REPCRIEO THAT ON EARLY NORMING 28 MARCH ESMARVEL-1
+ALERTED SPECIAL COMMAHDO UNIT OF GUAT ARMY (SCUGA) TO BE PREPARED
+FOR IMPORTANT OPERATION. HE SAID INFORMATION HAD SEEN RECEIVED 8
+S THAT GROUP OF THIRTY CASTRO CUBANS PLAWHED ENTER GUATERALE FEROS
+MEXICO AND THEIR ARRIVAL TIED IN WITH WAVE GF TERRORISM AX
+SABOTAGE WHICH REPORTEDLY TO TAKE PLACE 32 MARCH. ESMARVEL-!
+DID NOT INDICATEY SOURCE OF ABOVE INFO. HE SAID THAT REIRFORCED ,
+SCUGA TEAMS WOULD BE SENT 10 THE DEPARTMENTS OF SAR MARCOS axD .
+KUEHUETESAHGO ON MEXICAN BORDER, WITH A BACK-UP TEAM IB ‘DEPARTHERT
+OF QUEZALTEWANGO. SCUGA UNIT WAS IN PROCESS OF PREPARING VEHICLES
+AND EQUIPMERT WHEN WORD RECEIVED OF REMOVAL OF ARRIAGA. ESMKOOSE*!
+‘SAID AS RESULT OPERATION CANCELLED. - POSSIBLE HOWEVER THAT SAME —
+
+So gecreT LA oe
+14-00000
+
+i
+y
+7
+@
+
+Caw.F SEO DETAQUY OFSSERNATION
+
+r 7 PEN art SOTO
+.
+
+?
+
+SECRET
+
+PAGE 2 GUATEMALA CITY 8822 SECRET :
+IMFO HAS BEEN PASSED TO MILITARY UNITS AT BORDER WHICH
+MIGHT MAKE LIRIUG-3°S CROSSING INTO GUATEMALAM EVES MORE ~-
+
+DANGEROUS. bee
+
+Z. TOR HGS: TARA 2 GGFo GAS BOT SOGe wissiaie vue °° +
+
+LACK OF CONFIRMATION AND SCARCITY OF DETAILS." * -"L 2. Af. i”
+
+14-00000
+
+. yo SECRET =—ac-—~ |
+(When Fiter ing Lepeoneed
+
+v
+
+PRIORITY GUATEMALA CITY 1976 DIRECTOR . : >
+
+REFS: A. MEXICO CITY 4628 (7 # 70689)
+BRB. RlATEMaLA eTTY Sass (2a toooy 1
+
+C. MEXICO CITY 4486 (VW 503/72)
+fe ON 27 MARCH 68 LIRING-3 REPORTED THAT GUAT FAR NZM3=R
+
+WHO PREVIOUSLY IDENTIFIED HIMSELF AS MIGUEL ANGEL OLIVA CASTANEDA :
+IS ACTUALLY FRANCISCO LARA, PROBABLY IDEWTICAL WITH FRANCISCO
+
+ADALBERTO LARA BARRIOS, AKA CARLOS LARA (REFS B AND). LARA
+INADVERTENTLY GAVE HIS TRUE ANE WHILE DISCUSSING WITH LIRIG-S .
+THE PLANSED TRIP TO GUATERALA. foot. OS
+2. AT PRESENT, LIRISG-3 RAKING FALSE DOCUNENTS FOR PERSONS
+HE TO LEAD INTO GUATEMALA. THEY PLAN TRAVEL SOMETIME BEFORE mo
+51 MARCH. LIRING-3 TO ENTER GUATEMALA WITH GROUP IB ORDER MEET
+UNIDENTIFIED WOMAN WHO IS FAR LOSISTICAL OFFICER. eROUP BELIEVES
+LIRING-2 SHOULD TALK TO HER 10 DETERMINE WHAT SUPPLIES KE CAN male
+AVAILASLE TO FAR (COULD UNIDENTIFIED VOMAM BE DIAN ADELA JIMENEZ .
+OR BREBY HOSEL CUENCA?) ©0001 ptf Fe
+Se LIRING -3 1S NOW ATTEMPTING DETERNINE TRUE NAMES OF OTHER =|
+
+PERSONS KE TO TAKE TO BORDER AND EXACT DEPARTURE DATE. STATION
+a !
+
+SECRET
+
+on meee ycmupemsgcaangpeaninmmmmenecs sevens s TT aTEe eevee again ta ae ates name mee a oe
+
+Bove nace
+
+14-0000
+
+3
+
+. , CABLE SECRETARIT DSSEXONATION CLASSIFIED MESSAGE Tora. Comes sours anevten mer se00 87
+
+PESO Om NOTED
+
+SECRET ew eve cs
+{When Filled bo} = Ea [|
+
+REPRODUT TION OF THIS COPY POCAIBITED
+
+mo: O ves 0 wo
+
+a es en ee
+
+"v :
+tow ar TY TO PE nO i
+WREF TO Fak NO.
+Ossi oy ee 2} meno Deer to saan TI cesmor ee
+
+AT om NEO:
+
+PAGE TWO MEXICO CITY 5003 SECRET : j
+
+WAS ABLE TAKE PHOTO OF PERSOH LIRINS-S IB conta Sal :
+od AND LIRING-3 IMMEDIATELY IDENTIFIED THIS PERSCR AS FRawCLSCO
+ie WADA STATION UAL ALCO Takia FkodSS oF AvURESS wneRé uals
+
+BELIEVED BE STAYIHS AND FILM BEING DEVELOPED. WILL PRIORITY
+
+POUCH PHOTOS AND LIRING-3 REPORTS.
+
+: . 4. LIRING-3 WILLING ENTER GUATEMALA WITH FAR MEMBERS BUT
+' 7 WOULD LIZE KNOW IF OPERATION AZTECA STILL IW FORCE. IF wot,
+t COULD STATION GUATEMALA ARRABGE AY TYPE OF PROTECTION FOR HIN
+IN CASE HE 1S CAPTURED BY MILITARY oft POLICE? |
+SECRET
+BI
+
+wees
+
+OO” * SECRET Y
+
+ee nnn en TE ee eee eo
+
+eee arate eT
+
+“DiSPATCH
+
+Chief of Station, Guaterala City
+
+HGEG
+
+\Chiei, tesieru Henisphero Division
+
+Chief cf Station, Mexico City
+
+PRIORITY
+
+Action Required: Hone; FY! For Cagterealy |
+—S—_—_—_——_—-
+
+theoiee < .
+s Mexico City-5000 Ai ieres so
+
+4
+
+Attacheé are tha LIRIEG-3 reports ou the meetings ho has
+held with the Guatenalan FAR menbors as veported in tha refere
+
+Marcue
+
+ence above. Als attached aro photos of’ CarlosXepercabel’ and
+
+“ % Y pd X% . vo
+his wife, Teres2" Lozada de’.*Percabal, 2 blown up copy of the
+Gocursntation LIZING-3 is falsifying, anc several stots of
+
+AEF ranciseo SLara who is probabiy identical with Francisco Adale
+K EK I: \ ‘
+berto LARA Barrios, aleo knows as Carlo *Lara. :
+
+,
+
+t
+,
+
+for/#illard C. CURTIS
+
+— ae |
+
+ace : OFu.MED*
+Reports MicrR' r
+
+APRS [1963 -
+
+pce. MICRO. stm
+
+Distribution: cee | oo
+
+2 ~ COS, Guatensla City w/att
+(2= C/EuD w/att ¢$ COPY.
+
+14-0990
+
+ea LS apa
+
+N
+
+! 1. At 1130 on 20/3/68 1/3. told ‘Rowton ‘that at last ‘he haa obtained 7
+the tue name of the FAR member he had met through Carlos Persaval °
+and who had previously identified bir: self to L/3 under the alias -
+Miguel Angel Oliva Castafieda. LIRING/3 said he learned that thet eo
+true name of this person is Fancisco Lara and that he and some 14
+other Guatemalans are here in Hexico Vity legally as exiles. 1/3
+added that he met "Rodolfo", the older and apparently more important -
+PAR member, yestereday ( 26/3/68) but as yet has not been able to
+
+i learn his true lest nane. : : j
+
+“ + 2. LIRING/3 also o inmediately idenditiea the surveillance photo (etanpea.
+portion s _) Yreturnea herewith) as that of, Francisco Lara.
+
+: aa - Far Commantante
+
+t. “fh
+
+Subject: LIRING/3 Identification of FAR Memeber. soo 7 e
+i. ~ —
+
+3
+~ 3. The other siirveil‘ance photos, as follows
+
+an -
+be identified as of Carios Perba¥al wae bis wits” ray
+_ Teresa Lozada de Fersaval respectively. 4
+
+L.
+
+rn ce enreme
+
+MICROFILM ED
+APR8 1968
+
+Boe.
+MIEPEA, SER
+
+—__
+
+weed
+
+ere nine ae —
+
+14-00000
+
+22 Harehs4 8
+
+|
+|
+|
+
+Subject: Lia {.G/3 Report’ of Costact with Guiternelans ‘sn fn tartes Sity.
+
+wee —-—-- —. . -1, At-a brief acetine with. Rowton at_1700 on 22/3/53 et he done sestaurant
+LIRING/3 vererted that he was woring on the faorie t don of identity docu-
+ments for the two FAR representatives ( Hizuel Anze el Gliva castaheda and
+Redelfoe) throsch nis seriosrapaic process 2né that se hored to nave the
+pictures of the pe-sons con ncered the folioving day. xe asked inovton to
+pri:g along his copying: kit so thut he ecald quickl- copy the pictures
+just before LIRING/3 put then on the icentity cards. Zovte..'prom sed to
+bring the kit to the Atoyee eparcment av 1500 on 22/3/65.
+
+j
+2. LIXI.C/3 also reported that he hau learned from the Cuetenalans tuat
+
+a certain“ Zsquenasi or*iszenazi, 2 Suatenalan who has resiced for usny years:
+
+in Hexico and who owns or operates = factory called “Sre:os de KExico", has
+
+deen very helpiul to the PAR uenebe-s in Hexico. Lixewise a destor by the
+
+name of Corge*Flesch hes been of service when needed.
+
+3. In reply to owton's query iT:.2/¢/3 stated that ali the seven Guatexalans
+
+he lad receuily met ( four of whoa live at 54 i:fo uerma) appeared to be FAR. '
+udherents, except one, who he hed lecrned in passing was a follower of can”
+Sosa. L/3 also stated that he hac learned that the one who worked in the
+photo shop on San Jufn lLatran street was an acco. ntant rather then 2
+Grapher. ‘
+
+Roto
+
+Hl
+t
+i
+t
+
+delle ce 3. Zouton
+;
+
+14-00000
+
+with Rigues a
+
+2@ March 51°68.
+
+Subjects  LIaIh3/3 Contacte 3th PAR Gustecele  levice Mity.
+
+1. LIk1:.6/3 reported to Lovtcr at 1600 cn 20/3/5S teat. he had a.cais mit
+du frent of the ~~
+Caf& _iterario ch Calle Lieja.
+
+Chapultepec zovie and went with his tu
+L/3 told zeston tuet Clive coaficec te Lis
+four Guzvetien e-nrades who lived 102-57
+that their resicence was bein. surve
+encae Ee ex leinxed that they ued coted several
+
+gy felt. wes the sano
+rly well-dressed zen’
+hanging arcund the apartament house and had tried ts follow one of tnem but
+he had run off. Tois all rmciceved te chen that tre sarvei illane: <2s not be-
+Sean Telleg, Uae vy ours yeavate eroup. sive the:
+stated thet they snes that the deputy chief of the !.ano Blanca cr: acizatiog
+OliverioCastaieda, was currently in Hexico city, ang assumed that te had
+organized the surveillance. Cliva then aentioned that one of the, four living
+at Calle _erza vas the well-known Suerrilla leader who hed recentiy scught
+sanctuary in the Mexican <mbassy in Guatenela City end was sranted asylun
+to Hexicc zcrourhbhe nterventicn and i:fluence of Lazeto Céréenas.
+2. in orcer to ceterzine the exect location of the Lerma epartnrent, ilsliG/
+tole cowten tnat he offerred to help icextify the surveillance by coscucti
+&@ counterszrveillence hinzelf the follewing evening. de also ¢dtreed the ua
+of his Tacztaya studie, recommending that in any case tue four saculd cis—
+perse at lezst conoranily. .
+3. 1/3 alse reported to Kowton thst he acain met sith Cliva at 1015 that soy
+morning and thatthe latter haa taken hi= to 4 printing ‘shop on Calzada Tila] ©
+pan near Calle José T. Cuéllar, nened ~ieria",as 1/3 recalled. (tbe hexico
+sty telephone dirsctory lists "Kesca-i=rresos y sa; “2d08, Calle Set. Cuélie
+57, tel: 73-5-01). Oliva tcld L/3 tbat this shop produced var:cus 1D capers
+for them in the past out uafortunately wes rot adm@ie to, fabricute a good
+Mexican 1D cerd because of the unavailabiliiy of the spectaitype used. L/3 |
+said that he was confident that he cocld zake- the reproguction through nis
+
+fe
+
+. seriographic proceas. In the course of conversatica <aiva conficed to L/3
+
+thet the Guatedalan lawyer Capuano, had rrovided biank Guatemalan, ID cards
+in the past: and in general had been very helpful. ~e aided that Capuano bad
+succeeded in ce: ting all the Guatesalons relised fron pison artes, taeir ag~ :
+
+rest in the suliau Lépez case. .
+4 Glivs also stated that he felt it possible and a_dvi abie [tn- t 1/3 tr-vel
+
+ai
+
+14-00000
+
+8
+
+2.
+
+with him to the FAK hecdquarters in the -ierra Nina on his Fprtheoning
+trip so taat L/3 could cet first-sand requir nts fron the PAR supply
+responsible ( whom Vliva referred to as @ wouen). Oliva slipo menticred
+that FAk vas hoping to obtain a lathe to jercit the sanufect of «ezz2ns
+
+i
+S. Cliva also stated that the rri:ciple purpose of the visitiof his ccarade
+¥":odolfo" wes to obtain funds and to return to Mexico. Clival added th-+ in
+the event 1/3 eculd =zke tie trip he ccuid also return with Rodolfo to
+Hexico. In reply to 1/3's query, Clive stated teat tne funds, Rodolfo woald
+be given in Suatemala were froma various resteries carried out by Far fer
+tke purpose of raisins its own funds. Clive coimented that they could sc
+count off the Cubans or tke CPG for finarcial supcort when it.was needed. He
+added that the sale of the besklet "Zerrcr in Guctezala" {of «ach 1/3 bad
+obtained @ copy from Carlos Fers:val) hsd helped to supply soze of the zoney
+to be used for the trip. Clive i:ncicateda that he Sicself planned to rersin
+‘in Guetecala with the FAR forces in the sountains. 1
+t !
+
+"4
+on
+
+_ Yallace 3. Reiston
+
+i
+“i
+iv
+H
+i
+
+f
+4
+i
+7
+
+locelly (im the socuteina). © Te Sr
+14-00000
+
+.
+a
+
+1
+\
+7
+|
+419 Farch,1968 |
+, Subjects LIRING/3 Report of Contact with kemebers of fatyStaceasta, ~
+:
+
+4. At CO45 on 19/3/68 at the hobdins Resteurant,Calle Leibnits and helchor
+
+Coanpo, LIKING/3 repsrted to itowton that he sed again net the Pi# neater
+Se _.. . .. Whose sketch he bad jiver Howton the previsus day-ané vcou' be hac met thru”
+- Carics Fersaval oz: 17/3/68. Ze explained that Fersaval had: finally cone ‘
+
+tacted him by phone lste Surdsy afternoon (.17/3/63) anc i:troduced hia to
+
+one cf the two Gustecalaxs who waated to retu
+country. 1/3 descrited this man, who later sis.ed hin/t
+in the camo of Miguel Accel Clive, eced 33, 4
+trimzsd short and rather taick srouinent
+35 and said taere was no doubt in his sind
+
+rn cla
+
+their
+
+a papers
+
+suort,stccky, with Liacsk hair
+smoted is ace as
+
+wo
+
+Fs a native-bcrn Guate-
+tolon. Ds alle lll vuis yessom sore a toin xoustache. L/3 then crew costa
+@ Bxetch of the person ccucerned which Rowten passed in to.the Stetio. the
+
+same day. . ! -
+
+2. 22aL.3/3 continued that he conversed with the Guateczalan, Olive, in the
+presexce of Csrlos Ferseval and his wife Teresa Lozada <e Yersaval e+ the
+Miss restaurant on deforma for about 45 ninutes, taxing the line that he was
+
+willics to help the cause as he had done in +..¢ past, but he wanted to be
+
+certain of the exact cffillavicns ani bona fices of the persons with .boa he
+
+was dealing. shen this apparently surc:rised sna somewhat siocked Corlos Fer- :
+Saval ane Teresa, L/3 explained chat he had had sone unpldasant experiences
+
+with sich persons as Crozco and was aware that many ?:R cesertors vere cir-
+eulsetizcg sround Hexico thege days. The Guateralan,Oliva, however reacted
+
+favor oly saying that he unde-stood L/3'"s position add cid not blaze himn.de
+
+added thst he. would furaish proof of his PAZ affiliations and indicated that
+
+there vere two other coxredes, one much more inpertant than; himself, <ho
+
+also needed help in retursing. L/3 told Roston that he stressed to all prea
+
+sent the risks involved in providi:; false documentation end acting as a
+
+guide fcr then to cross the border illecally and his ori-inal coumitzent to
+
+help orly two persons. In reply to L/3's query, the Guatezalen Oliva stated ~ ~~~
+that their destination would be Gusteaala City itself cnd they hoped that *
+
+1/3 would be able to accozpny them there since they were no familiar with
+
+the countrysice betweenthe border in the C:sit4n area and Ghatenale City.
+
+3. Accordins to LIKING/3 the latter insisted that he aeet the other,rore in
+portant Guatezalan, and be given-an o:portunity to make carfeful plans be-
+fore atvecpting the joursey to Chiapas and Guatemala City. | Gliva.then made
+
+a date with Persaval and i/3 for the next evening at 2300 i the corner of
+
+14-00000
+
+26
+
+‘Ban ¢ufn Latr4n aad Madero at which tine ce would try to co arrha: :@ a meeticg
+
+with bis cozrade. i o
+4. LInING/4, et his ceetiag with scwton the follewis norniz 19/3/53) re-
+
+c
+‘ported thet when he errived at the place designated %o.found ithe Guatenelan
+
+_Cliva waitin: with neither of them saw rerssval. Clive, after a-vait-of a----
+
+Dout 45 cisutes, succested tust they sive up and =o to a cafeteria, Copa de
+‘Leche, on van Juén Latrén. L/3 stcted to sovton that wile tier vere waitin
+they were joined by another Guatezalan, a young men of about 22 years of az
+
+-and rather stout, who accoxnpsnied thez to the @afeteria. The ‘oléer Gustezal
+
+then shoved i/3 a Guztemalan rassport in the nsze of Niruel Anrcel Cliva Cas
+tefada which he said was false but which en-bled his to travel is hexico.
+The youncer san geted that he had leral decunontsa but did act volunteer Sis
+
+ee a od 2
+
+SESS 17 Leese suas ese vsuer caate -
+
+name to L/3. Tn the aaumea af oot
+malan, C_iva, forserly worked in the advertising business in Guatenala City
+and thet cze vounger nan was familiar with electronic equipnert and radic
+commusicetions ;robleus. The olier Guatenalan apolo:ized to L/3 for not tev-
+ing been able to bring slony the ciher #aR ecarcde, to who: se r-ferred as
+®3godolfo" an¢ acain primised to introduce bin t: L/3 the -ollowirg evening.
+He pronisedc to telepicne 1/3 at 74CO the next cay tc confimn the aeeting.
+
+5. iLI:LiG/3 then told co:ton thet the two Guztesalens then escorted his to
+the Hotel csi Yelle cn Calle Indepencencia ( octon recalls tort ore Eusta-
+mante resided there Curing his stay in ilexico City several nenths azo)... L/3
+teld sovton that he ect two other Custemalers there in the lobty and comment :
+that they telred r. ther freely in front of hin, discussing at cne roint even
+the fliegal accquisitio:. of a revolver neeced by one F then. In tae course o°
+conversation i/3 stated that he learned tast Céser Rontes is noc Sack in
+Guatezalas snd that the Pak is planzins an a-ril of: ersive. All the Guateza’”
+lans expressed concern over the increase i- the power of the “rene Blacca‘
+and blamed it for the kidnapzing of the Gustezalan Areadishop. They also con-
+mented that the nilicary-in Guatenala were disenchanted with the “suppet pre:
+
+‘sident",Monsenecro, and c-uld be expe-ted tc increase the terr-risa frea
+
+~ the right iu order to place Moutenesro in. an iapossidle Iposition and eventca:
+
+ly juszify iis resoval. : : 7 4 ,
+6 1/3 cozcmented to ovton that he noted that at no t. did any of the Guate
+malans sention cuban aid or assitance. in fact one of thea at one ‘point s-id
+that he hac tried unsuccessfully - to obtaia a visa for travel to Cusasone
+thirty days previously. : |
+
+=
+2
+i
+
+%
+
+Rowton
+
+¥allace 3
+
+{
+i
+H
+i
+:
+}
+}
+
+17 Larch 41963
+
+Subject: Liztl..5/3 Report of iteetin:g with Carlos rerseval.
+
+1.-LIaI:G/3 resorted to dowton at 1115 on 75/3/63 at 2
+Hiss cn xeforna and Calle Lississipi that untortunetel;
+
+the two Guateralacs scheduled for the previous evening zt 223) OG in
+Danny's restaurent (Refsrze at Diana Circle) did not cczz off. Be stated
+that ke arrived at the restaurant at 2230 ang waited until about, 2315 with
+out seeing either rersaval or being approached by any Guatemalan. 2 cone
+tinuec that gust as he was about to leave, se heard 2 tep on the window
+behind big and turned ard saw Teresa Lozada de Fersaval on.the street. +e
+cricl Les vo a car where Carlos Ferszval was waiting.
+
+He was then @riven to sentorn's Ancel and rerained there with Carlos and .
+Terese for soze thirt; nicutes. : '
+
+wnet ont and sesct
+
+2. Accesding to LIzING/3,Cerles Fersaval explained thet =e had been stood
+"up by the Guateralers and hed been unable to cst tm tcucs with them to in-
+troduce then to L/3 2s ke had hoped. Ne added that one of the perscns mam
+had deen in Cuernavaca two or three days previously and rerhaps hed rot
+been able to return is tine for the meeting. Fersaval,sh: appeared to L/3
+to be quite nervous ir Senborn's, suzsested thet they co elsewhere to con-
+tinue tacir discussion and Li LiG/3 invited his and Terese te his, sacubaya |
+’ studio.
+
+3. They then sroceeied there to ccntinte the discussion. Teresa excused her=
+self on arrive] sayic= that she was very tired, and prozpzly fell asleep in
+one of the becrocas. Carlos rersaval then ccxutinued talkire with 1/3 uctil :
+about C30C. He mertioned that cre of the Guatenslans he hozed to intro
+
+duce to 1/3 was well-xcown and inportant in FAR,while the other(who had
+documents) was relatively unisportant and coule srobadly get by the pclice
+
+checks witcout as such risk. In reply to L/3's queries, rersaval stated trat.
+
+| beth men wanted to trzvel to Gustenala City and that one {-he inportant one)
+would protatly be returciss to Uexico after a stort stay. Fersaval: revesled
+that as far as he <new the purpose of their trip was to chtain much-neeced
+fends to continue their vor« in Kexico. . ‘
+
+t
+
+4. LISI:5/3 tele Zoston that he again promised to cuide the fastesalans ac-
+- ross the border south of Jan Sristé>al but i.sisted on meeting them in
+
+Mexico City pricr to escorting thea over the borcer. persavat then ‘asked lf2
+
+14-0000
+
+ae
+
+2. 1
+
+whether he was is a position to . tain a radio transx=itter: for the Fan
+friends, stating t-at he .as certeixn that taoey hsd the financiel ceans
+necessary to pay for suck equipment. L/3 stated that ne felt he hed a
+goos source: in his tr:the> and varicus ovher contacts up north, izeluding |
+_ Aréhi_who worceé for the racio stafion_and had access. to technical. equip. oo
+mente i : : .
+Pe saval cristised to telephoue if3
+= night ( 76/3/68} in the nose of being eile to
+“6 or the foliowins. I/3, towever, rerorted to
+Rewtes by televb ne thet es of 2300 on 16/3/5& ne one had telephoned bin
+to sect up the necting. :
+
+!
+1
+}
+
+5. At the e:nclusicn of the. meeti.
+egain et 2200 the Pollox
+set up a meeting that ni
+
+re
+con’
+
+{
+i
+i
+
+Wallece 3. Howton
+
+\
+' !
+
+weer
+
+eee
+
+|
+i
+i
+{
+
+vests teeeemnantinctentaersfae ibe Antena 4,
+
+1
+i
+i
+{
+1
+i
+'
+
+had spate EN She
+
+y
+AY
+Wbah 3
+
+~<S
+meet
+
+. vas
+‘“
+
+%
+(
+
+Direccisn ¢ snen de Pesoral|
+
+Departamento de Relaciones Publicas
+
+— OFICINA DE INFORMACION
+
+SECCION DE CREDENC] ALES
+
+— Ker mncrenge ani
+14-00000
+
+14-0000
+
+PS Ie
+
+Greve
+
+”
+
+14-0000
+
+.
+
+5 x .
+a nF
+
+: _ d Bd an
+, :
+:
+x
+4
+
+5
+
+x
+¥
+14-0000 4g
+4
+
+eng
+2
+
+%
+
++
+
+14-00000
+
+t
+
+. : SRCRET/EAPOR BE B4233
+: 37 tazreb (1967
+\ :
+: |
+i |
+t {
+. } +
+v G. LIEING-3: Frou recent activity it sspears -
+{ that the Guatemalan FAR may have rersved ita interest
+t an LIRING-3. In late January, an emissary of FAR
+
+representatives in the TORUMEN Capital traveied te
+Mexico and contacted the person who had carried to
+PBRUHMEN the letter sent by LIRING-3 in the suamer .
+of 19867 denouncing Moises CROZCO Leal. The emissary ~
+brought the word that the FAR had much appreciated
+LIRISG-3's letter om OBCZCO and warmed that the FAR -
+. organization in Mexico City was infiltrated by a
+VOFIRM operator. Try as he might, however, LIRING-3
+failed, at least by the end of this pericd, to.
+meet with tho FAR men.
+
+etl: emma
+
+14-00000
+
+!
+|
+|
+
+Casie SECHETAMAT OrSSEMINA TION. 1 Cas ea vessace Tota Comes _L ANOVGR INITIALS - SEEN BY
+
+V Yremowcnit nctrieD our
+
+8) : SECRET 4, moStcwen Ts]
+
+3 (Whee Filed in) oo! Soman ae!
+af
+
+=
+
+., EFS 2,0 DON OF Tees 7 PROHIET E>
+Srvmeccorr [J aun |] mere re[______}f
+
+no 0 va Poo ee Cc!
+CAASSEY TO FUE wo 3. 38-Y- 17
+war 7 ,
++ ater to meno eon Hef
+pesew ev 3 D ver s Feu an wh <0 arance cestroy DO ac. ld
+1. ton ; Oo :
+HP corr drs. a luitliooP & che eae .
+p pep Len
+
+EXPRESSED THANKS FR HIS DENUNCIATION MOISES (OROZCO) LEAL iN
+
+SECRET 141942 MAR 68 CITE NEXICG CITY t=
+
+GUATEMALA CITY ZIRECTOR 1870 JMWAVE Wks £9: »7068¢
+REFS: A. MEXICO CITY a7se( & vsi/)
+
+B. GUSTEMALA CITY 6733 Ge b b54s7
+
+t. FOLLOWING CABLED IN ANSWER QUESTIONS RAISED PARA sia Bt
+
+Ae FAR KNOWS LIRING-3 KAS CAPABILITY OBTAIN FaLse |
+DOCUMENTATION. LERING-3 FOR EXAMPLE OBTALNED FALSE BIRTH CERTIFICATE
+
+}
+
+AND MILITARY REGISTRATION CARD FOR JACO3Z0 PADILLA. : i
+
+—
+
+B. LEFTIST CONTACTS LIRING-3 INCLUDING GUATS KNO’ HE |
+
+i)
+
+FAMILIAR WITH GUAT BORDER ARZA IN CHIAPAS. LIRING-35 WORKED FOR
+NUMBER OF YEARS 18 CHIAPAS FOR MEXICAK EQUIVALERT INDIAN AFFAIRS
+
+iN “DOW
+
+QUA isi
+
+3 Oesc3
+
+‘BUREAU. IT ALSO ¥ELL KNOWN TO FAR THAT LIRING -3 HAS BUSINESS
+
+e,
+
+LocaTED IN BORDER £REA IN ST CRISTG3AL DE LAS CASAS SINCE TaIS
+BUSINESS WAS TO BE USED AS COVER FOR ARMS SUPPLY TO GUAT RESELS.
+: : i
+
+C. AS GUAT CITY STATION WILL REMEMBER LIRING-3 WAS TAKEN
+
+" . t
+BY FAR TO HIDEOUT :N GUAT WHERE HELD TALKS WITH FAR MEMBERS, 1
+H :
+
+“ LIRING-3 EVEN SUPPLIED FAR SQYE MEDICINE AND coGEAC FOR WHICK
+
+INCIDENTALLY HE NEVER PAID. . 1
+
+De “Iw LIRING- -3 OPrNioN, FACT FAR REPS IN CUBA R CENTLY
+
+~or een
+
+. ;  ese-3
+D 35-Y17. oT ana
+| SECRET ey FIC
+, Cras
+
+;
+
+|
+
+;
+ve
+
+\
+
+CABLE SECRE~ARAT OISSEMTRATION: CURSE ED MESSAGE Tora Cots ROUTING ancloR INITIALS - SEDs
+
+came secret 9 SECRET
+
+{Whan Filed tn}
+
+. lower con 7 oar
+
+agi 93
+
+moe ( ves Bw ag
+wo 4% lod
+
+GASHO’ TO FILE KO.
+
+ry
+
+EOE TO PLE HD
+
+roe mo Cast so
+
+PAGE TWO MEXICO CITY 4828 SECRET
+
+i i
+
+OF aT LEAST SOME OF FAR RANK AND FILE.
+E. REQUEST LIRIWG-3 HELP FAR REPS GVER GUAT SO0RDER!
+
+CAME FROM CARLOS (PERSAVAL) MARCUE, NEPREW OF MANUEL (MARCUED
+
+PARDINES, JIA CARMEN (LOZADA) DE RAMIREZ, PERSAVAL SISTER IN Lav
+Ll RNS here F, ISTAESS LIRING-Fo
+
+' : (ar 4s13,5 [reres sets AS FAR AS STATION XNOWS PERSAVAL, |
+
+: ve
+ie MARCS2 OR LOZADA HAVE NO DIRECT CONNECTION WITH ERNESTO (CaPiuayo)
+
+DEL VECCHIO AND OTHER GUAT LEFTISTS WITH WHOM LIRING -3 PREVIOUSLY
+
+1
+
+- i
+
+\, IN costact.
+2. LIFEAT ON LIRING-3 CONFIRMED PERSAVAL SCHEDULED PHONE |
+
+FEMALE GUAT REBELS LIRING-3 AGREED GUIDE OVER GUAT BORDER... FRO |
+PREVIOUS EXPERIENCE, STATION KNOWS GUATS MAY PHONE LIRING-3 AND
+ASK FOR IMMEDIATE MEETING. TO FACE SUCH POSSIBILITY LIEMBRACES
+
+a aoe taarnenas
+
+Peas me
+
+STARTED SURVEILLANCE LIRING-3 MORNING 14 MARCH, WILL TRY OBSERVE
+MEETING “ITH GUATS, TAKE PHCTOS OF THEM AND. DETERMINE THEIR ACTUAL .
+" RESIDEUCE THROUGH TAILING EXERCISING uIMost CAUTION. t
+. Se WELL CABLE FURTHER DEVELOPMENTS THIS CASE. e* a i
+
+SECRET SERVICED
+
+ne re
+7 OS gecrer
+
+OT ne ee Ser
+
+}
+
+SUMMER 67 AND SENT up THAT FAR “PENETRATID BY WOF LEM AGENT" a
+VO :
+(GE MEXICO CITY A314) CONSTITUTES INDICATION HE STILL IM’ GOOD GRACES
+
+LIRING-3 14 MARCH TO SET UP 15 MARCH MEETING WITH TWO MALE AND ONE
+
+é
+—t
+
+:
+
+—y
+
+:
+a!
+
+14-00000
+
+i
+i
+i
+i
+i
+1
+
+whe
+
+CA MTALS- SEEN BF
+
+, Geert Secretamar psssenn Macad SSiF1ED MESSAGE Tota COMES
+SS ae ROT HED res
+SECRET ems von arene
+omens
+
+(Whes Filled In)
+
+ij
+
+CLASSIFY TO MLE NO.
+
+REF TO NUE WO.
+
+ous mr Onsr. 10
+
+S.£.C-R E-T- 122147Z1AR 68-CITE-GUATEMALA CITY 8733
+MEXICO CITY IKFO DIRECTOR - 269168951
+oo REF MEXICO CITY 4798 (~ ux) ye
+
+. Dona”
+t, ALTMUONEM COSCULATION CNLY, FOCCiOLS tans founa oo GAN 7
+
+WHO TO RETURB GUATEMALA COULD BE CLEMENCIA (PAIZ) CARCANO (AKA
+LUISA"), SISTER OF MIRNA (PAIZ) CARCAMO WHO RECENTLY RELEASED:
+FROM JAIL IN MEXICO. ACCORDING TO FEMALE INFORMANT OF GUAT
+ARMY, CLEMENCIA IS WIFE OF JULIO CESAR (MACIAS) MAYORA (AKA
+
+i
+
+CESAR MONTES"). ALSO REPORTED THAT CLENENCIA WAS TG TRAVEL TO
+nEXICO IN MED-DECEMBER 1967 TO ARRANGE FOR SHIPMENT OF ARMS To
+: FAR, AND WAS POSSIBLY TO BE ACCOMPANIED BY DISGRDELA (JIMENEZ)
+MUtOZ AND HILDA (SOSA) ALDANA. THERE HAS BEEK NO CONFIRMATION
+
+" THAT ANY OF THE ABOVE WOMEN TRAVELLED, BUT PRESEST wfieners
+- UUXNOWN.
+
+” 9, STATION BCES HOT HAVE BIO DATA OR PHOTOGRAPHS CLENENCHA,
+AND ESLAIR TEAM KAS HOT BEEN ABLE LOCATE ENTRY FOR HER {u FILES
+OF CIVIL REGISTRY. ATTEMPTING OBTAIH FROM ESMICAS, AND VILL SERD
+
+. "$0 MEXICO CITY IF SUCCESSFUL. a
+~~ sy o> #5" 3, WOULD APPRECIATE MEXICO CITY COMMENTS Om wHY Se APPROACHED
+
+“er “TO OBTAIN FALSE DOCUMESTS FOR RETURSEES AWD WHY HE HIGHT BE SELECTED
+
+1st.
+
+~ SECRET
+
+14-00000
+
+|
+
+PAGE TWO GUATEMALA CITY 8733 SECRET
+
+TO SERVE AS GUIDE. ALTHOUGH POSSIELE THAT HENSERS OF PET
+
+SUPPORT NET IW MEXICO--SUCH AS ERNESTO (CAPUARO> DEL
+VECCHIO, MAY BE USWILLIEG ASSIST FOR MEMRERS Te UTeU oferuag ;
+PGI/FAR RELATIONS, WOULD SEEM THAT FAR WOULD EE RELUCTANT
+TO ENTRUST DELICATE mission OF THIS WATURE TO LISISG/3 WHO
+
+_ RELATIVELY URKNOWS QUAKBaTY.
+
+ney
+
+SECRET y¥ segyseeD oo
+"er a
+
+ae te
+‘
+
+i]
+J
+
+FORE, fet, gots pore Duaitiaatosetimrers tite is Danan Geman a8"
+
+14-0000
+
+Cunt Stet iamet Bsa winaton
+wa?! atin ui soTeaa
+
+essere 10 one moll > 7 IFS CI : :
+
+ath
+
+. 7 Mexi : ,
+Sitgsi idee A <8 CiTs “x10 C Y oae
+] he 12ee55Z MAR £8 CiTs “KID CITY 47376 tina 6811
+: GUATEMALA Clif IMFO DIf<CTOR 1 CIT: Mexico,
+‘ a Hexics
+L be OF 5.U3RCH 68, LIFING<5 HiPORTED He MAD SLneze 2
+i STH can.o5 ¥eASAVAL BARCEL, ePrice OF AANLEL SARC: PARDIuz 25,
+rs DIRECTOR OF THe NOW DEFUNCT MaGAZige “POLITICA", COnMGNILST BI- .
+4 : ry .
+ce MONTHLY PUBLICATION, PERSAVAL ASKeD LIRING-$ iF Az COULD OSTAIN .
+: yelinuctie ment ow TH .
+. A PALS: PRSSFPOKT FOR Wife SF LMFORTANT GUATEMALSE SJR ILLA Leasin
+- IN MEXISS WHD AUST TRAVEL GUATZ™«LA. LIRISG-5 SAID He eOuLD 23 . i.
+. WHAT HE COULD 10 OBTALS DCCUMLATS. ‘ oo ‘
+2- Ge 8 RASCH, PERSAVAL SAIL Iw IMPORTART SUAT.tALAa RevOwii~ :
+- of ‘ :
+; TIOSASIES HAD JC TRAVEL TO GCATCMALA FROM MEXICO SY Hiv MARCH AND :
+- ASKED IF LIkLa3-3 STILL WILLING Ts ALP. LIRING-5 Anstey th THe .
+iv “AFFIRSATIVE BUT SAID THeRs »AS LETITED CHANC: GoTAINING |Fhuse B3cu- D
+fF FENTATION. ME COULD, HOweVcH, BRicF THESE REVOLUT IGwaties on: *
+{ i i
+' as GUAT/MEXI SORDZR IW ORDER MAKe [LicSAL CAOSSIaG cASILR.' IF THEY -
+“DESIRED, HE COULD PERSOMALLY GUIDe THER ACROSS SCRIER. 1 { es
+Fossa “Se OR 9 MARCH, PERSAVAL COMTIMRD DISCUSSIONS WITH 1RIbG-5 rr vO
+L O% GUATEMALAS REVOLUTLOBARIES WHO HAD TO TRAVEL GUATERAUA ‘unsere. .
+
+CHE SALD One: OF THEM. HAS LEGAL DOCUMENTATION BUT OF HER DOES 401. He
+
+I Ha 6 .
+(-798301
+
+—
+|
+
+is
+
+4
+
+}
+
+i
+
+1
+Sey meee me
+
+‘
+
+Nose aa, a ae eat Nk
+
+Siow ete ete et
+
+14-00000
+
+C Brot _.
+Cance Secacbel Eb eEbaron CLS ED MESSAGE
+7 -“ cal ta SECRET
+- {Wher Filled ©}
+. 6-5
+~ AlDvaNtl COPY 1$3e! SLOTTED
+B83 z ausery To re wo cae '
+.——— rn, Ve /ED t
+: . REP TO FILE NO I .
+Ossew sve 2 __j meso Dner to erent? DESTIOVL_ SS
+we aco
+mo CoFY
+free n . ;
+~ %
+PAGE TWO MEXIZC CITY 4798 St CRET.-
+ne THEREFOR: GICIDED BOTH SHOULD ENTER GUATEMALA WLeGatt y, Tuy
+- CANSOT EXTER THRU TAPACHULA, HOWEVcR, SINCE THEY WeLL - :
+. KHOUN THERE, LIRING-3 SUGGESTED SAN CRISTOBCL ARcA WHICH MOT
+SUBUECT TO “EXICAN OR GUATEMALAN SuRVCILLANCE. THE PERSON WITHOUT .
+we docume#TS Ys SOMAN 23 YEARS OLD. PEASAVAL HOT WILLING Glvé LIRING-2 3
+" WAMES OF REVCLUTIONARIZS BUT PROMISED ARRANGE FOR CONTACT BéTuees
+- THEM EVENING 15 BARCHe ; .
+. ,
+- 4. STATION HAS NO I8FO OW IDENTITI&€S OF MAN AND wORAK WHO %
+MIST RETURS GUATEMALA AID HARCH. VOULD APPRECIATE ANY CONM:ATS. ~
+” WILL ADVIS: DEVELOPHEMTS. — Fh
+= SECRET ; .
+id BT ne po
+ed ’ > . , . .
+
+{
+
+4
+
+ct ieee ae ae
+’
+nnn ee
+ta
+
+aw A
+
+*
+
+caehtie nat aan a a
+
+ @erPAnrr
+
+Spee ene riese ners armel neprtneen nett
+.
+
+1400000)
+3
+g
+
+we FILE bikie: Me- S$.
+
+~
+‘}- & messace tous f "pours asny Oe Galas - SEEM SY Bi
+bs / a
+“ety .. a
+wwe (Cite Sei yhow —— a
+oom WH/1 , SECRZT
+
+6954/5941
+' : 1 FEBRUARY 1968
+
+MEXICO CITY reo | 17 26F4 _——- , ae
+
+INFO: GUATEMALA CITY JMWAVE ”
+KAPOK PBRUMEN : ° '
+REF: HEXICO CITY 4314 (IN 40487)* 2e/
+
+BO OBJECTION TO ENCOURAGING LIRING,3’T0 RENEW CONTACTS IN GUAT - +
+
+FAR CxRCLES. HO¥EVER, SINCE THERE SOME DOUBT WHETHER LIRING-3 IN
+
+FACT ABOVE SUSPICION OF PAR, SUGGEST HIS ACTIVITIES BE CLOSELY MONITORED
+DURING NEXT FEW MONTHS. IF HE UNABLE SHOW TANGIBLE EVIDENCE DURING
+THIS PERIOD THAT HE 1N FAR GOOD GRACES SUGGEST CONTACT ¥ Vite LIRIKG-3
+
+BE PHASED OUT. oe
+END OF MESSAGE - ok
+
+WH COMMENT: *Request Addressees comments on continued use of.
+- oe . + LIRING-3 as contact of FAR in Mexico. a
+
+” wHycos/oPs
+
+6 s
+.@ a
+Sue 8 - s
+' 2 2
+8 : :
+mnzaume cence SECRET
+oe ; REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROMIBTER ¢ corr wo. |
+
+2
+exasasee 100 be wot S75 SCL Toran comics
+é, 2
+
+xeegs vo Fite wo. 1M 29S
+sue eto ver. notxencn 7
+
+{
+I
+wer: Dees ve A LIeAig 5 IO |
+
+oS 2 CK ET 3131202 JAN 68 CITE MEXICO CITY 4314 4 :
+CUATEMALA cay, DIRECTOR INFO JMWAVE
+iP0k PBRUMEN Sk
+
+REFS A, MEXICO CITY 2331 (v2 33¢/)
+
+: B. WEXICO CITY 2363 (vaso7 7) -_
+4G MExico criy 2458 (ya. 9707) are
+D, MEXICO CITY 2564 G3 77/ 7)
+
+‘ MICROF,
+E, MEXICO CITY 1930" 99775 MICMED
+u F. MEXICO CITY 3581 ()4y 2700) , MARS ° tone
+3. HWiMA-33842 (NOT SENT GUATEMALA CITY) SES MICRO. Sem
+
+1. ON 31 JULY 1967 LIRING-3, PER REF A, OBTAINED CONFESSION : '
+: FROM GUATEMALAN LEFTIST MOISES (OROZCO) LEAL THAT LATTER TRIED : < \
+BSTRAY FAR GUERRILLAS, LIRING-3 SUBSEQUENTLY DENOUNCED OROZCO AS N
+FAR TRAITOR TO LIRING-2 (WHO SUPPOSEDLY RELAYED DENUNCIATION TO Ww .
+CUBAN AUTHORITIES) AND PER REF C TO ERNESTO CCAPUANO) DEL VECCHI 0, \
+CLOSE CONTACT OF FAR IN MEXICO. HE ALSO SENT LETTER DENOUNCI NG aN ob
+QROZCO TO ARNOL (RODRIGUEZ) CAMPS IN HAVANA FOR PASSAGE TO FAR :
+REPS THERE, LETTER, SEALED, WAS GIVEN ALBERTO (DONINGO) OF MAGAZINE
+SIEMIRE WHO THEN TRAVELING CUBA BY SERGIO (VALDEZ), LEFTIST FRIEND
+
+“OF LIRING-53. LIRING-3 NEVER HEARD CUBAN OFFICIAL REACTION. PER GEGID Ce.
+
+CB, dor- PIL NGS™ . der terse
+
+Cig cate
+
+14-0000
+
+, SECRET
+
+PAGE 2 MEXICO CITY 4314 SECRET
+REF D CAPUANO DECIDED LIRING-3 WAS WOFIRM PROVOCATION, DISCUSSED
+¥ITH LIREBEL-2 ISVESTIGATICN OF OROZCO AND ORDERED FAR CONTACT
+| WITH LIRING-3 DISCONTINUED, "GARCIA" WHO CLAIMED BE FAR REP
+ASSIGHED MAINTAIN LIAISON WITH LIRING-3 HAD HIS LAST MEETING WITH
+LIRiNG3 IN JUNE 67. LIRING-3 ven NO OTHER MEETING WITH FAR REPS -
+
+SuwCe THAT TIME,
+
+ne OF sAhnOy 196: A owat nee TAD pen ena ls sie oe
+2, ON 22 SaAncaey 19€¢ SERGIO VALSEI ToLo Linisc-2 Duar Fad
+
+- REP HAD RECENTLY ARRIVED MEXICO FROM HAVANA WITH MESSAGE FOR
+ALBERTO DOMINGO THAT THREE UNIDENTIFIED FAR REPS IN HAVANA WASTED
+EXPRESS THEIR THANKS FOR LETTER CONCERNING TRAITOR CROZCO. FAR REPS
+ALSO WANTED “PERSCHS CONCERNED" TO BE WARNED THAT THERE WAS AROTHER
+FAR TRAITOR, A GUATEMALAN WORKING FOR WOFIRM, DOMINGS 4 WHO & xo
+AWARE OF CONTENTS LIRING-3 LETIER TO FAR PASSED MESSAGE on TO
+
+"| VALDEZ. AT SUBSEQUENT MEETING WITH VALDEZ FAR VISITOR IDENTIFIED
+
+_ TRAITOR AS ONE CARLOS (SALAZAR). VALDEZ EXPRESSED APPRECIATION
+
+‘ BuT ASKED FOR ADDITIONAL INFORMATION ON SALAZAR AS WELL AS PROOF KE
+
+FAR. . TRAITOR SAYING DID NOT PERSONALLY KNOW GUAT BY THAT NAME,
+VISITOR PROMISED CHECK AND PASS ON FURTHER INFO, - :
+
+yo Be CARLOS SALAZAR PROBABLY IDENTICAL WITH CARLOS ENRIQUE
+
+SALAZAR WHO TALKED TO LIRING-4 AT CUBAN EMBASSY 22 JUNE 67 (SEE SECRET
+
+eee ane Be eae
+
+14-00000
+
+!
+:
+it
+i
+i
+
+SECRET SECRET
+
+- SECRET
+
+PAGE 3 MEXICO CITY 4314 SECRET
+REF B. AS NOTED THIS REP CUBANS GAVE THIS GUAT COLD SHOULDER
+LIRINS-3 DID NOT SUCCEED IN CONTACTING SALAZAR AFTER LATTER visit
+TO EMBASSY, INTERESTINGLY, CARLOS ENRIQUE SALAZAR PER REF F WAS
+REPORTED BY CUBAN CITIZEN OTONIEL (PENA) ENTENZA (MADE CONTACT
+WITH STATION IN MAY 65) TO HAVE BEER IN CONTACT WITH ERNESTO CAPUASO
+DEL VECCHIO, PEWA STATED THAT SALAZAR BELONGED TO PRO-CCHMUNIST
+GROUP DESIGNED SUPPORT’ YON (SOSA) REBEL FACTION IN GUATEMALA. ‘IT -
+WAS PROBABLY TO CARLOS ENRIQUE SALAZAR THAT LIRING-9 REFERRED TO
+WHEN PER PARA 5 REF G AND ATTACHNENT HE WARNED LIRING-4 HOV 67-70
+BE CAREFUL AS GUAT WHO WAS WOFIRM AGENT HAD MENTIONED HER NAME AS
+REFEREECE, ,
+4. IT APPEARS FROM ABOVE THAT LIRING-3 MAY BE ABLE TO RENEW
+CONTACT WITH GUAT FAR. AS FIRST STEP, HE ENDEAVORING MAKE DIRECT
+cowract “rtm rar visitor vHs TARED TO SERGIO VALDEZ. IT! ALSO
+APPEARS FAR IN HAVANA DID NOT TAKE ERNESTO CAPUANO SUSPICION THAT —
+LIRING-3 WORKING FOR WOFIRM SERIOUSLY. IT WOULD APPEAR I8 FACT FROM
+ABOVE THAT CAPUANO IS NOT TRUSTED BY FAR IN HAVANA. :
+5. REQUEST ADDEE COMMENTS, :
+
+a eegrenaehigwigntomsnreen
+
+na etg meet dele Re ETT AM A be rete
+
+14-0900
+
+re Fe
+
+wee aoe - i =
+
+pet
+tnoeee uns Owe SS. eps, i
+CLassiey 10 stLe HO. <sASSIFIED HESSAGE yavat cone . -
+wee 16 PIE BO. Le — 5
+rive oroOJ err. te escecn (J
+otsteor O sic.
+
+SECRET 172155Z JAN 68 CITE MEXICO CITY 4171
+
+REFERENCES? Ac DIRECTOR 64232 47 i882532929
+"pl gnwave osas CN 25I0S : hae
+ef. mEXted erty aris (0829292) wien a
+
+LIRING=3 EPUKiED inAi um EVEninG 15 JAnuART ne aisenoed
+
+an owns INTELLECTUALS AT HOPE OF LUIS CARRION VILLAS
+
+WAS DISAPPOINTED TO FIND ONLY FOUR OTHER PERSONS PRESENT. THE
+
+TWENTY OR SO OTHER MEXICAN IRTELLECTUALS WHOM, HE WAS LED 10 BE-
+
+LIEVE WOULD BE PRESENT DID KOT SHOW UP. CLIEMBRACES OBTAINED
+
+SOME PHOTOS OF PEOPLE ATTENDING MEETING.) ‘j ’
+
+2. CARRION DID MOST OF THE TALKING, INTRADUCING HINSELF aS
+A TRUE REVOLUTIONARY WHO HAD ALWAYS SUPPORTED THE CAUSE OF THE
+
+_- CUBAN, REVOLUTION, COMPROMISING HIMSELF ON A NUMBER OF OCCASIONS
+
+Im THE PAST, AND HE TRUSTED THAT EVERYOSE PRESENT FELT THE SAME.
+HE THEN LAUNCHED IRTO STRONG ATTACK AGAINST CASA DE Las AMERICAS
+FOR HAVING INVITED THE "MAFIA" OF MEXICAN INTELLECTUALS, it
+CLUDING SPECIFICALLY JUAW VICENTE MELO, JUAN GARCIA PONCE,
+EMANUEL CARBALLO AND , PARTICULARLY, CARLOS MONSIVAIS. HE
+“CHARACTERIZED THESE AS "orrgar un STC. ARD WITHOUT THE TRUE We pve ee
+zi i
+
+i
+:
+
+14-0000
+
+:
+
+PAGE TwO MEXICO CITY 4171 SECRET §peryn-
+wa Py ;
+
+TEREST OF THE CUBAN REVOLUTION AT HEART.
+3. CARRION SAID KE FELT THAT ALL “TRUE REVOLUTIONARIES”
+SHOULD MAZE STRONG PROTEST TO CUBAN GOYERNMERT AND REST OF THE
+WORLD THAT WOULD FORCE CASA DE LAS AMERICAA TO “CORRECT 17S
+POSITION” ARD ALIGN ITSELF PROPERLY TO THE PERSONS WHO TRULY |
+REPRESENTED MEXICAN REVOLUTIONARY THINKING. HE .PRPOSED THAT
+
+ALL ETaTeweereS mane OY THD MERICAN CLLZGaTiow Se STUDIED <. wie
+
+FULLY TO GIVE MORE WEIGHT TO THE PROTEST, THAT HE HOPED To
+OBTAIN FULL PRESS RELEASES FROM PREWSA LATINA SINCE HE. DID KOT.
+EXPECT MUCH TO APPEAR IN MEXICAN PRESS. 2!
+
+4, CARRION MADE IT QUITE CLEAR THAT THE PROTEST WOULD KOT
+INCLUDE CRITICISM OF DAVID ALFARO SIQUEIROS OR JESUS SILVA
+_--MERLOG, WHOM EVERYORE RESPECTED AND WHO VERE CONSIDERED ABOVE
+ANY SPECIFIC GROUP. . .
+
+Se CARRION REQUESTED THAT GROUP MEET AGAIN AS ortep as
+WECESSARY TO FORMULATE THE PROTEST AND ASKED EACH PERSON PRESENT
+TO BRING SUBJECT OF THEIR MEETING TO ATTENTION OF OTHER INTEL,
+LECTUALS WHO MIGHT BE WILLING SIGN PROTEST ONCE IT 1S WRITER.
+
+6. _LIRING-3 WILL BAKE EVERY EFFORT OBTAIN COPY OF FINAL
+DRAFT. ..
+
+A _wasiven as STATION HAS ALREADY DISSEMINATED Two ‘aTeL ‘
+. Ser
+
+a
+
+{
+I
+H
+i
+|
+{
+i ‘ i
+'
+t
+j
+}
+
+paneer seamen vn
+
+14-0008
+4
+
+}
+t
+i
+j
+!
+mee w_ . i
+: lo .
+; -
+5 ‘
+$ i
+: i
+!
+i
+
+SECRE’,
+| PAGE THREE MEXICO CITY 4171 SECRET MERE 5
+REPORTS THIS SUBJECT, AND AS YET NOTHING HAS MATERIALIZED,
+
+: STATION RELUCTANT DISSEM THE ABOVE AT THIS TIME, ALTHOUGH
+
+i RECOGNIZE THE NEED TO SET THE RECORD STRAIGHT INASMUCH AS
+: CanLicn ROPONTS CONVEYED THI IMPRESS TOs TUAT MENseau CONTEST
+WAS AGAINST THE CULTURAL CONGRESS PER SE. PROPOSE DISSEM BE
+WITHHELD PENDING FURTHER DEVELOPMENTS. IF PROTEST DOES NOT
+MATERIALIZE, WILL DISSEM GIST OF ABOVE. : :
+. t
+SECRET. SECRET
+' Hy i
+i ‘
+* : A
+~ ~ re . 1
+' i
+5 . + :
+eo: ai
+. i
+|
+! ; . :
+7 essai SC nc ay an : |
+
+epuglisnieareins ane +
+
+DUBIEC! ue Oo MENT TT Tatctee NT seer FICATION
+
+Tr
+Qt FILE mo,
+W OtSFaTe™ OF SOVETE ODl. rwenl ad.
+
+Fqousce caverowvele. Ga°t oF taro.
+
++ andiver Gate Peoctssep
+
+TEC MENT CUSPOSITION.
+
+. wa CROss AEFERRED TO THis Fee
+
+a
+
+i EEaneniedt
+
+(wCvermriers 201-vé 2028
+
+PRT + 201-798301
+, Loe : HMMA-33 842
+: , SEX 008 ? DOAN 68
+cit?
+’ occ ? ;
+. . RE FUTURE USE OF SUaJ.
+
+i
+1
+F ‘
+R 6601261736
+
+a: en Ors
+a Fie mS fom IN FE *9 Fi te
+
+- CON BGT vee reersees corvrees. SECRET
+
+or
+
+OxnmRuce
+: SECRET -
+: © LIRING-3
+‘ | ACTIOM RECEERED - REFERENCES
+Attached for Headquarters information is a memorandum
+
+| prepared by Wallace B. ROFTON on the SGSWIRL examination
+° of LIRING-3.
+’
+fr. Of oe:
+: Cet © tan cece
+
+for Willard C. CURTIS
+
+t
+
+Attachment:
+Memorandum (1 copy)
+
+Distribution:
+Orig & 2 - C/WHD, w/att -
+
+Ea . i '
+3 ~. { ) i
+
+2 oot _ _alw | AITACHME RT
+HA A- BBS79
+— | 2 Octozer, 1967
+
+bygect: SGSsIlzL Zxanination of LIZING/3.
+
+1. Prom about 1330 until 1530 on 29 September,1°9¢7, LIRING/3 iwas
+
+given an SGSIRL exazination. Rowton arrived at the safehouse ( Tacu-
+baya) with the SGSsIRi operator at 0930 that corning and remained with
+the operator until tae exazination was coupleted. Ne had not given LI-
+RING/3 any previous notice of the nature or extent of the examination,
+but sinaply asked hin,on 27 September, to keep the entire day of 29 Septenx-
+ber free for a lerzthy dicussion with gowton. Zowton introduced the SG-
+SdI2L operator as selor Albertini, ea trusted "sccio", and spent the first
+hour or so reviewing his relationship with LIzIG/3, ostensibly for the
+veucias vl alvertici. Rowton thon, intrraetire the anhiect of certain
+doubts that he hak in the past concerning iIR=:3/3's reporting, stated
+that Albertini had <« means of checking scientis&fically the truthfulness
+of LIBING/3's statenents. Howton explained thit he was particularly con-
+cernéd about the possiblity of LIRING/3 having doubled back with izeLic
+andzaintaining with them a secret agreement of sone sort to report on .
+Rowton and his activities.
+
+2. LIRIKG/3 whet into a state cf visible shock at this and stated that
+even the thought of betraying Rowtcn had never cccurred to hin at any time.
+Yhen she SGSwI2L cperator explained the scientiZic means he was to use on
+LIBiG/3, the latter stated that he could not pcssibly ‘accept this bunili-
+ating means of testing him since it was diazentrically opposed to ais
+principles. He pointed out that he had accepted Sowton at his word and he
+could mt see or uccerstanc why Rowton could not do the ‘game for hiz, adding :
+that the whole thing smacked of methods used by «CFACT and LIRING. He added .
+i that if this meant that he would have to break with Rowton, then rezret~ :
+fully he would have to accept this alternative. de explained that submit-
+
+t ing to the SGSsIRL examinetion would inevitably destroy the idealistic and
+a profound relationship which he had previously felt he enjoyed with Rowton.
+
+3. Rowton and the SGSaIRL operator spent the next two hours , ‘calming LIRING/: -
+down and finally convincing hin that he would not be compromising with his _
+deeply-felt prixzciples by taking the test. He at last consented to be ques—
+tioned on his lovalty to Rowton and insisted thet he be asked, "SDo you be-
+lieve in Rowton?" . : : | oan
+
+a
+
+&, After e brief break for lunch the exawination was given inone of the bed-
+' ro: Bs anh the apartment while Rowton waited in the living room. LialhG/3
+“al 2/ HMMA 33527 : 2e i T 7§30/
+
+i”
+ry
+i
+H.
+
+ia
+appeared to be in reasonably sood spirits after the test, although
+he was obviously emotionally strained by the experience. Rowton made
+a date to see him asain that evening at 21CO tn talk things over in
+a claner atmosphere. - - . : :
+
+5. + that meeting with LIEIN¢/3 Rowton explained that he had felt it
+necessary to ascertain as ovjectively as pcusiblp the extent of LIZIG/3's
+loyalty to bim and he was happy to have scientific proof that LIRING/3
+had not berayed nix to the LIRING's. LIXHiC/3 stated that after it was
+all over he felt Vetter and adnitted that he agreed with Rowton on the ;
+necessity for such an examination, humiliating as it nisht at first beve
+
+Be sonfecced thet ony ferrone" (fobntantions oma nomi gation’
+
+arredmed +o he
+that he had nade in the past, were due to his intense desire to produce
+
+_ for Rowton, since he still felt very sensitive about having to accept money
+from Zowton without being able to render commensurate services. He stress-
+ed, however, that et no time had he ever been disloyal to Rowton or done
+anything against Howton's interest, as sefor Albertini could prove with
+the results of the SGSHIRL. LIRING/3 promised in the future to follow Row-
+ton's direction scrupulously and assured Kowton that he no longer feit.
+unde> any compulsion to exaggerate or fabricate anything to impress Rowton.
+
+6. Headquarters and the Station may find the SGSWIRL examination disacy, sohn—
+ting in its limited coverage, but it miust be realized that LIRING/3's,
+initial reaction sas entirely negative and at one point he theatenea to.
+break off completely with Rowton because of the insult to his “dignity”.
+Although the SGS¥IRL operator felt that from a professional standpoint it
+would be better to administer the exaziration at another time when LIEING/3-
+was less enotionally upset, Rowton asked both him and LIRING/3 to go thru
+with it on the spot, feeling that psycnolosically it was' essential to
+
+make LIXING/3 sub=it, even for a limited test. Rowt:n also feels that the
+
+. test did serve as a very favorably deterrent over LIRING/3 in the future,
+when a second one can be more painlessly adainistered, ia a calmer atzos—
+phere. It, of course, also covered the very pertinent question of whether :
+LIRING/3 had been an LIRING double agent or betrayed Rowton in any way. i
+
+os oS _ - “Alen 7 !
+
+: 5 . Wallace B. Rowton
+
+|
+
+“oe - !
+
+aad
+
+DISPATCH | ees
+
+Chief of Station, Mexico City
+
+Chief, Western Henisphere Divisica
+~” BGSWIRL Report on _ LIRING/3
+
+ACT tan Br BED | CSREES
+
+1. Attached herewith is the SGSWIRL report (idens w/s/e) |
+op LIRIKG/3. - : Le
+
+2. Please note that ths 2GS¥IEL interviewer has made the
+point that the principal misfortune in this’ interview probably
+was that LIZING/3 was not tested on the fabrication of contacts
+with the IDEM D's, which was thought to be the most probable
+area of deception. '
+
+3. In view of LIRIHG/3's threat to quit working for
+ROWTON, we would be interested in hearing of any repurcussions
+or change in attitude thet may have resulted from LIRING/3‘'s
+having taken the test. We also are interested in the Station's
+comments and recommendations as to the continued use of LIRING-3,
+bearing in mind ROWION's recent report or LikshG suspicions :tnat
+L-3 may be working for J#OFIRM. . :
+
+Chester R. HENDRICK ‘
+
+,
+
+Distribution: i
+Orig. & 1-COS, Mexice Cisy '
+
+B
+Attachnents: ;
+Sport te 4 Pe. - i
+Zelrae fife -2 ft aaa | :
+
+COORDINATING ——
+
+HG Saf
+
+7 3 ecm | “RICPATCH
+14-00000
+
+Inc fo+9hs
+
+IDIEVTITY SHEET
+
+LSER A Casioe JUBADO Dal Mar
+
+ENB erties
+
+IDEN C Greek busleessman interested in
+eelling @rme te the covurmenist=
+crienisd redaiz in Guatemala
+
+WLP LMECTOER Pevelstionary
+
+ae IDEN = Cuban Coverament
+
+er"
+eevaikl,
+
+Are ty t phd IS TCL
+( to Ha eS copy
+
+vega
+
+Arr t2rafrpwisys Sim ser:
+
+SUBJECT : LIRING-} GDEN A} fas] pore
+f
+
+Sub yoct wee interviewed and tested with SOSWIAL ea 3¢ Seoteneee
+£967 in & hiezigu City wade ates Fas isterriry ene osmosed by oyna
+A. FRADTER. ‘
+
+Tks interview es comdntted in Supulek by the orariner. Watines Ae
+BOSTON, Subisct's criacion) Aeesl. was areeeed duwine suinetaetisite, abt
+
+of the interview except lor tas testing period,
+
+Subject kes net previously boon tented, and ban bed se emai wie
+aay WCFIRM represssiatives other than HOW TON, .
+
+Sebiect lo a marvied mals Mazican eitizsa, an IDEN B bp panise slots,
+Prior to recruitmeet hie apparent soliticel semiiemenis were stameririero
+ia the fay lef, bat he eas mot belierad te be ulamiticastty teveived ts intsle
+iigenre eetivities or organised pasisirel aetivides, Me was reermiiad ty
+ROWTON wader the cover of a [DEN C. Sublet bne slace bis rec ru tmess
+had ecatect with [DEN D clemenéa and with LOSN E cemueste in bie effaris
+te insert bimeelf aad ROWTCON iste tke deziced powitics, Tha inti) aul
+of this eperatioa waa to meniter cur traffic sad nick us whateer esahllemml
+intelligence information might be incidessaliy emeousered. As. bel len t wee
+eas it, iv bis own taicerncretc wny, « comemanist apmpataiser, ROWTON
+bao not indicated agy anti-commanist, aati-IDEN Zor entorevniaicasry
+
+aime.
+
+Sabjeci was heews te hove Hed aad comrsaied infsemation om wesserons
+otcasioas, ond it was presumed that cousideratly more Uses were mot yes
+known to WOFIBM. Cu this basis, SGOSWIRL coverage wos to tave tovered.
+humerous issues, cemiered oa other inieligence tavelvemest, fabrication
+of contacts with cigeificant LOEN Deed IGEN KE figures, and revnissee of
+bis etsccixtica with ROWTON. Tas isens af revuindion of Besotietion eits
+
+ROWTON was retaer compiler ts that AOWTON saver revesied hte tres
+fame, sationality, of interests to Subject, and aleo te inatrunies: Subject
+te reveal certain outsnsibis facts to varioas apouiic adi Zz
+
+The esamiacr was proventnd te Yebject aun avcoctate of ROWTON ”
+of Balen octrac ties.
+
+1
+i
+|
+H
+14-0000
+
+Page é
+SRD 869719
+
+i
+
+PROCEDUBE : ho
+
+imgpject fret refused ts take the test, besleally or tha grownde thant
+in hie estinatica his rolaticesbip with AOW TON, ae well 28 Me wasia
+way of .ife, were at varisoce elih any sauce proteaGrra. It ihe tarea or
+icur Eoare thet tais wae being distuatsd, subject aise desided se quiz
+working for ROWTON.
+
+Eventually, ower a epscific matter of hurt pride, cublecs agreed, oF
+ratner cercanded, to be trated on “Iwo geretiense-witiber fhaj mas helrage
+ieg ROW TON to IDEN E ieisiligemce anc wosther (hej trusted AOWTON, *
+following which be would break eff cossect with ROWTON. ‘Under tho
+Circumssaues AG Tol [ita 2 tht the Meet emeese wasld be to follow
+thie lead and attempt no more than a clarification of Subjects relationshio
+wits IDE} E ieteligence. The examine? 18s net optirnietic axcet ine
+preciouity vf getting @ valid test umler tiise clrcumetaices, bei atier
+tais.cg with subject for @ tine if -me possible te devalcp weet the extadmer
+Csaseicrs a reraceable and tacdaically acceptable rest covering ware ported
+involvement with any Loteiigerce service,
+
+H a)
+. The above procedure might bo vieealiaad more securatcly Mie ts
+‘ menticoed tist cece having mot with Susject, BOW TON aad the examiser
+. - had gimest no time together withcugs Subject being present, gad in was wet
+s *  pesatpie for them te converec in any language other tans Specials without
+dacagizg thelr cever, . i .
+i
+RESULTS i
+i
+Subject has no connections or commitmests eakmowasa to ROWTON with
+. . any government ug intellisonce service. He bee go inveivemnest with ths
+- LOEN E's that he wiehes t conceal igom ROWTON, and bo hae a dealings
+with the IDEN E's which sre cositrary to what be bailsves ito be ROWTON's
+interests. - i
+
+| A
+Concerning revelation to tha IDEN E's of Subject'o adsoctation with
+ROZTON, the issue itoaif was, not umtapectediy, a clowty cas. In bried,
+Subject stated that he could not really recell the exsct extent te which be
+- | aight bave revealed the iact that ae was backed by a LDS € or that tao
+2 ADER C'o name waa (ROW TON'S alias) Subject hirnesif suggested thes
+. be be suked if he was ‘informing the LUEX E's of ROWTCH's coowenventa, ®
+Sabject's way of eapresciag tha idea of “reporting on A SWIOR.. Th
+examiner ubed this question, and Subject appears to ba poem tratafel ia
+his Segetive answer to this seasiicn,
+
+4
+)
+
+14-00000
+
+Page 3
+TAD $t9929
+
+P
+OTE
+
+1
+i L
+
+1. By the end of the trtereiew, KOWTON 2.6 Zebieet aad made nial .
+Srpciniment for 6 mesting taal sare eveniag. Uncicatang thee ie ue qeear - - ce
+anlikely Urat Subject will bresa contact with ROWTON, ; .
+
+. i
+
+2. ty eae met really poseible for me ceaminey to dvcesming the
+eettc whieh Lubject velleved tae story cf ine IDEN G and the Itatien
+inL gearminer, Too examieor lewla Ured thorte sere ne real faws
+te the maistesance af ihic cover and ibzi the ccvor's caly real wegkuese
+ia its inaerently snsey piasssbility. Sanwsut senvered tc secegt ths alias
+vteo by tho examiner aud cvws imaés passing redevencss te Gaby wheather
+this was douse secense he believed want 2e wae told of incomse he deat
+Rougul tt was the inost courtecue way ig candle the uliveilon ts abt Karwa,
+ne Gig mse severas “ROIs” releremces t, tee imjuscise Of ACWTON ard
+
+the oraminer Gemancing to 340 & SOSWIRL 63 bina wits bo sind Ont oe
+know for gure who ROW TON was, Ou at least one cxcgrion ne weentliaast
+that fer oll be knee ROW TON might ever be worhiag ter POPUL, Fit,
+reference cid sot seam ontaiued, aithougs if ie concetvabss thas ta preneoe
+wae pres cocei{va; AOWTON Bae tcld the examiner thar Sablect regently
+
+hypothesized ovt ivmd tant ROW TON might be @ Sevist. i
+
+-3.. The priacipal intefcrture of this interview {a erenanty thet Smike
+foct eae oot tested ce innricaticn of contacto with LOEN De. This wae -
+thegght to be the most prooible area of aslepaive ceteutica. 8 atanld
+be poiated o«t, however, that the Statics clready keows teat Subjact boa .
+fabricated ouch comacts, sad the moet liseiy contribution af SUNWELL -
+would nave been merely a ferwmer aotumalaticon uli exuaempies of Evie ei -
+vasic vice. IH might alas be peieted cut tnt Subiest’s “resorting” ty Gace m
+bas dealt almost exclusively with bin ows activity, keace bie fabetcatica
+ane been more an irrimtica than & treni. 5 4
+
+Paul! NAPOLILLI
+
+|
+|
+‘
+
+1
+|
+i
+i
+!
+
+{
+
+i
+
+aeeaeieana Rar Staal ate
+
+~N
+ee ae
+
+140000005
+
+_to Fowosl cartaie scteastale tacts t vertons epocific tnaivtdanls. i
+
+44 Meceenzen 8969
+
+SUBJECT 1 LIQING-3 ODEN 4} IRD (69019
+
+Subject whe tetervicwed aed trvesé wHA CUSWIALL en 69 Boscastle
+h¢¢7 ina Maxiso City ese ote. The isteeview wis sequent oP Sp aeed
+&. FRADYER.
+
+Be Boo
+diy alk
+
+The incerview wos toadected in Spazish by Gea auarminer. U
+ROWTLON, Sebject's orincipal agesk, wha pregect dering mbomes:
+of the intoyviow except ise the touting partod, :
+
+1
+'
+|
+1
+'
+‘
+|
+'
+{
+|
+Sent coe nearer ne a ae a EY OR TREES OC
+
+Bob tene beeobetinaened pretties eo Sonata end ban hed an nominee t elite
+aay W OFM ropresersetives “char then ROWTSK.
+
+i ,
+Select ic a margiod mele Mesicna citisea, an IDEN B by pralassion |
+Prior to scczudtmwrst hie apyarews pt litical semiiaucie oore come ys
+ta the far ich, but he wre a0 belcwnd ts be sigmlinseily iaweiwed rm iivwle |
+ligoace ectivities or orranized political activities, Ue waa reeruusd by
+ROWTON wasier the cover ofa IDEN C. Sublest bao ainge ble recrmlomeat |
+bad coaitmet with IDEN D elemenis e2d with IDEN E eleusnese im wis aliorts
+
+pes the Genieec2 - aaa
+
+& ineert himouli oad ROW TG iste ths Gesiree positisee, Ths initied “=
+of this opvratica was ie moniter ccc tredis aad pick np whatever aditerd
+imtelligeses tnfeormation might be incidentally caccumiered. Am Gipjoch wan
+
+aadis, in his ews idicsymerate way, & Commesict evengathisas, AOWTON ~
+bas nui indicaied aay Guil-commeciei, eoIDEN Tag enterevsiscsiesssy |
+alas2.
+
+t
+‘
+Subject was kaown to kove ited and conceaias iniormstios om exmmaress
+cecacives, and is vas presumed tut considerably more ides were Fal |
+heowns io WOFIRM, Os this basis, SGOTERL coverages wes to hive gevared
+tmmorous issues, cestored em ether lnigligenes urcivarmeat, iatritaten |
+of coatacte with significant IDEN P acd IDEN & figerca, ond reveiaticn af _
+bis essoctatica with ROWTON. Tho isoue of revelation af associndga with
+ROWTON was rather comples ia that ROWTON aovor revesiod bis tires
+Bame, nationnhty, or interests to Sabjost, aad also be testrested Subject
+
+The é1amines wes proseatod to Debject as ea esooctate of RO
+of Balian oxtenetian,
+
+at eens ee ee ter eet
+—
+14-00000
+
+coe cnammmarenien nee lee Metts OEE SORE Ose Oe emo. ee EES va me
+
+Pegs 2 ,
+Ab 7919 :
+
+Foslect rot rainsed to take tba taet, bastraliy és hie georeis ©
+ia bie ostimation ste velaticnania wits RO STOR, as eels ae hfs wi
+way of lila, were at variamece win buy gece presacure. Ja tha thre ag
+four tuere thal ints wre eelag classes’, Sabisnd cles desbded te ws
+working for ROW TOT . !
+
+Eveawelly, ever & spucific metios ef baet gvicc, Gubleet’ megsead, ed
+retagr Gamnendod, td bt isgid om “rvs carettoase<witrae? fas} are ieseape
+tag ROWTON to LOEN EF intelligeacs aad whether (ha) ousted ROY TOR,
+folicwing wiier ne would break off coptsst Fi ROWTCOM. Unier Ga
+clreuramates ROWTON jndzed thal the bast cemen meet breiae fatto
+tate 120 odd allems: uo mere thas A cingification of Schyeetla eelstinockip
+with 1OEN E teteliigence., The sremiany ques mot optimisthe abon tee
+poesinility of getting  walid fast under taess clocenivinines, bot cite
+talking with Gabjiett lor o time ig was psagibis te Greiics weet fee andintes.
+considers & roasucacie end tethatcaily acceptaic tect corering sarrgertad
+iavolvemert with sap isteiiigomse cerviea, ; ;
+
+The howe procedure might be vicuallsed inere accurately Lf it ta
+mentioned that cere having mot with fubiert. BO! TOM ond the eaaustace
+bad almost as time togethar withent fublect being pretest. sad it wae ane
+possible for them ie couverse is azy inagungs chan? tan sepnelak wathcis
+damagicg thealy cover.
+
+j
+L
+RESULTS i
+,
+Subject has as caseections of commitmacts wehuswn t ROWTORN vith
+aay government of ixtaliigsses service. Ke bas su inopivemest with tho
+IDEN Z's thes be wishss tz eoaces: feos AOW TCH, axd be ba oe dealings
+with the IDEN E'e which are costrary te viet be beileves to he ROWYOPR'e -
+isferestos. I
+Coscerting revelation te ths IDEN E's of Sublcs2's accoctation with
+ROWTCH, the lees Ueclf waa, sot smsepertediy, acicety can. fa boiad,
+Bobjoct stated thet bs could wet roslly vocail the eamct actus 9 which bo
+might Asve revealed tre sact thed hs wna bschoed by 5 LOE C ce Grd ike
+IDEN C'e name wes (ROWTON'S altas), Seibject bimmests seggpeted has
+satpecta ay ol copet chan tha idea of tettatng ee nowie te
+Sabject'c way of oxpresuing the ides of “reporting ca“ ROWTOR, This
+onaminst osod thle qucstiow, aad Subject aproare ts ato bees Grail ta
+be eogetvo answer ts tais qaseticn, . :
+
+iN : | . i
+i
+
+i
+
+Page 3 cote , j
+
+. has been more @n irritation than 5 throat,
+
+Bid 9919
+id
+
+MOTE : i
+
+i. By the oad of the imorvies, ROWTCK ead Subject had rede en
+Brpelatmesnt for a meeting tat same eventos, indacesing thiaz it to qubis.
+unlikely thet Subject will break ccomet with ROW TOR, :
+
+2 Beas ad’ sealty poesibic fcr the axuamiser to éotermise the
+extent to which Subjost peeved the stery of ine IDEN C end tra Italian
+SGGWIR L eaaiminer, The examines feels that thare were so real flaws
+in the msiztesance of this cover end that the ccrer’s only reni weekzesn
+is its inAerently shaky plausibility. Subject appsared to accept the aling
+uaed by the entin nisee and even tans passing relarentes to > Ikelys whether
+cle eee Cwee Lee ee me elle alee Se ee Fel ee Leet Se gee
+
+th
+Ne did nase several “bart’ references to the lnjustice of ROW TUN and
+the erarminer demanding to ose & SGOSWIRL on tim when he did cot ewan
+
+bnew fer acre who ACWTON was. On at least com ax caaelios ba inceticned=
+
+iat foe ail he knew ROWTON might even ae worxing for WOFIRM. Tria
+
+resereace did ect soem strainnd, allhough it {ts ceacetvable that its purpose
+
+wee provecativcn; ROWTON bac told the examiner that Subject recently
+by putbesteed oat loud thes ROWTON might bo o Sovist.
+
+3. The principal misfortuns of this interview fa probably that Sube
+ject waa tnt tested cn faprication of contacts with {DEN D's. ‘tbis was
+thought to be the most probsale area of extensive deception, Ik choald
+he pointed sat, hooever, teat the Seatios wleeray Renewe Chat dnbiogt haw
+fabricated auch contacts, aad the most likely centribstion of BO3W TL
+would bawe been morely a further occumuiston cf exramplve of tals same
+basic vice. if might aise be pointed out that Subject'a “reporting” t dats
+hao dealt alrsost exclusively with his own activizy, hence bie fabrication
+
+Paul 1. NAPOLILLI
+
+aght 12 wae the nicst ceurtecue wry to banale the situation fe mot keown,
+
+R
+sate
+
+cane peeaneneengmanmare ene tctnuaanneeminsen eeinpemamemetinvnun ream timatn i o8
+, .
+
+SECRE®
+
+Chief, WE Divieica
+Calef of Station, Mexico City ‘
+AQBATIC/Docuncatst lon
+
+Action Required; See Por 2. : ‘
+Beference: w2B°5614, 12 October 1967. : '
+
+3. Returned herewith is one signed receipt as requested ia Refsreuce, Par 3.
+
+2. Per Par 4 of Seferonce, tallece B. ROSTOS hes cteted thet J.1ZIEG"3 could
+get backstopped cocements st a cost of 1,000.00 H.8. (350.00 08) plus travel
+
+ expesse. These are regional type “Pessporte.” Something chove an identity card. .
+
+ROUTOM sugsests thet tv<o or three tdentificatioas be provided of euch geasral
+terms thet substitution voxr’d be fairly essy. thet be neade for etch docanmnt
+eve six photearephe full face ead full profile, beth left ond riskt, aloeg with
+@ complete physical description. The cubject should be 45-50 yeare old and have
+@ Mexiceacr Letina epposrasce. . :
+
+3. Bleak Wexlean Possports seem onlikely ct this tine because of our limited
+dealings with the Foreign Office. We suggezt you talk with the Hexicen desk on
+this point. :
+
+Attacheent :
+1 Receipt B/u
+
+Distribut ica:
+2 ~ C/woscnE, w/att
+2° Chm, ule att
+
+OT ehhetceegenettntany ame —ateennete
+
+ee RR eee enn Rene HN iE mStar hs tenn Mer Ft vat canes etine tr ceta
+?
+
+eo oe
+ate,
+
+S D
+
+ISPATCH
+
+= : | i
+
+a
+
+- OASSATOE FEKESSING Atom
+SECRET
+
+osc quanto Desx
+(hb 52GE INDEXING
+
+Chief of Station, Mexico City . aa
+RING-3 Rodolfo“ REYES-Cortes, Carmen” NOLIN.
+
+LOZADA de Ramirez. <4 =
+i
+
+a Gig cit GE eee
+Addressees' comments - (see para 5) : }
+
+MEXICO CITY 3351
+
+1. Forwarded attached are three reports dated 23, 28 and 30
+October written by Wallace B. RO#TON on his contacts with Rodolfo
+
+NA on 27 October, passing
+himself as a wealthy Greek client of LIRING-3 who had called at
+the latter's house to pay for a painting he had ordeted but had
+been invited by LIRING-4 to come to the party. As previously agree
+with the Station, RCWTON directed his main attention to REYES.’ .
+The latter has resided in Havana since 1960 when he founded the
+Cuban Ballet Folklorico. Until recently REYES has received the
+monthly salary of one thousand pesos from the Cuban governnent,
+and, according to LIRING~3 is well acquainted with political and
+government personalities in Cuba. As pointed out in Reference,
+ROWTON found REYES to be apolitical, a superficial sympathizer of
+
+- the Cuban revolution and a great admirer of American choreography
+(he told ROWTON he would very much like to go to New York to see
+some of the shows there.) REYES complained about the relatively
+low salary he is currently receiving from the Mexico City Belles
+Artes for organizing a Cuban Ballet Folklorico show to be held
+in Mexico City next December. He readily agreed to ROWTON's offer
+
+:
+
+MICROFILMED (CONTINUED)
+Attachments: NOV 241967 ;
+1 photo / i : _
+3 contact reports DOC. MCCAY. SER: Ry AN! 16 99S
+Distribution: ethfhege -
+
+fe
+- CWHD, wYl cy ea att /¢¢ west 'o
+oe - JMWAVE, w/l cy ea att wo eee Q0/-
+
+778304
+t
+
+QATT |. (3024
+DOPAFON SYMSOL AND NUMSER
+OASSFRATON .
+
+AE 7
+6 November 1967
+
+201-798301 |
+
+14-0009
+
+TrSmaten Stwace AND NLMETR
+
+COMTINUATION OF }
+DISPATCH co HYMA-33442
+
+to be his patron (to “help hin out financially") if this could be done
+on a very discreet basis. He said he hoped to put on another Cuban
+show in Chile, before returning to his family in Havana. LIFEAT
+coverage of LIRING-3's apartment for 26 October showed, .incident-
+ally, that REYES maintains close enough relations with Silvia
+
+DERAN (of Lee Harvey OSWALD fame) to be invited by her to hey
+
+house for lunch. i ;
+
+2, | Carsen MOLINA de CARRASCO is the leftist wife'of a
+prominent local neurosurgeon, Juan CARPASCO with whom she spent
+some yeas in Cuba. Eoth are Mexican citizens. According t@ what
+she previously told LIRING-3, Carmen MOLINA helped gather some of:
+the information used to defend both Victor RICO-Galan and the
+ROSENBERGS. With the help of Alicia ECHEVERRIA ard the' latter's
+uncle (who is the current Mexican Minister of Interior) Carmen
+obtained a prominent position on the Mexican Olympic Committee
+in the publication department. She is a close friend of Carmen
+LOZADA who is planning to divorce her husband, Enrique RAMIREZ, a
+Yabid pro-CASTRO Mexican chemical engineer who is still in Cuba.
+Carmen LOZADA's father, Armenegildo LOZADA, a noted Mexican |
+physician is married to a pro-CASTRO Cuban. According to informa-
+tion made available to LIFTER-1, in early 1967 both he (armenegildo
+and his second and present wife are bard core Marxists.)
+wile, ura marla viciuita ue ia CALS, a Covau, cial acco to
+LIFTER-1, is a personal friend of several Cuban leaders including
+the CASTRO brothers. Husband and wife naintain a close relation-
+ship with the local Cuban Ambassador, Joaquin HERNANDEZ-Armas.
+Carmen LOZADA apparently also started out as a hard line Marxist.
+Information dated 1961 from RNLABILE indicates that she was |
+active in Communist organizational work at UNAM and participated
+in Cuban led activities directed against ex-Peruvian President
+PRADO. Although ske is stitl clearly a leftist, Carmen may not be
+quite as red now. She told ROWTON, for example, that she felt
+nothing but disgust for her fanaticaily pro-CASTRO husband and
+had strong resentment toward her step-mother. Per LIENVOY, July
+1961, Carmen was in contact with Teresa PROENZA when the latter
+was at the Cuban Embassy in Mexico City. : vat
+
+i
+
+3. At a private iunch with Carmen HOLINA, 28 Cctcber,
+ROWTON explained that he was a Greek leftist (although ‘not 2 KKE
+nember) involved in lucrative international business. He said
+that because of the current situation in Greece, it was difficult
+for him to operate in Mexico as openly as he would like. He.
+could thus use MOLINA's help in obtaining certain types of
+information and making discreet contacts with Mexican government
+and business circles. MOLINA agreed to do what she could. She
+stated that she was not a member of any Mexican or any; rother-
+Communist organization, but merely a leftist sympathizer . She
+also stated that she currently maintains little or no contact with
+the Cuban Embassy. LIONION-1, to whom a photograph of, MOLINA,
+REYES and LOZADA (copy of which is forwarded attached) |was shown
+Stated he had never seen these three persons enter the; Cuban -
+
+Embassy. . }
+
+. H
+4. Following the developments described above, $tation
+plans to: : . -"
+
+per Reference, he may be recruited by ROWTON either under
+false flag as a Greek leftist or in alias as a WOPIRM | .
+member to become a reporting source in Havana. Peamary,
+
+Botivation in REVES’ case would almost certainly be te
+financial. : . |
+
+a. Continue to develop REYES to the point pie
+
+i.
+4
+
+ASSO RATION
+
+SECRET
+
+14-00000
+
+F Sa fom $1 CRSL AND OMBER
+
+CONTINUATION OF
+
+DISPATCH EMMA-33442
+
+b. To continue social development of MOLINA as
+access agent to Carmen LOZADA (the two women are planning
+to live together). “and a possible entree to the Mexican |
+Olympic Committee and foreign olympic delegation.
+
+e. To attempt operational development of Carmen
+LOZADA directly via ROWITON or indirectly wia LIRING-3 in
+the hope that we can play on her “disgust” for the
+fanaticism of her husband and her dislike of her mother- wee
+in-law to elicit information on the activities of the -
+Cuban Embassy in Mexico City and its personnel, and,
+hopefully to attempt her recruitnent.
+5. Station would welcome addressees" comments on thi
+above. Headquarters attention is attracted to KOWTO%'s report
+of 30 October which quotes REYES’ statements to the effect that
+some members of the Mexican colony in Havana believe that
+LIRING-3 may be working for WOFIRM (or for the CASTRO government. )
+
+QBs been
+
+for Willard C. CURTIS
+
+14-0000
+
+H
+i
+i
+;
+
+: ol
+B 1
+26 Cetoter,1967 ;
+.
+
+Subject: Wallace 5. Roston Contect with Redolfo reyes Cortes(Sub;ect).
+
+i
+1. EBowton met Subject cn the evening of 27 Cctobd=- 2r,1967,: at’ a@ smali
+party at the home of Carmen Molina de £EETERG3 2S Cal ¢ Amsterdan 252/68.
+The only other persons at the party vesidesss be? S55! ant 7g ausht ter of
+Carmen Molina were Carzen Lozeda and Srricue Canuiéas, the, latter two of
+whom had returned fron Havana sone 30 days previously. All the adove
+are Hexicans who have spent several yeurs in Havera end are social ac-
+quaintances of LIKIHG/3 and LIaIiG/4. :
+
+2. KCeTCK crashed the party in the company of LIRISS/4 according to «
+previously agreed plan. LIRING/3 arrived at about 2030 alone, explaicing
+thet ne md had to leave iIXIiG/4 at nome to wait for an important client
+whe wes roving 2 payecue vr one OF iixiG/3's painticgs thet he had re-
+cently purchased. LIIho/3 was to add taat LIRING/s would ‘try to persuade
+tris client to accozpany ner to the party so that te could meet everyone,
+
+“and have a Grirk. L1kIhS/3 told zowion he was certeis that Carsen Kolina
+
+would heve no hesitation in invitiag gowton to stay once he got into the
+apartnrent. :
+
+3. Rowton and ‘LIRGNG/4 arrived about 2130 and fo.nd the party in full
+swing with LIZihG/3 and Sduardo Canudas struzllins to eet the pienosmaph
+operating ( they eventually borrowed another and played several: ¢ Cuban
+revolutionary records.}. Rowton was introduced as Sr. 'Sarris,s Gresz .
+Dusinessman ard long-standing client, and felt at tae end he was able’
+
+to convince all sresent that he actually was not from wCLADY (althcush
+most apparentiy had that inpression at the outset}. Eowtonimanaged to toss
+out a few phrases of Kussian at the righot time in the direction of Carmen -
+Kolina to izpress her ( fortunat@ly ber gussian is weaker even than Zouton'?
+Kowton spoke some nglish with as good an accent as he could manaze. Carmen
+Molina volunteered to hin privately that she had a great many “progressive®
+friends in the U.S. Rowton was able to insert severzl comments about the
+
+! -
+current political situat:on in Greece that was forcing him into a virtsally
+“clandestine exiestence in Mexico, as well as elsewhere. averyone appeared
+
+to sympathize wits Rowtcn and ceased asking any personal questions.
+
+&. Redolfo Reyes Cortes, apparsntly the guest ‘of hosor, arrived at about
+2300, apologizing for deine late and explaining taat te hadi to attend a
+
+Bencorial servi % t RY . op.
+mo ervess (un acto) for Che cuevara. ize refusedell offers of liquor
+
+ce wen Senkneesn ORE eee teen tete
+14-00000
+
+i
+
+2.
+
+mie eee ap petalenenee
+
+insisti:g on a Coca Cola. He appeared fenuinely harry to meet Ro«ton end
+expleined in quite sericus tones that he was engazed in the trainicsg oz
+a Kexican ballet srcup under the auspices of Bellas artes to present a
+perforsence of the Folklorico Cubano in the near future. He added tuat
+he had been the founder of the Folklorico Cubano in tre early, 60's in
+Havana and had a wife ( ballerina} and young daughter in, Havana when he
+was anxious to return to.
+
+5. Since noston felt taat sodclfo wes at the aozent the dest target for
+assesszent he invited hia to join him in visiting the Sefiorial nigst—-ciud
+to see the Greek dances put on by 4 group of Greex cxusicians. xoéclfo
+accepted eegerly and they both left the party et about C030. Rovstcn had
+perviouslyz ctteired the office telephone of Carmen Helina ( 34-60-32, ezt
+38) at the office of the Clvzvic Conzittee where sae wasi working © end
+had promised to take her to lunch the following day. Rowton had also zotten
+in a few private comments ( i.e. ccnp)isents)- to Carmen Lozada so tuat. ae
+could follow up at a later date if this was considered desirable. Ze found
+Carsen Lozada in excellent Spirits and et tines definitaly provocative,
+despite her current marital situation ( she had that same day noti€ées
+her tusbaid, mrique Ramirez, a civil engineer working in Havana, that she
+“had-begun divorce prodeedings). : 1
+. : i
+_ %. shen Rowton and hodolfo Reyes arrived et the Seiorial, they were refused.
+entrance into the main room since 2o0dolfo was not wearing a tie and gecuet..
+Fortusazely however, the Greek musicians, in their native costumes, sere
+relaxing in a corzer of the ertrante loddy and Xowtcn was able to intreduce
+Rodolfo eyes to them and speak enough Greek to convince. Reyes that he.
+knew them well eri was himself a Grrek. The musicians, who probadly 23~
+sumed xXowton was a Greek-americen, did not speak enough Spanish to taik
+directly to kodolfo. They invited zowton and Rodolfo to return on 31 Cet
+when they expected fever people in the audience and when) they could show
+oe Rodolfo some of the Rost popular Greek cances.
+
+97. Rowton then invited Rodolfo Reyes to the Kinneret Restaurant for a-
+late supper ( no food was served at the Carmen Kolina party) and he was
+i + able to continue his conversation with hin there. Rodolfo revealed that
+; - he (Plans to visit Chile in mid-Jecember 1967, to organize a Folklorico
+— Cubano group there, and then return to davana. de said Rowton could con
+. , tact bim daily at the Sallet Folklorico de Mexico from 1100 until about
+4300 and g3ve the telephone as 21-08-18 or 21-16-09. Ee bppearea frou his
+evsversation to be a n admirer of the Cuban revolution ahd Castro although
+: , : : ach 74 hie /
+
+i
+j
+
+at no tine cic he esress and strong anti-<«CLaDY sentinent’s. Ee coxplained
+at one point cof the meager compensaticn he received for his services at
+
+the Fokklorico in Mexico City uad caid thet he had just about enowsh money
+to live on ena help support nis parents ( he remarked that his fasily cores
+from San CristSbal in Cuiapas). Howton, explainiog that he hed brought
+
+a number of LIZING/3's paintings to help hin with his living expenses as
+well as because he liked the style, statecé that he had once esrpireé to be
+an artist but hed drifted off into business and somewhat regretted this
+abandcunment of art, despite nis lucrative dealings in international trade.
+He took this opening to offer to help Rodolfo financially from‘tine to tine,
+but on a very conficential basis. Rodolfo reacted spontaneously with great:
+expressicns of gratitude, assuring Zowtor that no one would learn of Aow-
+ton's interest in him and his fanily. Howten made no commitment but indi-
+Gated Vuab Le voulZ concider helrine Podolfo with his living expenses while
+he was still in Hemico. : ‘
+
+'
+
+8. Rodolfo Reyes is ebviously dedicated to his art and appeared to Sevton
+to be a seriozsminded ger choreographer. He showed a certain effesinite
+manner in his gestures and remarks ( speaking only in spanish } character-
+istic of many persons in his profession. He accepted an invitaticn to
+meet again with Howton at 2300 at the Kinneret Restaurant on 31 Cctsber,
+1967, so that Howton and he could revisit the Seforial night-clud to see
+the Greek musicians pepforn, : oO
+
+i
+
+i
+
+Rowton
+t
+
+Pook
+i ay
+
+vara cone Meee eT beenn
+
+‘
+'
+;
+!
+;
+
+ol,
+
+~ VTP 30s ©
+
+a
+
+14-0000
+
+, \
+5 “ te
+} 3 T.
+Poa i
+ig
+: =
+t ‘ "
+parce ee ete en a pee ene es ntti ee ae cee fC oe
+—-
+
+Coe
+Caxenin
+
+“ho Dada
+
+«
+
+(iv0s
+ducsau
+
+wget
+Han OFS
+
+Ex
+lem
+
+S 4 : 7 HANA 33444
+wg USES) y tol-P Ry
+
+14-0089
+
+tt
+
+23 Cctobver 1967
+
+1. LIRINS/3 reported to Rowton 23/10/67 that Carmen Lozada, TO=
+logist, and Canudas (fxu), chemical engineer, visited bis hone evening :
+24 Cetober in company Carmen Carasco. LIxI:6/3 and /% state tiezy knew :
+both Carmen Lozada and Cenudas in Savana since 1961 (both are Hexicans)
+unée- contact with GCC end were surprised to learn froz.then. that they
+will not return to Cuba because of disillusionaent. H i
+
+! :
+2. Carmen Lozada stated thet she will divorce her husband. @urique
+Racirez, a civil engineer, still in Savana and resune work in Foly-
+tecnico in Kexico City. a ;
+3. Canudas informed 1/3 that mutual friend Rciolfo Reyes-of the balket
+felxlorico, such to everyone's surprise,will returc to Cuba rext xonth.
+LIHING/3 pro-ised Howton to set in touch wita neyes to deternine moti- |
+vation for return. L/; surnises that real reason may be Reyes disgust
+with family in Mexico and desire to be reunited with his Cuban wife
+
+who, accordirg L/3, is talentec and very attractive. ' : 4
+parents who 4 i
+&, Carmen Lozada inforsed L/3 that her fuxitzsvery close to indassador ‘
+
+xeexx Hernandez Armas(wico frequent guest at their nome)iwill te dis- i
+aprointed to iearn of her decisicn divorce her husband and renain in
+Kexico.
+
+MICROFLMED
+HOV 2 4 1967 |
+
+DOS. MIGKO. GER.
+
+'
+| etn ent ater
+30 Cetover 515 67
+i
+Subject: Report of LIKING/3 Suspect éffiliaticr with WC?Tan.
+1. LIRING/2 reported to “owton at C900 on 30 coteven 1967! that he
+had finally senged to have a private talk with Rodolfo! Reyes Cortes,
+bis Mexicen chereograpner friend, ou the afternoon of 27 Gctover 19673
+and that, ir the course of conversation, Zodolfo xeyes' had revealed
+to LIKING/3 in confidence tuat the reason why the LI2iNGS had assumed
+a rather cool attitude toward LIXING/3 over the past year. 2odolfo
+Reyes explaized that the last time he was in “avana he md heard rumors, _
+arong bis friends in the Mexican colony, that LIXIiG/3 was working
+“either for «CrIzM or the Cubans". Rodolfo went on to say that the
+origin of tors rumor, as lar as he could ascertain, was the fact that
+LIRING/3 had nade two trips into Havana for no known specificreason and
+at his own expense. Rodolfo Reyes, indicating that ae himself did not
+: believe the rumors or, at least, did not care whether they were true or
+not, commented to LIRING/3 that other menbers of LIZING/3's profession
+were naturally jealous of the success of anyone of their group and were
+always quick to draw their own conclusions.
+
+2. LIRINS/3 cocmented to Rowton that, although this news had shaken hi.”
+and LIRING/4 badly at the time, neither of them cared ‘particularly whet |
+‘ . the LIRIKGs thousht of them, since their own conscience was elear.. II-
+
+RiNG/3 adced that it was important, however, to continue to develop: bis
+cozmercial ectivity in Chiapas ( especially since acdolfo Reyes' home is
+by coinciderce located in San Cristébal) so that word ‘would gradually.
+_. filter back to the Lislics that he actually did have financial resources
+outside his art production. LIRING/3 continued that obviously the LIRINGs
+did not have any specific proof or they would long ago have cut off all
+“+ > gontact with him as well as LIRING/4, He concluded that since the LIIsGs
+_ had certain suspicions, they navurally warned all his \friends and former
+
+an . with him until their doubts could be resolved.
+
+a “3. In reply to Rowton's query LIRING/3 stated that ada Reyes and Carmen
+Molina (separately) had commented to him that they sere favorably inpresseu
+by Rowton ard dic not voice any suspicion of Rowton's ‘bona fides (as a
+Greek leftist businessuan). Carmen Mobina, in fact, hdd gone so far as to
+
+sbow some irritation that LIRING/3 had not introduced her to Rowton pre=-
+viously since she was anxious to develop sone sort of lucrative business
+
+a
+
+4
+:
+
+14-0000
+
+. i
+A 2. |
+: . |
+deasing witn him, Carmen Molina ccanented to LIZI5G/3 that she felt
+sure she could help xowton in his business and political preblegs and
+at the sane time make a little muca-needed money for ber own living - a
+expenses. : , ‘ . ve
+
+4, LIRLiG/3 continued that. he had been maintaining discreet ‘personal
+contact with Carmen Lozada over the week-end ( he commented thet iIRING/4
+has already shown some sisns of Jealousy and thereZore he md to de careful |
+-_ --..... -. not to_give-_her_cause..to_distrust. him)..-LIzIN3/3 -Stated that Carmen Lo---....- -.--
+: zada had told him that her father, a well-to-do Mexicen doctor residing
+in Coyacah, had remarried tand that her step-notner was a Cuban sicentist
+uc Led dived wauy year:: 2n Mexico. She added that both her father and
+step-nother were on excellent social terns with Ambassador HerrAnéez Armas.
+' She revealed that she oad already notified her husband, Mnrique Ramirez,
+tk:-t she intended to divorce him, and she expected a storm of protest bot:
+froz him ( in Havana) and her father and step-mother, both of whoa were
+“puritanic” despite their "progressive" convictions. She added that she
+expected Zurique Ramirez to rush over from Havana as soon as he received
+her letter and to appeal to her fzther and step-zother to save his mar- '
+riage. She, however, insisted to LIkIiG/3 that she had nade up her mihd
+that she woule go through with the divorce. She added taat for this reason
+she dia uot wish to live with ber father and had decided to stay with.
+her friend, Carmen Molina, until the divppce papers were through and ‘the
+storm had blown over. She added that she did not particularly like being
+
+a house-guest in the smali aprtment of Carmen wolinc, bat at the soment
+- phe had no choice. i : ‘
+
+Wallace 3. zowton |
+
+an wae
+
+i
+
+‘
+2
+t
+
+H
+i
+i
+I
+
+14-00000
+
+2 /
+
+DISPATCH | ..2 7.
+
+ACTEM RESUIRED - REFERENCES , .
+
+Forwarded under separate cover is a letter ani photograph
+
+rgceived by LIRING-3 on 2 October 1967 from the mother of Rene
+
+. Cant
+wo 44OCHOA Funez iit:Honduras for reaailing to her son in‘ Havana, © 64
+i
+
+wCaua is a nonauran revoiutionary. . sty
+
+Cs r fle Tota -
+for
+Willard C, CURTIS
+
+Attachment:
+As stated above, U.S-Cosy
+
+Distribution: ;
+Orig (& 1 - C/WHD w/att 1 cy, u.s.c. . : . ;
+" 1 = COS/Tegucigalpa w/att 1 cy, u.s.c. i se ql
+
+14-00000
+
+f MicrGFomEp
+Let 31 167
+
+a
+
+ER,
+
+pgauagaaasn NE we eT ee
+
+aw” Lad SS Y- LF LI 2
+
+“3.
+
+4y
+
+. an ‘apcha =p 41, 7
+IVR MIA
+
+Ey O8NOD - vara) Pp ype a)
+
+‘
+ee
+
+pparests ara P Ia
+menor paste PH
+cand
+eveteeemane
+
+: :
+
+Sok ee ize ce
+
+ken a EPBEI LV AT LI an
+f
+
+ev rensemeneeen
+
+\
+
+nee
+aan eaten ~~
+ign tea en 4, :
+.
+eee nn
+
+. Ae De
+IR Aen!
+2 nas wpe aoe Daher » tn dow epitule
+om iktg fen OMG Fang erst, Riz
+
+: oe fee Alley i eee Fanilez, 5 3:
+bow ruts ba face rel abe. baniadiee a a
+
+Gorm sepeeguis 2L & Fpl 4 $6 ita
+
+Suiido hess, 1 epudia! posi Tiara
+Pesbelhy meaniley beh ack. wed ri
+myth Rogen imei, fr Aga! soba. regalo,
+re ne pers doe” set yoy ag |
+
+die geste: te i
+Ma weston, tiheu, CE ewe ae
+Aveguclle pleding, Ferenc Cf. ewleey
+
+Sor fanye vce AL GL Pak
+
+tieceveve ho se foeteg
+nope) alee fy, ‘
+
+© vaeaes wa, see
+
+ca fips A Grernels ema boar,
+
+tary res Rrtscbe. i bey fe
+de dyo hphe dy Genet EC cle, ber, tee releds i ie »
+
+rh ome Accelee Patencencebal 4S.
+
+i
+|
+
+14-0000
+
+fetes eee geen
+
+i af
+4
+
+: .
+' ‘ 1 not
+1 . an
+i
+i
+'
+i
+i .
+i
+| .
+
+1
+
+14-00000 . o-
+
+aoe oe Stee Bae tyoRe af ; a ra - coe ee
+
+wos Dives OD ws tf os
+lerioe Ck assieres wessace 2
+
+Titel CoPsEs
+
+Crasssy To FIVE 82. 2
+ett te tee ot. care
+oree mepE} ect. -2 evauce 0)
+
+pesTesy Osc. < a
+Se oa
+
+PERSON/UMIF ROT IFIED
+
+ADVANCE COPY
+
+j RID COPY Cl esiees Chssersee DB roses
+
+Mex!
+
+2
+SECRET 15¢ @oRE CETE MEXICO CIT 2476 monente
+NICE a some ADICTS
+DERECTOR, SUATEMALRNS DOS. Mico. sen, .
+
+oa}
+
+’ LEAL nENTIOKED Kenceve? PEREIRE-CHHOM LIRISG-3 KNEW IN HAVANA 1S62-84
+i
+
+PERUMEX vo
+| G1. I INITIALATALKS WITH LIRING-3 IN LATE JULY MOISES (OROZCO)
+
+AS SPANISH REVOLU iwvoLveD IN SUPPORT GUAT REVOLUTION) Now
+
+i
+
+ Liviss MEXICO CITY,’ OSTAINED HER ADDRESS FROM SRMESTC
+
+: (CAPUANO) DEL VECCHIO.
+
+Be MURINS~3 SPENT FOUR HOURS 13 AUG WITH PEREIRA AND 17 YEAR Bae 4/450
+
+ap “ARMANES PESEIRA WHO CLAINED HE RECEIVED GUERRILLA TRAINING CUBA. .
+
+PEREIRA STaTEo HER SISTER“OFIa'PEREIRA CURRENTLY WORKING CZECH EnaassY 2
+
+| WAVAMa EXPECTS TRANSFER CZECH EMSASSY MEXICO CITY IN "NEAR FUTURE .(D01 W3av6 i)
+
+i PEREIRA WHO IN PROCESS BECOMING MEXICAN CITIZEN SAID SHE STILL 14
+CONTACT WITH GUAT REVOLUTIONARIES AND HOPES CONTINUE SUPPORT GUAT
+
+" REVOLUTION FROM MEXICO AS “MATTER OF CONSCIENCE". SHE FELT LIRING-3 | Oo
+SHOULD MEET GUAT FRIENDS WHOM PLANNING INTRODUCE IN WEXT FEW pays. | oo
+
+3. REQUEST ADDEES COMMENTS AND TRACES. STATION FILE CHECK [ md
+
+PRODUCED ONLY 1962 LIFEAT INFO TO EFFECT PEREIRA (THEN LIVING MEXICO | Coat
+
+CITY) WAS I8 CONTACT WITH NICARAGUAN COMMUNIST EDELSERTO (TORRES) +7
+
+i
+
+Wn oe Rep eee anesthe
+
+ESPINOZA (281-2528887).
+SECRET
+
+Br —  SECREY
+
+SEAR Rt tte Paco te
+
+14-0000
+
+weet re ee ee Looper
+
+i a, am
+
+. i
+wager: Ons Ow
+CLASSIFY TS FILE BO.
+
+B-AEF TO FILE RO.
+
+erce aso) att. 10 oaance (J
+
+. SECRET t22@25Z CITE MEXICO CITY 3121 :
+
+PIM Pence
+P2Ocr 7 27 buns
+
+LIMa DIRECTOR INFO JMWAVE - i
+PBRUMES :
+
+i. DURING VISIT TO CUBAN CONSULATE LL OCT WHEN SHE FOUND ALL
+OFFICERS CUT, LIRING-4 WAS TALKING WITH CONSULATE SECRETARY
+WHEN MAW ASOUT 22 CAME IN, SAID HE WAS PERUVIAN, HAD JUST.
+ARRIVED MEXICO, AND URGENTLY WASTED SPEAK WITH “SOMECHE™ aS HE
+WANTED COMMUNICATE WITHOUT DELAY WITH COMPANERO 18 RAVAdA. :
+WHER TGLD ALL OFFICERS OUT, ‘PERUVIAN WAITED FOR LIRING-4 our-
+SIDE AFTER HEARING FROM SECRETARY THAT LIRING~4 PREVICUSLY *
+
+wo7GeD 18 COWSULATE. PERUVIAN EXPLAINED TO LIRING-4 THAT CCM-
+Hy
+PANERO IS HAVANA WAS ABOUT TO RETURN PERU AND THAT KE weuLT
+
+a es 5
+
+WALK I8TG POLICE TRAP UNLESS WARNED AS POLICE SURVEILLISG RIS
+
+mo t
+HOUSE. HE SAID HE HAD BEEN DISPATCHED TO MEXICO BY COMPASEROS
+
+IN LIMA TO CONTACT CUBAN WHOSE NAME WRIGEN ON PAPER HE SHOWED
+{
+LIRING-4 WAS GARBLED VERSION LIRING-9°S NAME CIDER FOR LIMA).
+
+{
+
+14-0000
+
++ PAGE TyO FEXICO CITY 3121 SECRET
+
+i
+
+SECRET
+
+COMPANKZRIS IS LIMA HAD BEEN ABLE CONE UP OWLY WITH PRICE O8E i
+WAY TICKET TQ MEXITO ASD PERUVIAN NOW WITHOUT A CEST AND couNTED
+CS CUBAN EX2aSSY TO PAY HIS RETURN TRIP LIMA. PERUVIAN HINTED
+THaT ARREST CF COMPASZRO NOW I8 HAVANA COULD HAVE SERIOUS coN-
+SEQUERCES IS PERY. AS HE AFRAID RETURS CUBAN EMSASSY BY HIN-
+SELF, HE ASAED LIRING-4 MEET HIM HEXT MORSISG AT BEARBY SMALL
+CaFE SO THAT HE COWLD GIVE HER WRITTEN MESSAGES HE SaRRYING
+APPARENTLY FCH LIRING-9 CWHS XHOWR IS). ‘
+
+2. LIENSRA4CE TEAM WHECH COVERED AREA OF CAFE INDICATED BY
+LIRING-4 DID SOT SPOT HER SEXT MORNING, POSSIBLY BECAUSE, AC ORD-
+
+Ig LIRIAS-4, SHE GELY SPEST FEY MINUTES INSIDE WITH PERUVIAR.
+LATTER HASCED HER FOLE PIECES OF /APER WHICH HE INDICATED COR-
+TAINED BCSa FIDES ASS REQUEST FOR CUBAR HELP, WHICH HE WANTED
+LIRING-4 TAxE TO CUSAN EMBASSY RIGHT AWAY. LIRING-4 ASKED THaT
+PAPERS BE PLACED If SEALED ENVELOPE WHICH SHE PROPOSED oBrati
+
+QI SEARBY POST OFFICE. BY COINCIDENCE LIRIRG-4 SPOTTED OTHER
+- : :
+LIRING MESSER AT TELEGRAPH OFFICE NEAR POST OFFICE AND REFERRED
+
+~ot 7 -. }
+PERUVIAN TO HIM. PERUVIAH WAS TOLD BLUSTLY TO CORE IN TO ER-
+BaSSY IF WASTED ABYTHIBG AS HIS ATTITUDE SUSPISCIOUS. LIRING?A
+
+LATER SAV PERUVIAB AT CUSAB ERBASSY BUT DUES NOT KROW OUTCOME!
+
+. SECRET + |
+
+ot
+conereens
+
+nema erat soon
+
+1
+1
+
+HO sManede tevtntee eeeetaatey
+
+|
+
+|
+|
+|
+
+14-00000
+
+i H
+
++ | \
+
+; . ; |
+
+| ~
+
+4
+
+| PAGE THREE MEXICO CITY 3iz1 SECRET SECA a s- : .
+" HIS REQUEST FOR HELP. 4 :
+° 3. WILL TRY HAVE LIRING-4 IDENTIFY PERUVIAN IN TALK WITH! te
+. CUBAN CONSULATE SECRETARY. ABOVE INDICATES ONCE MORE POOR :
+
+t 1
+
+{ STATE OF COMMUNICATIGHS BETWEES CUBAN SUPPOOTEN civarscruEe Tq
+
+| LATIN AMERICA AND CUSANS. Cal LIMA THROW ANY LIGHT :
+
+4 i
+
+| OW ABGVE? i
+
+;SECRET 4
+
+:
+
+i i
+
+; i .
+
+: ! \
+
+: bo .
+
+H \
+
+S208 ET E!
+
+i !
+
+1 — - : .
+
+i
+
+i
+
+| -
+eee - : ~
+
+14-0099
+
+Ce ee er a
+
+SECRES?
+Attachment A to Ziss~52999 doted 6 Sectenter 147
+ammo
+
+1. Spagisl C& cperstions Bo. 1 oof Bo. % have fimetioned eatisfectorily
+wits o> Celle eeaistencas :
+
+pln-BOr § T4iNagO0l hee bess installed for this speration
+There wea @ aiight preblen ct firet whan the L? operster
+Gud out distorted the tsps. The tdih vee batterioe acd tae
+quality hes groutly iaproved by gettizg off to 4c line. CORNFJEY nao cane te ©
+the conclcelan thet vexioo City coos ret heve s good carth groumd. Conee-
+quently, greet ediusteante oust d0 asie vit sry equipment thot wecde eB corth
+
+Qevwwe
+
+3. DISPERSE: A coparate rupert is teing propre? on thie overetion. %o'
+date, wa gre rot too toovy with the resalis. There is en iatersittiert tues
+which oe cannot idertify end the sresest reitciing wrrecpoment cakes it hard
+to felics Subject froe rom to rom. ere dotetle gill be taeluded ine
+seperate dispa tan. ,
+
+i
+
+4» LISAKPA¥: Ue now foo) tat tie epsretion is tegiraiar to shape os,
+thanks to the etpertine of Peter d. BSTIT?. ‘Treccvsh so CEY?PI? will crevide
+© tecnaiael Feport, eat prveurssiy is st wort ia on seve of ine urcsiess,
+the detetle will sot de reposted tore. ‘t is too s-en to osy, bot eo hope to
+be able to have the i+ respare aove defective <l-l's out seé replece then
+with operating uemite eiccever tmere is a faiisro. A protles sight te. beviag
+to adjust cseh anit ca the target lima. bse vill tell.
+
+So Plans for -iSax Pie ave to sotivate the XT of Lisax Pay /EKaR carly ts...
+Soptanber using L:4168 oo the LP. Tsen we heve rolicble evitering on L1Sasfas/
+RG, this, too, will be piped to LIZiG vies CCE fres LissS. :
+
+6» There ware » feu other aiscollgrecss A521) chares. Three dxplicates
+topes hed to ve acce for the COS, mree Lovers taps recorders bod to be cleanest
+and repeired, srd one 2:28 4000-L cas cleensé end ropeired.
+
+|
+
+SEcCEER?
+
+:
+;
+|
+1
+t
+I
+ee Se
+:
+
+I
+|
+
+Seemeaceneaetion Cele
+14-00000
+
+CEE RTE ~
+
+SECRET
+
+Action Required: FYI
+Bef arence > HEMA-38250, 28 August 1967
+
+. L
+Headquarters notes that on 9 August 1967 LIRING-3 |
+was in contact via LIFEAT with one Electa LEU. Given
+LIRIXG-3'e artist background and the subject of !
+conversation - the visit of Rodolfo Heisler, a Swiss -
+artist, to Cuba - it is suggested that ‘Electa Lag
+wight be Electa ARENAL (201-173795), the mother-in-law
+of David ALFABO Siquieres the well: p34 ¥ :
+artist. 7
+
+Distribution:
+2 - COS, Hexico City
+
+we t
+cnet on wast
+tresesatat tt
+
+1X5" $30 ust rarvious emition.
+
+MFG 1489
+
+14-00000
+
+peCorr ear :
+
+SBCRET
+
+ATTOR GEDARED - PEFERERCES
+FYI
+
+Reference: EMMA 32778 ;
+
+1. Forwarded under separete cover are ‘atx reports dated 31 July, 5,11,
+14 + .4.17 (two reports) August 1967 concerning the LinnG-3 Operation prepsred
+_by Wallace B, ROWTOR. 0s _ = ror no
+i j
+
+2. The first three reports 31 July, $ and 11 Auguet deal with the receat
+Meises OROZCO Leal “affair (eee reference) and it’s aftermth, The 17 August
+rigirt, which 15 < teetee ws ele Lindel wresege on “>, also ceals with
+this subject. LIRING*3's conversation with velcoded”*PEBETEA (report dated -:
+14 Avgust 1967) was reported in MEXICO CITY 2476. ‘
+
+ROWFOH's report dated 17 August 1967 4s of comm interest.‘
+
+3.
+
+A. The departure of the secretary LIEING4 previously filled ia
+for reopens the possibility that LIRIEG~4 cey, agein, work at LIRING.
+LIRING?4, in fact, recently received a neckiace from this secretery
+(a rather unespected gift at this juncture).
+
+B. The report indicates that LIRING personnel have doubts about
+some of LIRING-3's activities (this is not too surprising). '
+
+Attachment ¢
+Reports e/s pars 1 UNDER SEPARATE
+
+COVER |
+Distribution: sle airtel by 20 lens : | a
+
+© C/wED w/ett usc é Sp 6?
+1 - c/wa/cos w/o att
+4 - PILES --
+
+“5 curl
+
+OGPATOR SvusK 80 Eueee
+H4A-32850 ~
+CASFCATER
+SECRET
+
+14-00000
+
+fu cRCFILMED
+ocr fol
+
+{
+i
+2
+
+~.
+<=
+.
+a
+:
+1
+“o
+a
+ct
+»
+P)
+a“
+
+. 1
+oun (furniehed by
+1/3> e letter with
+: ; hnand-carried
+i it h some DitternesB to _that
+| it > ‘the revolution: by pass-en bits == + ~
+“po of infernmatio: (¢ Culian Lopez case in rarticul-r) it turhs out prejudicial:
+to Lis in the eyes of the superiors ef « At this 4 stiled
+: + end usked 1/3 te-heve patience and try to understand thor point of view.
+t Ue reiterated thet thoy had doubts tut felt sures it woul be straizcntened
+. out: eventually. . : : iG
+. _ 3. Ab the en@ of he meeting 1/3 x hat hefwoule trr his .
+
+with Rowton that
+
+7 best tp “Lie low” Sipir.y Noween
+
+: fe are 3248<47 us wtf 20 /— {fF 30/
+
+pio denen een
+14-00000
+
+-2
+
+le,
+
+“&
+
+1-2
+
+L-2
+
+wate nN ; 1
+
+cc timate at ie che ne abe Toa ce menentlime ae seesiey mee eae cee wear mame come eT ns ame ar tee
+
+Le2
+
+aa
+‘
+'
+aT we
+é
+ma
+i
+oe
+it
+Lt
+i
+tt
+1
+'
+1
+@
+£
+z raed,
+a
+
+14-0000
+
+e
+im
+o
+
+Be
+
+r
+
+€
+
+bs)
+ie
+
+bidet
+1 P34
+
++a
+
+no
+
+2
+
+honed ta rach
+
+,
+>
+ad
+o wt
+3] ts
+» 3
+fi : Oo
+we oy ft
+tt oo fa} eS 4b oe
+at ort St a shop a?
+
+1
+
+i.
+4°
+
+14-0000
+
+. i '
+« ?
+' ; aaa 74 ~
+(iy o « 3 :
+“ ang head § a 4
+- *
+we ot -oa mt oO "fy ® i
+- mt oP PH OP Hd o 9 Oe :
+tc 9 oY a a welt tt fe is
+woe eo oOo O bit MM M 4 2) PY)
+oe O ep Bo 4 42 ws oO .
+nN ° etd o-- 8
+Q wa O 0 Le] ‘
+J nos Oo @ a .
+4 Or. uw oO to] }
+“a Ped fad », oA : :
+* ge 5 %
+fa “ b - te weet ne
+° Le] a > & oi ed 2? p ood
+~— nt 3 0 Te ; j eed he ‘oo
+My H pa
+. i ot * 4
+. a) in My dS ceewene,| beeyemetace mie st
+. a) teat vt ot pe ,
+a] ‘ .
+st @ Bi :
+4 a Loo :
+iy » - Sow :
+‘I = os
+Le * "
+< ‘oO
+G "4
+ta et tt
+2 ees
+iu Se aes
+set ue
+a fa fs 4 0
+an 2 fi 42 .
+tt Yo - rey
+a moa aS
+wt non a :
+as v 2
+ot Mt |
+et Be ’ :
+em
+oo;  ~S
+Pe) “0 ‘
+oom moms o .
+wh oat a6 hoe
+ae - bl geoue
+‘ hg" g ba ge .
+moe & by 4 a ® : .
+4 a ateatoe OE Yo O :
+w4g roy Fey am.
+or 3 as 0 . aN GB OG Rt, wt
+, x a td oo aN we o nal sik
+t te wt “4p rey ould ov m gs ‘
+tt e eu a : ess a a
+in mM Nea, Pa PO Re Go at 8
+ct i oO 1 OD wl bt owt ori
+i 6 20 we Oo fie ° .
+. vt ut “the —  Geit't FS
+Ge sol a fy wt ke bt DY Mt .
+ae tod “A 12 Oe ty wd
+Le yp oo . . to te
+wt Oo on : on a #4
+te i) ' o bon
+. nL ny Oe) we Pe) .
+sProet 4g i : 2 9 yh
+. wo 0 ' fa ort
+: . yom 4? . to -
+ao 0 I i .
+‘ oh in . oes .
+. wow
+woe * - - ‘ . - . eed Ot ts wannte hes
+. | . ‘
+i]
+
+versatic
+
+we I Pe
+
+Sot ed
+
+.
+ra
+
+Areva
+
+aren
+went
+
+first
+
+13
+
+Ch te
+Got OL
+
+0
+
+nee
+
+a
+
+: 1 ome . oe
+me : e
+' i
+2
+; ; Dot
+. : mo -
+, i af iq
+. al , “ j It
+t . |
+iy oa .
+7 awed
+
+14-0000
+
+. 2
+|
+t { ‘ *.
+| an ~ * - f beet
+| | :
+! \ F .
+' ty : ot 4 $ . a '
+a te et i wd
+at * i et be @ ke eh be 4 '
+SC A ee Woh ed a 4 By. 8 z
+2 al apd ird > 9 @ Das a ty
+7 how i hoo oO 6a
+ow AY) a oa Wow ov ado ®
+: a iz af ad a 8 tw Bey 2 4urk
+o) N oct ° ) 42ort £2 Pe Poh Bel DoD 4
+7 rs) oo a ° 2 ood ‘AU PAP :
+Ts fa 4 Oo rf a 0° a °°} z
+. Li et wv ws q oh od i PO eHPE ,
+y: 5 ® i “GF ha do 36 SB ke |i: .
+eI De aso A Bae Be AB }
+_ - EN pod be i oo 3 w4 an od a
+* Wo oby uf O 49 wt ol of emt i
+! Won) ay wt yo Sr oC 4 .
+a a a> WP AR oath hart dd mgibanesfgn mtd eee | foe ”
+sree tn ate m Ab th Be wh a 0 t, . . -
+© aay to} ei Het ie n Pu Oo }
+- N\ ww im 396 0 wo a i
+2 rt > Oo MY +. rt fe at °o
+a & 8 0 rel ny ot .
+ia] ° a) et ros @ a 4
+oy ww fu be aq Wo Oo oO
+a o°o yop en a
+od m) ny 4) St m ted t,&
+i O toate |
+at : ay Le
+Pin He iF) et joe Bt
+fi ach ro ra 4
+sf te) weg Foo Gy
+o QO o ow oO s
+¢ ai Sof FB
+QQ oy Q. i a 3
+o | hn is oa
+: . . o % Bd Gin dt
+? . » & al oat a
+. “i te a 3 edo 6h }
++ ” rf a 74 rte & wy ;
+. wet a ca [a re
+’ 2 “A : “soe won
+is ia wo, Noogt dw eh tee
+i) fi o a od o ‘
+, 1 Bp be PM wt sh.
+‘ mn at 3 teint by te
+. is wt tt iy Poa ta Fo] |
+iH tout (3) a 2. 8 8 BG F
+f Q a oe O 4 Oo wd
+fy 33 Co J oOo oon |
+re) or ” Oat 44 OG .
+evo po PN Py om £ ,
+( a aoa ° ry a ore i t
+ey eo st a a “boat
+a ty 4) ne iP) Jl ao nf of
+tA dow » riod Ge RE oe And ae od
+ti whet ui o oO od al Bd 47 GO ai
+tt 2 i) ~ ar) Hos i st ow.
+uw agp (3) of owt 2. Lo]
+aa do: 6 Oo G + Po
+Vi st Kal oy wt Boe Bom '
+» “N Hot D 42 ord th ned
+wu ey oa Load Lr) ~ fy
+“e ed mY Pay a oat ro a) 2 :
+> Aes) ri a ort a i os od oy . Look
+@ Pes ‘ p ts (ee Me ad t moe
+a fe ' ooW . ba J o .
+' wo be) q ° ° toa do my
+. oo e wd ot oh. ve " i
+(oer es) aoa Hob SP Go hh
+. ——
+_ . .
+. ‘ eeu .
+\
+poner + i : \: nee te crete ae enemy free neneeemeneen ea ete nas eee a teens . 7
+3
+vt
+1
+H \
+'
+'
+
+14-00000
+
+”
+
+lity even
+
+a cee EE
+Saresder a we S aug fbaryalte
+
+thanshe Trot le una
+
+| €itr - not 2irectly invelved in
+
+Rot operate
+was closely
+zise 1/3 in
+
+sun to have her file re Oo that there would not be
+?
+
+a trace of her travels to Cuba and Gust<onala. She explained ‘het efter
+ent osllect a
+about 7,COC0 pesos in velue} dat the isaxe tine tock
+rs and wes issued a 4 fucce. LI-
+RING/3 explaized to Rowton thet sra. F zen Dorn :in izain, but
+sors ago, carrie? a Guctexelen coctors azcozpanied™
+kim to Guatensla =tere ke worked under the benz recice, sought rifuge
+
+ang her sen w
+
+an
+{
+assrort, as ar
+>
+
+trove? to Mexico xany
+
+tn’ sextco with hiz after the overthrow o
+
+berd ( either leral or commonelaw} ace Ecvang, in 1752,a8
+
+Z/3 recalls, with her son,araando, «ho Lal teen tern in Cuatencla City
+
+about 7°95¢, +/ continued thot she became closely connected) with the Gua- .
+.
+
+ent. after her hus- |
+
+3
+© talan revelut
+
+<
+a 3 Guntenalal af the Tri-
+continental, I/3 stated that sra. Tereirs is cs well
+
+i :
+scates sonan of about
+i
+
+he tee ae one tt an cht tu neemnungetantes
+
+eoot
+, i t
+- ' . .
+‘ . Noa - - ‘ .
+: “y
+1 1 . soe
+: :
+} .
+£ net + wae ee
+. f ° , '
+. ‘ :
+wee ee . fe oe cee es ete mneieaecns — ctatenstinete ee tet atmertes’ “ba eerste ts at ann
+. oa .
+‘ i
+; q
+. i
+it
+1
+1
+artnet wenineetgneramer ima erm cemaniuit ins |
+\ . :
+: : : iy.
+'
+
+14-00000
+
+nother's kine about 1020 Ga $
+a]
+
+ane
+Goo
+
+Crozeo is Souble
+ft continued, he sent LISIUG/4 around to “Crozco's
+A + with a stort note, the text cf
+
+u
+
+t
+2. i
+Valentin: . |
+We have learned of ste about ep nish: yp. se want to"
+give you the help we can, since, apart Irco= eversthing,ve under—
+stand tke-b.can provleas. (iav2
+
+Ye went te see you to find out shet we can de for Fea,
+but we'll leave it to your ¢iscretion as to a contact... :
+oa ioaly a s7all taing
+
+I enclose sore. money 4’ “whieh o@ Enc
+
+*% we hope that it will be cf some use to jou.
+Cordial creetings  frez el. aL.
+
+3. 1/3 stated that ae enclosed 200 sesos in’ the notes fant that tke ,tve-
+
+lone
+
+ar
+
+.
+tne ctrewematen meelsens
+
+a
+Q
+Q
+fs)
+Fe
+i)
+Fa nd
+( Pes
+$
+4
+'
+G
+a
+é
+ei
+. wet
+ado
+. sy
+. eb
+. oo carr
+rey
+' aioat
+oO
+>
+on
+ms Tt
+o 2
+: ‘ 8
+. de ar
+
+she
+
+Pear tien
+
+ae,
+
+OBL
+
+a
+
+»
+of is]
+sN CU)
+is)
+pa 2
+al oS
+a a
+bt
++t
+
+ia)
+
+°
+
+Pe & al
+
+&
+
+ane
+
+t
+”
+
+Poa GW
+
+e
+
+'
+t
+
+e
+
+rn
+
+ot nb temetntement shiner maameie ed Sf MD faerie
+
+“¥
+
+14-00000
+
+.
+
+vn
+ne
+
+seeee nite Heats 20 ae beat
+
+write a AzS*r
+
+d:velopnents fs
+i.b438s Craze s contact fer
+L/3 with Pik
+ton thet
+yited to_<s rn 5 . inktely ve
+City ste
+shoule i
+
+ie)
+ti
+Ss
+
+@ be
+4
+Q
+4
+
+ry be
+
+'
+by- phone an2 :
+Capoano cautioned
+sion! of nature of
+: an2 it was then thet
+‘
+. 1 ?
+’
+. uE Rovton
+i
+i
+— oa
+
+)
+)
+
+Subject: Udllece BE. foston Heetin=
+
+creat Zor the
+the trip that ~
+:
+
+‘ answer the re threes ynocxs, indicatizg
+: thatthe : LIBING/3 hinself. 4 so L/ Cresco stated thet
+. he tad st all costs to set to Tep:chul é
+
+to neet 2 contacts that were expect
+
+travelins ty plene or even train en2 welcs
+
+<
+
+the latter's friend Rail Moreno drive hina:
+car. L/3 commented to Rowton that te <as
+
+i
+EB
+
+bad concerning him and his activities, 2
+trips to Guatezsla and Cuba.
+
+2. Rowton then reslizing that L/3 ned prebedly walxed isto a lecgerous
+trap, queried hin very carefully ccncerning tue origin cof his contact wita
+irozeo. Howton explained thet he was certain that L/3's story |of the tris
+: to Tazachula and the ceeting with the Suet m Woman there Wasuntrue and:
+that ke assumed that 1/3 hed a good reasen Zor ¢istertine the |truth. Row-
+ton ecn inued that he ha2 cone tothe conclusisn that 1/3 kad Had a ‘domestic
+2 few days and had told Lis
+
+i
+
+erisis azain and had deciceé to disappear for
+
+wife thas he had to cso out of tcwn cn ts
+
+_.forceé to lie tos
+
+te -to 1/5. Hoxton stressed thet it wa
+
+spurrouncins the first contact sit
+
+: it might te a catter of lite and doe
+
+- 3 + 3. LTRITS/3 thea cornfes 2” that be had not actually zade the trip bri. not | :
+for the reason Rowton vsed. The rc:] reasen he ex;lained was that) when! a
+
+Crozco ccntacted him he say Sergio Yeléez-‘shertly ercesses pe the lat- oe
+
+ter to his amazenent coxzcated:" I have been contacted. Eave you been - ot aan
+
+usiness for Rowton. Ee jwas therefore
+wton. also for fear that Zo%.a might t discldse the truth”
+essertiel that he knew - true f acts :
+
+ow
+¢
+
+%
+
+°o
+
+ts
+
+a
+
+°
+. J
+
+since, es i/3 would seei later,’
+
+th fer bis ! a
+
+Sate H .
+
+. contacted slso?" Accoréine to 1/3, he = ©
+any ned contact thet 4h
+" LINING/3 continu
+aistursed him and ke
+
+surprt.
+Vaidez sas Levbbaed in the whole af
+
+eo
+
+cuner ©
+
+— -- of-newten -he had -no-rescu
+
+¢ under from all siges,.with peosle oe:
+novezents, controling bin. In fact he felt
+
+st te thet for instance he was certain th:
+
+4 2
+
+: i
+and Refl Moreno on the scene was not ocarciZental sus was part of sone
+er picture that he could not understard. Ze
+
+%
+
+was detercined to find out how Valdez was linked crozeo. . '
+
+&, Rowton then asked L/3 what he “mew about Crozeo. =/3. replied shat he
+knew only whet Crozeo hinself had revealeé to hix, viz. ,that his notter
+was living in hexico City, that his father had kexn never been prouressive
+and had in fact been arrested by the sovernzent (cresusably Arbenz> tot!
+haé not been harned since he had been so™henest? end his réputaticn was
+above reproach. Orozco also inforsed 1/3 that ne had been to Cuba several
+
+"tines and recently was in tcuch with Montes in Gusterala ahd up to recent-
+ly had been doing propazan.ia wors for the Faz. y Lo
+
+5. Rowtcn then stated that he had been caing his test to collect as xach
+inferaa*ion on Crozco es possidle end that he was fa> from happy witk what | -
+_...be ted zanaged to uncover to date. He explained that he had verified the
+
+address given to him by 1/3 ( Calle Tenis $2/5) bdut @iscovered that i¢ was.
+the neze of Crozco's xother and that Crozco was not ‘setually residing
+there. He added that he had also learned that Crozco'’s father was protab-
+ly unstable mentally and that his brother worked in Foliti gasazd this mig
+wight account for. Veldez' connection wtih him’ (Valdez’ ee for Rsfaga)|
+
+wee
+
+ab Bethan enein
+
+Rowton then stated that he had a report that ke ha: not as|yet been eble
+
+i
+i
+i
+
+4
+t
+a
+i
+i
+
+" Srozeo in sc
+
+-action recentiz.----- - ee
+
+- 3,
+
+to checy ovt to the effect that Crozce bead
+vityz in the
+
+4967 assigned to sone zuerrills acti
+
+enpesteclz
+afraid of cs;ture. L/3 exe
+serter!"
+woule
+reed thet
+very
+
+1/2 to n2ep ca
+a
+
+rtnent. L/3 then +
+
+acein:™ But then it's
+Rowton azreea but urzed
+
+~32LB Iron, Crozco- the ~-
+
+true facts of 5 P 2 and now he caze to use 43 :
+unwittinsly as a refuge. tow he covld confront Croze :
+
+with bis suszricions exz cet nin to reveal what xo: wanted to know. Zoi
+
+ton then suzgested t
+
+vayany, that se had to see this dawyer the next day on
+.
+
+ton explained that
+
+e
+net 1/3 dros casually the nane of Ernesta Ganrere,
+b@SS. howe
+
+ince le i
+
+i
+would naturally be oits to Capcaro.
+L/3 replieé vhat he would nblline ¥ 80 this but unfort: snstely he as id mot i
+
+know Caposno. Ze sui
+could set in touch ix
+eertainly kn
+
+Jacobo before spring:
+
+ct oct
+Q
+a)
+by
+ct
+
+la
+
+=/3 get es mock of the ‘ Be aeS :
+urged I/3 to pose as /a
+
+isst as poss
+
+would Jeopariiz
+
+6. During tas =
+that Rowton show
+nos was weerirs classes and a toustsche and haa
+hinself tre ezpzearnace ef a2 person of at least “a5 yeers of age (bis tzre
+ape is 37,acccriing te his own statement). L/3 recalled that Crozco in
+forned hin iz passing thet Leonardo Castitlo of FAR had been killed in
+
+cece Spoor
+
+OTT annem eee
+
+H
+
+« In view of che urzenez of the cevelopomtns Rowton arranced another
+neeting with 1/3 that same evening ¢ 31 July} at cidnight ob Sanborns
+
+Reforma. ee Wau Siete |
+
+a . . : Woes 3 Rowton
+
+Mee ees
+'
+
+wore: Dives O no ~ a
+
+CLASSIFY 70 FILE AD. ASSIFIED MESSAGE =F revst cswies
+MoREF TO FILE WO, * a
+rue ei act. to crane O
+* pesteoy Osis.
+
+DIRECTOR INFO GUATEMALA CITY
+
+waonv t
+
+REFS A DIRECTOR 30629 ; S
+B mexIco city 256a Ce- 3) 9
+
+1. AFTERHOON 25 AUGUST 67 LIRE ORTED THAT MEET ING
+
+‘9
+°
+z
+~
+o
+»
+[and
+a
+q
+4
+°
+°
+.
+ur
+a
+a
+a
+
+CARLOS WAVARRETE TG REVIEW HOW JURADO CRIGINALLY MADE CONT?
+
+2. PER SUGGESTIGN REF A THAT STATION SHOULD NOT FEED INFO
+TO LIREBEL-2 IW ORDER PRCTECT JURADS, LIREBEL-2 TOLD ONLY THaT
+| CASE SOUNDS IATERESTING AND STATION WOULD LIxE BE KEPT ADVISED
+CF DEVELOPMENTS, STATION ESPECIALLY INTERESTED IN GUATEMALAN
+COMMUNIST EXILE INVESTIGATIVE TECHNIQUES aaD CAPABILITIES.
+
+| SECRET.
+
+~ SECREt
+
+14-0000
+
+A a MESSAGE FORE
+
+‘S, TOTAL copies: 4 F
+we ga [pense |
+ven = WH/1 :
+mm 6934 SECRET
+
+var: 24 AUGUST 1967
+
+tj cn
+
+(7) no mex
+
+CASLE SECRETARIAT DISSEMINATION
+
+—CONFs.
+
+(sidsercmtoa} toate ond tame 1 es} 7 Geterecas pomber) :
+SECRET woke br ; | :
+
+~~ cme pincctor * s * . e *
+
+wo F PRIORITY MEXICO CITY INFO GUATEMALA CITY . a 3) 8 en i
+! PEP; MBYTON ora OKA CIN 27717) . ek oy
+
+HEADQUARTERS WOULD PREFER SIMPLY HAVE LIREBEL-2 CONTINUE
+REPORTING ALL INFO RECEIVED RE LIRING~3 RATHER THAN TRY FEEDING i
+INFO DESIGNED PROTECT LIRING-3, THIS DISCUSSED WITH ROWTON WHO
+
+IN AGREEMENT.
+END OF MESSAGE
+
+WH COMMENT: Ref advises info given LIREBEL-2 by Ernesto CAPCAXO
+de Vecchio, Guatemalan Communist exile in Mexico,
+concerning suspicions of LIRING-3. Station vriting ..—
+until results meeting Guat Commie exiles concerning —- i
+LIRING-3 prior considering possibility carefully feed 1
+info via LIREBEL~2 designed protect LIRING-3. i
++ - - i.
+
+"
+
+Ab le WH/2/GUAT !
+
+J ACOR De b file
+
+-weer
+
+LOOEMMATING OFFICERS
+
+AELSASING OFT <ER st .
+a . DR! rf:
+"REPRODUCTION BY OTHES THAN THE ISSUING | Cee is Peon TED, ; corr no,
+
+14-0000 '
+
+. : ; : ~ . -
+
+XOREF TD FILE Borr2ryret
+sie oO acy. trance
+orstaoy EYsrc. « Ze
+
+cloth
+Filed, eslps pop, Prep, clears ele
+hom bees 5
+
+SE CRE T 2319122 Cl
+
+PRICZETY DIZECTOR INFO P
+
+‘
+1
+wee nine
+
+CPM
+va AFTENNOON 22 AUG 67 LIPEBEL-2 REPORTED FOLLOvins STOP
+1E EECEIVED FROW ERNESTO CAPUANO DEL VECCYIO On 19 RUG: |
+FOR PAST SEVERAL MONTHS, WEXICAN PALNTER CARLOS (JURADO) 7
+DELMAR HAS ATTEMPTED MAME CONTACT IN MEXICO WITH TOP LEADERS FYERZAS
+fRYADAS RESELDES (FAR) TO GFFER SALE OF MEDICINE AND ARES. 1
+
+FIRST MADE CONTACT WITH CARLOS HAVAPZETE (KHOWR TO ADDRESSEES) AND : t
+
+aRSt ORLA
+
+“4
+
+EXPLAINED HE MAS GREEK FRIEND WHO SELLS ARMS ALL OVE? WORLD. GREE
+
+SECAWE INTERESTED 14 SELLING ARYS TO Fa® AND ASKED yURADO TO MAKE
+NECESSARY. CONTACTS, NAVARRETE FOLRD JU2ADO TOO EAGER AND Too “
+
+INSISTENT ON YAKING CONTACT WITH FAR AND, INNEDIATELY EGAN, TO SUSPECT
+HI® aS CIA 0% YEXICAN SECURITY SERVICE PROVOCATION, NAVARRETE
+DID HOT HELP HIM AND JURADO SOXEHOW RADE CONTACT WITH MOISES (OROZCO)
+
+LEAL, CAPUANO DOES WOT KNOW WHAT RELATIONSHIP OROZCO HAD WITH .
+JURADO EXCEPT THAT LATTER OFFERED HIN ARMS, MEDICINE AND MONEY (508
+DOLLARS) THE LATTER OF WHICH CROZCO DID NOT ACCEPT. PECENTEY, Se
+
+vod
+te
+
+JURADO CALLED CAPUANO AND ASKED TO MEET WITH HIM, SHOWED, CAPUASO
+LETTER WRITTEN BY OROZCO WHICH CLEARLY INDICATED -CROZCO WAS TRAITOR © Graf
+
+—— a a 2 er ne 2Ttli Se . - - ---=- = a =
+7 te =
+= ° . . it ot ;
+Be
+
+-PAGE 2 MEXICO CITY 2564 Ss E c RE '
+
+% “CAUSE” (SENT ADDRESSEE? m Haws “ae . een 32807. .. AFTER
+SECURITY: PROVOCATION BASED ON FOLLOWING POINTS:
+A. JURADO TOO EASER AND IESISTENT O8 CONTACTING FAR °
+
+LEADERS.
+
+B.-JURADO, WHO-SUPPOSEDLY—EN-ARMS SUSENESS-TO-WAKE © 0 5 —
+“ONEY, OFFERED OROZCO MONEY FOR FAR (3€2 DOLLARS), #CTUAL :
+
+ARTS SELLER SGULD WAKE RO SUCH GFTER. ;
+
+C. JURADO WANTED TO MAKE FAR LEADE®S AVARE OF fROZCO'S
+TRAITOROUS ACT AND ARMS SELLE®S USUALLY TAKE WO INTEREST IN
+INTERNAL PROBLEMS OF GUEWRILLA GROUPS THEY SELL To.
+
+D. CAPUANO DOES NOT BELIEVE "GREEK" EXISTS AND JURADO
+
+USED THIS AS “COVER” To PENETRATE FAP MOVEMENT.
+
+2. CAPUANO ASKED LIPEBEL-2 TO AID IW INVESTIGATION OF ,
+“JURADO. FIRST PHASE WILL SE TO INTERROGATE OROZCO OW HIS RELATION-
+SHIP WITH JURADO TO DETERMINE HOW FAR JURAGO HAS PENETRATED THE FAR.
+CAPUMHO SAID THERE IS NO PLAN TO DO JURADO BODILY HARM FOR THE
+PRESENT, BUT HE VILL BE IGNOPED BY GUAT EXILES. ;
+3. LIREBEL-2 SAID THAT IN CONNECTION WITH JURADO, A GUAT
+
+WHO HAS LIVED IN CUBA FOR SEVERAL YEARS RECENTLY ARRIVED MEXICO. - . exe
+
+1400000 +,
+
+. aran ry :
+‘ . PAGE 3 MEXICO CITY 2554 SECRET eats -
+
+. WITH WIFE, THIS PERSON, ARMAKDO PEREIRA, MET JURADO IN CUBA (NO -
+
+2
+
+: DATE) AND WAS TOLD BY CURANS THAT JU%4)0 ACTS “VERY suspictouny
+
+i AID IS NOT TO BE TRUSTED,
+: 4. ON 23 AUG LIRESEL-2, CAPUANC, JOSE LUIS BALCARCEL AND I
+
+LUIS CASTILLO RALDA WILL HOLD MEETING TO DISCUSS GUAT COMMUKIST | _.
+
+wtetnde ae
+
+EXILE LEADERSHIP IN MEXICO AND: ‘JUaaDO~CASES——
+5. IT OBVIOUS FROM ABOVE THAT CAPUANO DOES KOT HAVE FULL
+
+i STORY JURADO*S ACTIVITIES AND HAS MANY OF HIS “FACTS* BADLY
+
+i _ MIXED UP, FOR OWE THIRG CAPUANO MADE NO MENTION OF JURADO’S TRIPS
+
+TO GUATEMALA WHERE HE ACTUALLY CONT.CTED FAR NOR OF HIS MEETINGS
+
+WITH "GARCIA" IN MEXICO CITY, IF JURADO’S STATEMENTS TO WALLACE
+
+8. ROWTOW C#:) BE BELIEVED, IT WAS FAR WHO ASKED HIM ABOUT POSSI-
+
+SILITY TRANSPORT TO BORDER AREA WEAPONS PURCHASED BY FAR PROCURE-
+
+“ENT NECHANISS SOME OF WHICH WAS I¥ TEXAS, IT WAS ALSO FAR THAT
+
+ASKED FOR MEDICINES, DO NOT BELIEVE JURADO OFFERED FAR MONEY, ON
+
+CONTRARY HE REPEATEDLY ASKED FOR PAYMENT OF MEDICINE AND: OTHER
+
+ITEMS “SOLD” FAR. EITHER CAPUANO MISUNDERSTOOD JURADO OR LATTER
+
+BID NOT REPORT HIS CCSVERSATION WITH CAPUANO ACCURATELY TO ROWTON,
+
+JURADO WAS INSTRUCTED TO POINT OUT TO CAPUANO WE TOOK DIM VIEW OF
+
+BEING USED BY OROZCO TO DIUBLE CROSS FAR EMPHASIZING THAT, HAD HE SS
+: wee
+
+Fete net ee
+
+i
+'
+
+Fy
+\ ; .
+Ene 0 tree meso ei emt ran teen
+
+.
+lamp tee eet meer
+
+14-00000
+
+fape -l
+
+HAD ARMS TO GIVE OROZCO WHICH HE BoD Her) HE PROZAELY: WOULD HAVE
+k
+
+PECEIVED HiS FAYMENT IN LES SINCE onc CeMPLETE.Y BROKE. [TRUS a
+
+Oo ~ IW CROZCO “ATFAIR™ IT WAS FINANCIAL ASD. PERSONAL SECURITY nace WHICH ;
+OSTENSISLY EQTHERED JURADO AK? NCT HIS INTEREST 18 S FAR. r .
+INVER POLITICS, HE FURTHERMORE LOANED GF0ZCO 322 Pesos:
+
+_ AND SOT THREE HUNDRED. DOLL APS, -- ~~ -- = —
+
+<6s. WHATEVER HOLES “AND -CONFUSION- EXEST IN- CaPuaRo’s “STATE! 4ENTS -
+
+RE JURADO'S ACTIVITIES HE NEVEPTHELESS HaS GUESSED Basic TRUTH
+
+SO) 1D AOTATONTLY SETZAWiNED 70 MAKE FULL INVESTIGATION, THAT
+
+JURADO MAY HAVE EXCEEDED HIS INSTRUCTIONS AKD NOT REPORTED HIS
+
+CONVERSSTIONS WITY FAR AND CAPUANO ACCURATELY TO ROWTOH MAY 3E
+
+AUSS OF CURRENT TROUBLE, ROWICN SEVERAL TIMES CAUSHT HIM Ii
+
+SRICATIO“S WITH HELP EXTENSIVE STATICN ‘soutToRINe HIS ACTIVITIES,
+
+IT HAS ALSO BEES DIFFICULT 19 PREVENT HIM FRO® BEine OVERACTIVE
+
+_ IN HIS DESIRE PRODUCE VALID FA® CONTACT. STATION HAS ALREADY, TOLD a
+
+“LIREBEL-2 THAT IT HAS NO CONNECTION WITH JURADO. ¥ILL walt FOR
+
+PESULTS FAR 23 AUG MEETING MEXICO CITY CITED ABOVE BEFORE EX-
+
+PLORING POSSIBILITY CAREFULLY SEED INFO VIA LIRESEL-2 TO PROTECT
+
+SR ADO, BELIEVE WARNING JURADO VIA LETTER SENT BY RewTow OR : *
+
+1
+OTHER MEANS WOULD BE COUNTERPRCDUCTIVE AT THIS TIME.
+i
+
+t-
+
+7, VELL eDVise.
+
+SECRET
+
+PASE 5 4EXICO CITY 2564 SE CRE
+
+ee ne a
+i
+
+OO Gate BF ee seeep niente tee A nae tape reaeen icteenen ween Ht a
+
+14-00000
+
+ia -™
+MESSAGE FORM am
+frevas corey —-— 74> — EF pe ee cen
+
+. me 6954/9041
+pas 21 Accust 1967
+
+( wosx
+
+1 3] wo ocx (ome mw cs pce wo.
+
+Cj sumo, [2 ervmw to_______. tame | (7) ns up
+
+INFO GUATEMALA CITY
+
+Boomer Tints
+
+REF ¥KEXICO CITY 2476 (IN 31815) eo -
+1. FOLLOWING EQS TRACES POSSIBLY IDEN C2 RELATIVES PEREIRAS REF:
+A. WERCEDES LLANOS DE PzREIRA, CUBAN WHO TOOK REFUGE MEXICAN
+EMBASSY IN GUATEMALA CITY AFTER FALL ARBENZ. LE!T GUATEMALA 4 SEPT 1954
+FOR MEXICO (5CGA-3434, i2Z NOVEMBER 1954). , i
+B. SGPIA PZREIRA MARTIN, SISTER MERCEDES (HOGA-1434,
+12 XOVEMBER 1954). ,
+C. AUGUSTO PEREIRA LLANOS, SPANIARD WHO TOOK REFUGE MEXICAN
+_ EMBASSY GUATEMALA CITY XEXR AFTER FALL ARBENZ, LEFT GUATEMALA FOR |
+
+MEXICO 4 SEPTEMBER 1954 (HGGA-1434). l . , . -
+D. AMADOR PEREIRA REDONDO, SPANIARD WHO TOOK EEZE ‘REFUGE .
+
+MEXICAN EXBASSY GUATEMALA CITY AFTER FALL ARBENZ. LEFT GUATEMALA rca
+
+MEXICO 4 SEPTEMBER 1954 (HGGA-1434); DOCTOR AXADOR PEREIRA, PERSOKAL
+
+-; “g77 FRIEND AND POSSIBLE BUSINESS ASSOCIATE OF EMILIO ROSENSTEIN Srey, ; ey
+POLISH-BORN COMMUNIST MEXICO AND SUSPECT SOVIET AGENT. PRACTICING -
+
+owen
+a
+
+: a
+Enjeded trom
+. . ry
+
+PHYSICIAN WITH OFFICE AT CALLE MONTERREY 122-17. -: ‘MAY. BE IDEN WITH 3%
+: : e
+
+1400000 g
+
+. eondamany pave ead tow Sosy - | Veleronim mater}
+{
+
+- SECRET. PAGE THO eae teecrea 29KE7
+
+vo FE QS7OR AMADOR PEREIRA HEDONDO, “SPANISH: REPUBLTOASSINCuERICO™ WOES WoSG
+BEEN ACTIVE IN CENTRAL AMERICAN REVOLUTIONARY GROUPS AND 1s MEXBER OF
+
+SPANISH COUNCIL FOR PEACE (HMM-1591, 29 MARCH 1956). ;
+E. AMADA ENERIQUEZ PEREIRA, SISTER MIRNA TORRES, PGT HEMBER
+
+(GUATEMALA CiTY 3625, & JANUARY 1964).
+2, ALSO PROCESSING TRACES MERCEDES ASD ARVANDO PEREIRA, ¥ILL . ‘,
+
+ADVISE POSITIVE RESULTS,
+END OF MESSAGE
+
+Wa COMMENT: LIRING-2 in touch with MERCEDES and ARMANDO! PEREIEA,
+
+CNH Bete.
+. WH/COG/CI6S WX \
+: ee D. Esterline
+
+ac/wem oo,
+CpoemmatonS OFFcxzs.
+
+eo .* SRSASEO GRE feemto vow eotmnasie aAurasnnca!
+ce ’ i SECRET = . oes
+
+sot
+REPROOUCTION BY OTHER TRAN THE ISSUING OFFICE .5 i rT BO,
+
+14-2090
+
+3
+
+te
+
+SET ery
+
+CrBinn : lerre2 Keon Rw -) Te poh a
+
+ome “iM wip Yor 28 Auk £7.
+
+. ‘YR pew Aer Peden 7”
+: 2 lerr ox ,
+
+1 ”
+\ bot ew | fe tt ~ - . 2 “
+|
+i
+}
+: i :
+- ~ ” , _ ~ \ aan j 4
+fs ~~ ~: | nie rms emerememencesaetememies comme creases tent Atenas coast atte) ol beeing NY
+: PELE xe ong a ,
+‘ | \ a . :
+, | F 2,
+: a if
+5 |! :
+ff —s
+- gl. gop f ~ i :
+a) cet ee ee
+| | | mw EUS EPL a |
+ips SSP Nem hts ot | .
+ie iP ah} (ft LAN Ysa tty i . .
+re) BRIS oa yl SE. ot :
+ne: eas ee Poe
+oualt ea s 5taiye | :
+; in ean & é ued é . he H | { "
+i [! Qo < | U2? <f)° : 1
+ih a NY 8 oO a : oy
+! tyaN i. . .
+jh W2e g22\ . ,
+| Fe me) Ex) °
+|. : : 1 mer aye IAS “Moonen
+MH oe wt G OW
+| : 1} 13-2 Moony vty. Fe 3 . : °
+faves : | . oar Vip gh en oF "
+Whee ee weeks .f. 9: '
+. wha PAST gr oetean Bad Atte Meetaait iba gents nn & :
+1 " ! . . ‘
+in . . : .
+1 j ' : 1
+4
+7 I ' y
+} . ' |
+
+Mer. Agosto 20-6}
+
+, anc, 4 Herne =
+
+yp diate pute WY
+flaaTa tlearg Ato e
+
+maf ne = cee eens pmremen renee mes emer fone
+| .
+
+_ fete he he the Oi st
+
+bo dros. Yo ne ols end
+
+WA Cats dé Vlutprel s fat ea
+
+: molatias Be aye.
+rd, Rbrvin tan & Aakre
+
+_4¥—
+ab
+a on. Luo
+
+pan lati Sp
+
+btada & ,
+
+< verte pontte AenrauKk ATE
+PHN Te L
+; feb 4 ander Lo pal >
+
+.
+SO Me tn nea me means eet pe ne Tt
+
+fede al Csninbe di bo we Te OO
+
+(es van poe A . ;
+
+wi pevean doe nenthbae ate oy 8 =
+
+oat. TV iteta ahead: 0 Tape md nen a —
+
+— : ete ae Feet ben « a4 Des
+Gn hh dees. Us avints Ta dead
+As Corks fd Vanlpeehs, Mr lta Ge
+molatiar G2 atar 2; 5 :
+bu 2174 Len an & abe’ ab G= - .
+Sp To Toh end Cra Le - |
+
+. coulencte | rblerbe AL)
+
+, prabjur ‘aegha Rena 4k are
+
+4 Mam Grae Tlt bel’ re pibdas
+
+i
+
+3
+
+t
+
+i
+
+Lo. : . i
+i. |
+
+i
+
+. pea . . .
+oO . “ + ee Met me rs 2
+
+np rn
+
+Wiy
+
+rare um VALOQ ADCIONAL DE $003
+e
+‘
+
+MEXICO
+
+Harris
++ 63
+TK
+
+s
+pe
+Ceptrar
+
+sa COlmA
+5
+.
+.
+ae
+
+TARVETA CARTA
+
+on (AVERSA
+w Yor City -
+
+Ue Se A:
+
+GORRECS
+
+st : * e
+a" iy
+i 3S . 2 too.
+i! i [a , 3 re) 3 Cy s a ‘ oot i
+. : 3
+| : om 5 ‘¢
+‘ Dain HK Qe 3 * st ° . '
+; Os ° ,
+} : . weer erence ne = GVA | 4 . . \
+j —__. py hy ay Worsene QQ ' e a :
+\ i re a grinat 477 evnrainaat| i
+i vor (EMALA: Me, fs inauinzel| Q ’.' ”
+1 \ aaerua : VQ. Le .
+: i Lae eee tere seers wee “ : . in ‘@
+t fois . ‘ ;
+. i i : . .
+‘ | ,
+ee a aan eneiian nes fe cermrsan cweenimman annmunetams onan ernint ne manera ean ARTE gerarempremptier tr aos
+‘ )
+: 1
+'
+i
+
+Chief, wH/coc
+
+_Ghief of Staton, Mextco City/
+
+aoe Sr ere
+
+1 SMe eee rap pertain stein ERE ORR EEA EE ULE Qoorigietareenene nt ag ee
+
+‘false driver's license recently obtained by LIRING"3 via the
+
+Corrupt fudge in tha cetera nf aactnate oy fo st25 botoiog ts
+
+obtain a false passport.
+
+; acl
+: Cos tra 4 7 es daye on
+for Willard C, CURTIS '§
+
+Attachment ;
+Photos a/s UNDER SEPARATE COVER
+
+Distr ibut ica:
+C/WED w/att usc
+
+1 = C/vE/COG w/o att — i
+2° FIs leu te wafrece i
+
+:
+|
+
+Qd- 17¢@30!
+
+1400000
+{
+
+3 , SECRET
+
+a ( SEPARATE COVER ATACEHT' To HNMA"32814/o£ 17 August 1987
+. . ee | 7
+
+20: CHIEF /W2 DIVISION _
+
+mee Fit: COS/MEXICO CITy
+
+GOBIERNO DEL ESTADO
+
+DECOAHUTA
+prescciom oF PoLicta ¥ is '
+TRANSITO. {2 tt
+i
+' \
+: !
+{
+:
+1
+i : ,
+. -- tol.
+, oo. i ‘
+cee BL '
+an pte A t ! oe me eee
+
+* ota: Met Licsacte en tadingensatie pere maoefar.
+PROHIBICIONES:
+
+. 1.+ Manejar en estado de etreded.
+3. Rebssse por Ie dorecha.
+
+4.- Camtuat de cost! ein becer le secal detuds. * t ~
+| S.~ Manejar con exceso de velocidad. 0 : -
+sg 6.- Desceeder de un vehicuts por ef lado de la clreu- } . :
+Pa ¢ . 1
+2 |
+
+y,
+14-0000 4
+
+L
+
+~ debron Se
+
+TOTAL Corte
+I pp i
+
+oe “a eS-ECRET Dee nS + sene-ninecron 7-5
+
+- -— S-E-C-R-E-T-
+
+-F-" =" PRIORETY MEXICO CITY” asd nghve? {72 — a ee
+
+_*REF: MEXICO CITY 2479 (IN 32323)
+
+: REGRET HAVE BEEN UNABLE COME UP WITH SUITABLE INTERIM HANDLEE
+FOR LIRING-3. SUGGEST RONTON SET UP PLAN FOR POSSIBLE CONTACT BY
+
+“TRUSTED BUSINESS ASSOCIATE WHO MAY BE COMING TEROUGS AREA." WILL -
+
+-DISCUSS POSSIBLE ALTERNATIVES WITH ROWTON DURING LATTER'S TDY QS
+
+BEGINNING 21 AUGUST.
+- : . END OF MESSAGE
+
+WH COMMENT: ROWTON going on home leave 18 August. Station feeis
+it most desirable keep direct contact with LiIKING-s
+
+é€uring ROWTON's absence. . !
+
+A
+
+ho. C3 =~ WE/COG _W, CINI _W. CINI CIN DRAFT) _ DRAFT) a ae
+
+ah
+
+Vm D. ESTERLINE _ . . vy! <a ‘
+
+teont tre wctoastin
+=
+ensasme orncee later)
+. L Cemiee teanee |
+
+" REPRODUCTION BY ene tt THAN THE ISSUING OFFICE IS PROHISITED.
+
+AC/¥H/1
+
+i
+po
+i
+
+s
+s
+t
+,
+
+14-0000 ag
+
+. ' i WALY QUALIFED DESK
+1 i lean JUDGE EDEXAS |
+
+FYI
+
+Porwarded a9 Attachnent Onc, berewith, is_a report written
+
+oe oe - received by LIRING-3 fros Rene OCHOA Funes, the Bondorsa revolutionary
+: La Tavada. Tovedtle2 a6 Siticlicct Teo, cicer scpatale covet, aro
+: photocopies of this letter. It does sot look, from the scund of the
+: letter, thet OCEOA’s morale is too high. . 1
+i Cre . \ i
+i? anparwd i. a :
+. Mey and ! Ce Da :
+: for Willard C, CURTIS an
+: +4 ¢@ 1 ~ Report exmEReigmemmmcmem tic dt,
+: Ss # Ti+ Copy of Letter UMER SEPARATE COVER
+: Distribut ton: fed ah dfen
+e “25 C/wED w/atts $1 & #11 use
+: = COS/Tegucigaipa w/att #11 caly uec
+: 2° FILES
+
+SS RIT OLE BEND reopened velar cB
+
+‘ tot
+a“ - ee .
+
+Lite 2/2/87
+
+not
+eo bt Be
+oN
+
+af
+8
+
+er
+vr
+A
+
+aed
+Ss" sere going —
+Oo whatever he
+
+great Geai
+cerrerison wistlunat he must do EE
+S Sserisus and thet it. concerss a 7
+
+Hg
+ems oe
+
+fa
+
+et
+
+i
+
+h--
+
+uy
+
+3. Cchoe also cautions 1/3 age in objective:
+in Sis coznercial ectivitr, i éiscussed this ase }
+
+. 1 : . .
+pect of L/3's plars with "8 2, these questions t
+
+etter that 1/3. ze antes Fi “acthvitades
+
+. m his istnusely, snd tht their situation is siziler.
+
+snterest
+
+“wBRowton | 8
+
+‘arto. .
+Av
+GaWTISOXOIN |
+
+acraRTo
+
+-Oln 5D
+
+~ pggr 085
+
+VIG es Vivwy.
+owruM.
+
+cuccages (7
+
+’
+
+agduu ou
+bs Teuet
+cae
+E24
+
+7A
+
+i
+
+Lexy
+j A
+Ly Baked
+PUEBLO © 20ma POSTAL
+
+f
+
+@
+
+= 2
+©
+Ff
+o
+
+cf
+
+al
+lp
+
+:
+
+£
+i
+—
+
+t
+
+wee eter ween Boe eter eennen
+
+14-0000
+
+i
+
+11 yi arepetenypevninmee stn .
+
+Ag & wr"
+IMU FEU
+
+14-0000 . noe
+
+i
+1
+t
+}
+}
+
+— i -
+
+, |
+. 1
+La Usbdena,27 de Julie de 1967, |
+!
+i
+i
+
+Estinade Carliche: .
+Eoy hsce Ess de un mes que recib{ tu esrte,per les
+a - : t -_
+
+cenversaciones tolefénicss sestenicas habrés pedide coxzprender gre
+
+ls corora on contestsrte se debe,ne precissnente « epetie de ne yere-
+; Hi
+
+ee
+
+to,sino falta de Saneles-esecuados: pare tel fin. H i
+
+traba je cuye ophesa va ed 608) iteho sea 2 te 5 pase yo nelle eonercea
+
+ella, per le tante es realzente una casualidsed que te pueda envie> ne-
+ticiass;pere often ne queria demorer cis y he squi estes Liness. .
+Creo que entiende perfectenente tu situsetén,pses es”.
+necesario abrirse psse con los propics nedios,denostrar con hechesjes-
+to puede que al principle ‘te huels a conseje,pers resinente no le-es
+pues precissrente la idea ls he tenade deo ti y shore ls 'sdopte eons :
+osicién & actitud snte lea hechos.ire mi cesee poderte jerviar neti- : ’
+
+é ? .
+tas neretss y supliss. este yez,pere justenente tens age les = misras die.
+
+A]
+
+a
+
+ficultsdes que tu enuseras,a peser de la corcenka Flatea.zntrezué ta:
+carte sl conpahere ne re “fue posible habdlsr cen 61 sebre el farticu- |
+las pues el cfs que ful Llegsren muches visitas,sntes ae que $2 llega-
+va hedlé elge con la sefora, cencretemente xe dije que hebfan Feciet-
+go tus noticlas,que tenblén. te hi hab{sn contestado;que te Itben a. iuvietar
+los orgsnisnes correspendientes pere que elles atin np tdaten noticiss
+
+" eeneretessdespues seme te di je llegaren les visites Bd ne pude sscer
+
+. pinguna conclusién;estine qua a estas elturss ya dedes ener netteias;
+
+pesteriormente ne he pedice. ocuparme de elle Frincipelsente per ifes
+
+de i b parte fundszentalnente, per cuestiones de trabs jo.
+
+Ahore Dienst 1 promote hscer nueves gestiones pues ea
+‘estes éflas “tenge un respire,aunque, les gontes fer aqui « estes fsa : -
+estén bestante ecusdes con ls, csnthead ge actividades 7 \e aconteci~ s te
+
+sleatos ospecialnente de aot nes,pere ya veronos.
+
+1400000 yo > :
+i
+
+)
+)
+
+" . .
+: £ i
+Creo gre no es necessrio que te aclere,que en general, tendria que
+
+scostuzbrerte @ este’ problezas,pues les eovsa”’s veces le Ferecan
+
+a uue muy Siclies ¥ seade lusgs no le sen mas gue an apariersia,es
+vi
+
+necessrie consrender 2 los otres,méxize en oste-cosas,un | Peco pen-
+
+a re sar cone ‘Sliesraigum voz on miestras discusiones me ha “sers1sdo :
+
+como yo ‘ustifiesba les coses siempre con la fraso"heste olerte . "
+
+— punte- tal..o teales_ceasss. son izevitables" scree que. psa ne -€3- Una
+
+frase Sin senti¢e ne-es une céinods Salida, os pera mi uns ¢enclu-
+
+4 sién ée las realidsdes-que re ben tecade vivir ecut,hey ‘he sige re
+
+ot
+
+pitiende y ain tiene mis sentide.Lo euterier,por sapueste,ne Big- -
+
+nifies que Usy que Leslguersa F a5ze
+° t
+
+desarrellen norralzente, todo lo contrarie,hay que prevecar ls rup-
+tura,cése?, justazente “aprendiendo a rescerse oon las prepiss ulias™,
+égomostraenio con &echos y un pece "ne ssrerur nede de nadie".
+
+ieSs per fin cayé en el plsne del conse Jo, te rsetifiece
+
+mS se trate ge ese,ty mime le hes dishe eres lo suficientexexzte
+grende pera conprender les respenssvilides que edquleres, per lo tan- os
+to kuelger les conse jes, sobratede les qre se dan a! ‘eentrel rezote.
+Simplezente trate de inbuisrte de uns idea que ya: thenes.ke parece
+
+que hey sertedad 7 responssbilided en le que heces era de esperar :
+
+de ti,re conplsce gue nicas tede le que implica per embes pertes,
+es un camino suxnsrente peligrese, sé gue le sabes ne jor que Yo,pe= ~-
+ro Carles slerpre tu eres Genzslace bueno y de ls ‘bondad a ia ine
+genulésd ne hey aés que ub pesite,esto™ Slge de lo ‘quel tu be eres
+
+_ Conselente,on estas ceses es de vital inpertancia veonprender @ pre-
+
+fundiéed esto.Sadie trodes @ lucha, busesnde squetie on ‘le cuel ne
+
+i
+exista peligro, per le nenes entre _nosetres,nadio e tiene nlede a
+
+ae be we eee
+
+los” cuatro metres @ 2 Herre, pore el eliciente o la “mete ‘ne es et
+
+>
+
+peligre ni at Ye muorte ee lnente cen ese ne se hace /neda, simpleren-
+
+i
+
+es dejar un nondre Pera uns Fétriesa,en el mejer 6 les deses;c0
+
+trate ce alge ray étatinte.Ke hables de une eesa hermal 7 luersti-
+
+SOO E LO Reem atne ener ec anctiiee ea NR Ne e Raenentthee on nef Metta set its nite vo oe ane et eae gna in wnean omen
+i
+'
+
+14-0000
+EY
+
+* . “  -vo,e3te os busne s condictén de que se ) comprenda que eso aan
+te . ye el aspecte exterho de Te euostién, es ‘decis io ferne, pore be ine
+
++ w eS * +
+
+‘
+pertento os “Ve ‘interne “el pententde lo esoncisl; ne s@ eenece’ ls ta-
+
+- “sa rer 33 | feckdda, data” 1s kayoft a €e les ‘veces nos / ongeis-A avs to-
+
+do esto? bueno, en priser: lager os Ae ‘epiniéa ée un- snige gue’ algu-
+
+gas cuestiones ves conece un poce Belfer que tu,adcmia conciéndete
+
+tenzge. Recesided do “peferirne a “este _y_en segande luga ergue nese~.
+
+. atte ce thee tu sttusct bap ‘tu cer;:
+
+‘aheléa,rerque tani ién yo ke
+
++ =
+
+- - te eonntgo tisne y contize,ne hese falta explicer te perque pues
+
+muectes ef tingetia ac ottlen, see ls tents ter erintes 3
+ot ar
+
+=e interezan sobremanera for las cuestlones spuntadas anteriorzente,
+Ahora tus noticiss sen fundamentales psra ni,sebre tode
+: dsxe detalies,cuiere hacer les cosas sablende y seneciende le ¢qve
+- wey a hacer,taxzo prisa por ‘peer algo pero ne por los pesibles 4
+
+metres cc tierra,no leaxcluyo, rer © tormrpeece Les busce especialzen-
+
+te.rer fin re resuelto le que me ataba oa este sren pefs,esrprende
+
+que sin pucco hacer muche aqub, pero es infinitencnte poquefie cen-
+
+persde con is que tengo que hecer fuera de aqul;sabes blen que ne.
+’
+
+Sey Capaz de emderrens> tentas cusrtillas simplemente per llensriss
+
+se trata de un pisnteentente serie. : ; 4 er. i
+_... . ESpere gue le Cloneyile C cusnde se traduee del inglés”
+
+sl chine suena cone cH ° a1 revés)ya este bien,e3as sen} les con-
+
+Becuencias de ser su prepie xédico(libroterc),fere de tedas nmane=
+
+Pas nes elegranes macho ée que bsya pedide salir ée les: ,serras ae
+
+tedes los OLCGes.Carliche necestterts que en ls préxina: epertunided : Serene
+
+me conaiguleras uses encertes (Zapates) para la Catt, st be da cuen-
+
+7 Bade este ‘goltcitud me sseane rere | ye corge een ‘0 pedide, sen el
+
+eo. _mizere- 63
+
+*-eapero
+
+tik es eatin cent pe Ment SORE aa teeters enpete es sent Rare HEN RA fs eng ee tte, ce eee
+
+wal
+t
+
+Me meee
+
+{
+i
+
+te
+
+At
+
+Nts > pes
+oemilsepua
+sf Pp
+
+FLED, Qo
+
+‘Casnesa7s [9 € fet EG 3t8319G
+Lg. mew fe
+Sheet Zi 109 Cee
+
+a lskMarhesee ob
+
+aie f ahatev
+
+ee
+a ae
+
+Bn Ben
+eee ereeoen egaes——--- =
+
+eend expdeq edsesiigxe estict oosd en,opisazoo y omeln ‘ontnaes @ od .
+
+weeks IDe % Buide ENS OIOGI Vi TOG iasigie ba adioeutle sIJeouUN
+
+alasgas eece3inuga esuoliesus esl inq sieae=eideoe maevetsial om
+
+y
+
+i
+j sude2,iz eseq eeletnonsemst moe estolien 2ut ecerA
+i : azp ef esnolseina y opneldse enced esl rsced oselup,eolfotcs each
+i i celdiesq tol tsq on ome ate totsd toq s2iaqg enned,ieoed o yev
+ud eel soegmed emsq.ernfoxs “al Sa,staels ss sett em
+exgoizses,2leq meas esen 6 ad2ata em eve of atisuzey od alt sei.ed
+
+¢0G Sdcomesiniial eo estea, dupe edoum tesed ebong aie eup
+
+- o= ap sold eedeszylups o2 are:t teoek sup ognes exp ef aes oborug y
+t
+: salesneli soy atnenolzale eclileaeus ecInat asnediedmoe o& Sscao yee
+
+elise ataelzcs2aalq au eb ef and oe”
+
+sbignt feb esvaest ot edteys D al)yedolo| af eup eseqed
+
+eusg cal mse esce,nxolc bzee srleaves fae HD eneo anoue
+
+conad esbas ob eueq,t icrsdordtl)eola3a elge1q we 198 eb ealonouoee
+
+~beblartiusqe sxintaz ef ce exp Sixes leoror efetized.cov0d0 eof cebed
+
+waeus ub-e2 letdoo sf eveq(zotars
+
+}
+
+.°
+eat r) ib baeatn
+
+i
+s(tadoido)y sito © pebufeaynatotsen 2us orsqeo
+=~
+
+| :
+eetneons. ceoau cetetug tenes. Om.
+
+82 netisg cal eb alice oblbeq eyed op 03 olsun eexaigelé nen eer.
+
+ashame test
+
+Pomerat eee
+
+7“ : wn
+wocxs QC) ves Oro _.
+CLassiFyY To FILE nO.
+X-REF TO FiLE w2,
+rice w10O) ter, 33 00
+
+oestaoy sic.
+
+cuassieutd WESSAGE
+
+8
+
+“ese Sete ee wen ees 1b fies? 833254
+!
+|
+|
+
+Sr en ct pcctege oren woNre2 cry coc
+GUATEMALA CITY INFO DIRECTOR
+
+KAP OX : :
+REF: MEXICO CITY sass 30818) ‘
+
+bey MOTHER oF MOISES (OROZCO) LEAL PHONED LIRING-4 ON 14 AUSUST
+
+is]
+
+AND ASKED MEET MER, AT ENSUING MEETING CCZCo*S MOTHER STATE!
+
+TuAT
+MER. A Pee
+
+AURA MARINA ARRECLA, HER HUSBAND AND SOV WERE RECENTLY DEPORTED TO
+GUATEMALS, 3Y MEXICAN POLICE WHERE EXECUTED ON ARRIVAL.
+Tu—n/VIEw OF MANNER IN WHICH REF INFO OBTAINED, Do “OT PLAN”
+CHECK ASCVE WITH.LITEMPOS, BUT TRYING CBTAIN DETAILS THEIR
+
+INTERR OSAT ION GF OROZCO CONDUCTED ON SaS1S STATICN RECUIREMESTS
+
+AND OROZCO BACKGROUND INFO. '
+SECRET 4 | _
+: ae
+
+' SECRET
+
+Nh ed eI a yaintbints De veatccsccmndd sence ae Samanta
+
+14-00000
+
+? “+
+
+CLASSIFIED MESSAGE som cones — phurins anovor
+oF gees
+
+SECRET INITIALS - SEEN SY
+
+twoex. [J ves [7 no.
+TLASSIFY TO FUE A.
+
+n .
+E-AEF TO MLE 29. ‘ Fitted ta)
+
+tt Ret. TO. "
+FUE sD BS se s DOUCTION OF THiS COPY PROHISITED
+SEsTEOY ~ tieisicaTion 10
+
++ TASY. COPY
+—_] Dissugo[J storren ay:
+
+2. AFTER THROUGH RZVIE@ LIRING-3 OPERATION FEEL IT MOST DESIR-
+
+fe
+
+ABLE KEEP DIRECT CONTACT WITH LIRING-3 (WHO LIA2ZLE G0 CUZA AND
+
+—_——- nr.
+oo ret
+
+POSSIBLY GUATEMALA IN BEAR FUTURE) DURIKG ROWTON’S ABSELCE.
+URSTIL SGSYIPRL CAN BE SIVEN LIRINS-3 BY SPANISH SPEAKING OPERATOR
+
+AS REQUESTED BY STATION, FEEL IT-WISE HOT PUSH LIRIHG-3 TO WITTING
+
+LNHARP RECRUITMENT, THYPEFORE BELIEVE LIRINS-3 SHOULD BF HANDLED . '
+BY SPANISH SPEAKER ASLE PASS NOTIONALLY AS EUROPEAN BUSINESS FRIEND
+
+OF ROWION CILE. WITHOUT GRINGO ACCENT). ALTHOUSH KHOWLSDEE EUROPEAN
+
+LAWGUAGE NATURALLY DESIRABLE IT NOT ESSENTIAL AS PER ROVTON LIRING:S ”
+
+VILL GOT QUESTION BACKGROUND KIS FRIEND O28 MEET HIM IN PRESENCE OF
+
+OTHER FOREIGNER SIUCE KEETINGS HELO IN SAFEHOUSE, TO AVOID SECURITY.
+
+COMPLICATIONS AT THIS JUNCTURE BELIEVE LIRING-3 YOULD BES 1 8E HANDLED
+
+FOR THREE - FOUR WEEK PERIOD ay TDYER FRON WAVE 08 HDS wITH ABOVE
+
+RESUIREMENTS, STATION WILL ConTLuue TO ASSURE COMPLETE DIRECTION
+
+— iia’ ee ee
+
+THIS OPERATION. - oy Le 4 .
+3. ALTERNATIVE To HAHOLLWS BY ; TOVER WOULD EE TO PLACE
+
+Tan
+
+eet -SFCRET
+
+2 Rete aoe se moms
+
+woex. [J ves [7] wo.
+
+a
+
+Sse BY rn
+
+— 1 ADV. COPY
+7 SS UE OL SL
+
+CLASSIFIED MESSAGE
+
+SECRET
+
+(fen Filled Inj
+
+WTIALS — SEEN BY
+
+PASE 2 MEXICO CITY 2479 SECRET
+
+FROM FURTUFR Contacte wrtu rumase
+
+FOR PERTOD-fOGTON'S ABSENCE SENDING MIM_OUT_OF _
+
+FEXICO CITY AS LOKS AS POSSISLE AND THUS CUTTS HIM
+
+SEXICAW LEFTIST FRIENDS. THERE NO St ARANTEE HOYEVER
+STAY OUT OF MEXICO AND FURTKER GPERATIONAL IsVORVENENT FOR FULL -
+
+PERIOD ROWTON’S ABSENCE,
+PLS ADVISE PRIORITY,
+
+SECRET
+
+OFF TEMPORARILY
+
+AUAToAD AN Aenea
+
+LIRISS-3 WOULD
+
+me soethaing rp, jaa Om theta eI
+
+Pree
+```
+

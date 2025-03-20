@@ -1,0 +1,16 @@
+# Document
+
+## Page 1
+
+```text
+‘ioa-t0076-10374).
+
+IDENT JOHN F. KENNED
+
+Y ASSASSINATION RECORDS ACT OF 1992 |.
+
+7%
+
+2025 RELEASE UNDER THE PRES'
+```
+

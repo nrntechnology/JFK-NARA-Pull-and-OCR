@@ -1,0 +1,5299 @@
+# Document
+
+## Page 1
+
+```text
+7 eannon . Hen An
+J 2025 RELEASE UNDER THE PRESID
+
+229 ay
+
+SSASSINATION RECORDS ACT OF 1992 |
+
+“|
+
+104-10164-10097|
+
+14-00000
+
+ane Basanti ges
+
+2 aa, risen *
+
+i
+}
+
+-
+
+ourcoir “ MESSAGE: :
+
+CLASSIFIED ey RECORDED REPORTING OFF
+5 beLASSEFZCATEON SCHEDULE OF E-0. 2¥b
+
+|
+1
+3}
+ug
+
+A oon
+
+COcRematns OP °mEEe f
+
+peenooucTion er omar THAN Td (88UING GOFICE 1S prea
+
+4
+
+14-00800
+
+;
+
+setae INFO CARACAS i) saw Jose. Y
+
+wre v: i wel
+
+Tantiaco 35326 fe Or77051 wea 300778 Gran en .
+
+L583 AND WAS IssuCh, IN SANTIAGO ON 2S. SEPTENGE
+EF A BEING FELAVGD Te Saw
+FILE: 2p3-2992925) Ea INPDETed
+
+i
+
+“8 -UPPATING ON BOSCH'S PASSPO
+
+14-00000
+
+“EMRE DIATE TANIGRATION AND WATURLLEZATIO
+Diviston.e ATIN: tee) BEAYCHAMP
+
+: ue er
+
+CORDED REPORTING OFFICER. \EXENPT FROM GQBGN
+
+Scneouce OF £-0. aise. exen TION
+
+=e 'sB ta}. * InPossze
+ehaserriarrond t
+a
+
+4
+
+LAA RD
+
+14-00000
+
+Th PAGE @4
+aes apa |
+
+ie 4
+f RYBAT FUDWELL A
+
+Ac GANTIAGO 35352 (ul 08/602) Diez
+
+8, $an vOSE 19715 (nor SENT canacasy Cod
+
+ti .
+FOLLOWING COMMENTS RE}
+ATED ron CLARIFICATION,
+
+ai
+
+‘ ae
+
+a PaR vARA 4 OF REF ae WAS“COSTA AICAN PRESIDENT DANIEL
+
+te MENTION THAT aii
+
+STATION Has No [NFORD
+
+14-00000
+
+me
+
+“ 4 Sy
+TARANDA POSSIBLY TO STRENGTHEN THEIR. CaSE-SINCE BOSCH TRAVELLED = -~
+
+MILEAN PASSPORT.
+. PILE! 204030098
+
+_lyqns2e%5252 ocy 3
+
+Yas COMES eS
+
+TOYA: COMES
+
+Gt PROOUL TON BY OTHEe
+BBs COFFE 1S PROMNB!
+
+SECRET (yj
+
+in e02793.—-
+$0$ 20051 -
+
+t
+
+i paGe e222
+
+Bi
+
+20d~12-200/2. 2 IMPDET.. |
+
+fe
+
+14-00000
+
+. , iS
+2723auz CIA/DDO
+¢
+i)
+ad
+pi da
+“contact BETUEEN ° : i
+RTLY BEFORE THE. ASSASSINATION oF - ontatino LETELIER ¥ : ;
+
+pH 2:
+3
+
+A VENEZUELAN eee DEPLOYEE
+
+imams ohn 4. ACEO LEE ote BATT
+
+wen THAN THE (BSUING OFFICE
+
+1400000
+
+“ie
+
+i,
+
+OUTGOING
+
+foam Centre ver ome,
+
+MESSAGE
+
+Oasesea
+
+4
+ie
+
+o 0 0
+
+LZ
+
+i
+mFO. tae
+
+’
+
+1G ome 8 ; a
+
+grnce CHTLEAN ANBASSABOR 72 THE UNITED st ES. CHEADQUARTCRS ns
+[CQNMENT? ACCORDING TO A.NUNACR SF PRESS ARTICLES. aghacro nove Bs
+
+> Gu pULERRO NOV 0 "HAVE BEEN CHARGED |
+OMPATRIOTS IN venezucLa AS OCING RESPONSI FOR: THE ASSASSINA- a
+ON OF\ORLANDO LETELIER. “IT IS GELIENCD THAT vour oeeid BUREAU ue
+
+as “ADDITIONAL TAF OMRMATION ON THE NOVO BROTHERS » Taliacto AND : | i”
+
+ScVERAL OF THEIR a 7
+
+igunesino. Ww
+
+i :
+‘
+
+ie
+
+,
+5
+
+ops: ’ oy ok
+
+CE/REA WU. GODSONCTELE
+— crLArENE Peandaloey
+caren ZS
+
+if . . . 7 .
+Res TemP ey
+
+i Goenemnten cerntus 4
+BY Glan THAN TNE inhuIWe OFT
+
+14-00000
+
+z
+.
+
+Hos a
+
+; twang FoR HOS feviee,
+
+oScrre 2.
+
+Brass
+
+273709% ICT 76 21
+
+30 35352
+
+i AVe
+DIRECTOR INFO iG RACASs
+
+i
+see OPS CABLE Prige BISsE
+
+Nor PASSED LOCAL LtAISON,
+
+f
+eh BY 04869, Fiue 1595
+
+SPREE ae
+
+WARS 5
+
+SAN. Joss.
+
+SOURCE:
+
+INDEX BOSCH, DAvANag
+mii.
+
+14-00000
+
+IN AND. EXTRACTION OF INFORMATION CONTROLLED BY onciniton ~
+TO. + Do
+
+covreowen ‘BY ORIGINATOR .
+
+COUNTRY: CHILE/COSTA RICA Fr
+
+FEORUARY-MARCH 1978
+
+EDIUM LEVEL coveRnent OFFICIAL W
+FFICIALS oF THE) MINISTRY OF FOREIGN arral S.
+farny RELIABLE.
+
+CRIELD COMMENT: ueSese.772 ¢
+
+ME Sdu REPORTED “CHILEAN CONCERN ov R THE ‘FACT
+2Ot- AP Fi PR
+oscu wha WAD BEEN ARRGSTE tN cost Rea
+
+14-00000
+
+eteRIPTLON “4 THE PARGNTS WERG.
+
+pent BOSCH WAS chanced
+
+‘h
+he
+
+AMALIA GNREGUETA C27.
+
+paral
+TY CARD: NUMBER 2397622). ace
+eucnar
+
+14-00000
+
+i
+
+eeceoe
+
+| ‘
+
+; AN AUTOMOBILE Tin FOR A Simca EY 33 tssven BY
+
+lek ten
+
+DAVA 20 CINTOLESI. THe PASSPORT ConTatN painting OFF Ice
+
+DOREN AND manta
+IT CONTAINS THe
+THE PHOTOGRAPH,
+
+| ELENA
+
+SELMAN as 188y o
+
+mM CHILEAN PASSPO
+
+14-00000
+
+&
+
+pons aera eae
+
+sn asa AND ENTRY 1
+CONMENT? WO PLACE: OF ext OR. ENTRY .
+
+a
+fl
+Ihe
+t
+
+inn SaN JOSE FROM 6 EBRUARY
+ay 976. ACCORDING'TO A ‘SEER T SOURCE
+iN San yOSE, BOSCH. OBTAINE
+
+My
+
+it FRIEND IN SHILE wa is
+
+NTTEI 10. BUT cons t0gatNa THE PACT THOT
+
+Orr ican TO BXAMING gosel
+PaaaaeLy SGN WBALG Poa ¢
+
+14-00000
+
+fh a
+
+ni LD DIssems
+
+i
+ea oF ‘PRESIDENT Augusto
+T consuLAR ASSISTANCE, FagM HIM DURING A
+Ricas’ ‘AND FOUND HIM ra FROM HIS oF
+
+4
+a
+..
+‘
+DASSEaNATION AND USE OF Nes e#ORmation 4 ’
+CONTROLS STATED aT MEGOOENG ANDiEnD OF
+
+ba Py ¥
+PINOCHE Tr Wad occasion “to
+
+si AT SANTIAGO CPALNGIPA
+
+14-00000
+
+14-00000
+
+fom)
+
+a arth
+
+i
+
+_ tne v
+
+sere 6 t
+
+¢
+
+‘
+’
+
+ransooan dcr yy .
+
+i
+
+i i tory, DIRECTOR INF) Sam sOSE, Cana . !
+
+|, wmawteg aves Orie iad Ziad WAN aa i. |
+
+ya. a ; cid jofnanha oe to .
+
+; ROS. SANTI AG0 sss2é AN 80272 aha no0r ine “SENT, uN v0s@) : i.
+
+SANTIAGO 35353 CREED ERuanod)
+
+N A001TI ON. TO DOCUMENT REPORTED REF 8, + FupgveLe
+yall. | :
+‘0 CHILEAN EMBASSY CoSTAl A
+
+IAT aN yeTmacrtextist PLOT» LED BY
+
+‘ae 10 86 suPPORTED.;
+
+uaa nono
+
+14-0000
+
+Cees Ui Deeee O_o. athe
+' €cager j Souma, CosG8 ad SUES
+Fesatmawe worwes Sece ene ee Pot ree = ee niece
+6terr
+
+<i crane er
+
+Ds
+bade TT!) (DO {TT SY 2 | cs TTY) |
+_ Vomearseade oce 76 aL
+
+“
+"ER See Te s
+
+SE eee
+
+AND CWILEAN GOVERNNENTS IN THES PLOT, mE ADDED THAT OF CouRss .
+WELTWER HG NOM PRESTOENT ODUQER PLACED ANY CREDENCE Im THES CLatme '
+WHICH THE COSTA RICAN GOVERNKENT HAD INVESTIGATED, : s
+
+3. ACCORDING To AMBASSADOR ARANDAs FaCzO SUGOESTED To Him THAT THe ’
+
+| CHILEAN GOVERNMENT HAKE AN EFFORT TO AECOVER BOSCHYS ALIAS CHILEAN . .
+
+DOCUMENTATION FROM GUATEMALAN PULICE AUTHOR, TIO“, THE DOCUMENT cosets : :
+WOT BAY CAND Fo49 DID WOT KNOW) WHY GUATEMALAN AUTHORSTIOS WAD THE
+DOCUMENTS, RUT APPARENTLY boscn RETAINGD THEM WNEN WE WAS EXPELLED
+— «PRON COSTA RICA, ve
+
+. fe STATION DEFERS TO HOS on now ro waNoLs THIS IWrORMATiOl.
+7 copies OF GOTH DOCUMENTS BEING FOUCHED 2 NOVENSER,
+ade as SDE TISSUE. STATION BECOMING CONCERNED OVER source |
+PROTECTION FOR FUDOUALEede IN THIS MATTER, BECAUSE HE HALE Sau%z
+non ON DATES IN COMMENTS To EMBASSY OFFICER CENBASSY SANTIAGO -
+iat) win IN INITIAL REPORT TO STATION (PER REF 8 1966 DATS
+PLIES TO EARLIEST DOCUMENT IN WIS POSSESSION, WHICH WAS MOTOR
+NEGLE TITLE, NOT PASSPORT). CORRECTION TENDS TO CALL ATTENTION
+9 THIS COINCIDENCE, STATION PREPARED REF B WITH HIS REGULAR SOURCE
+“QEBCREPTION, BUT IF POSSIBLE WITHOUT MISLEADING CONSUMERS OR
+; PRVIDING FALSE: CONFIRMATION, would PRETGR USG ALTERNATE,
+
+14-08000
+
+cece
+
+?
+'
+i
+4 ‘
+4 ;
+he .
+3
+7 ‘
+i
+4 .
+
+i nanvow renuaries IN THE rome po
+vy
+an COPY. OF WHICH HE Paavo. THIS I emnatton |
+
+JW OF EXISTENCE oF
+
+ante To IT IN THe;
+
+earn 62. 1HPDE
+! . .
+
+fof o4894
+
+STOR
+
+14-5550
+
+i
+4
+Ly .
+* * §
+
+\ Some crocs Sales
+t :
+i .
+. e
+; tu adezee, oe
+t _ Loo
+1 7 Geme Base
+bod ea & ¥ Foa8i8e ocr " over (
+
+. i} CoRAces 34206 { \
+
+fg Sy By
+1 1
+
+1.
+|
+t WASCORLET OS? (doa 7)
+
+$54 a was soit
+
+M0 Litduten
+errena T1976, dea? Ac cutnko MOVE tH a
+CERS KNOMLEDGEAGLE OF. piste tvesrraania
+
+NOTE TO WHOM SPECIFICALLY ADMISSION WAS Mane,
+
+ABOVE SB: PASSED To FAL, te
+
+sa?
+
+if
+
+PILE: 20209339241 peerta 28344, es iaenar,
+
+14 0eO
+
+oul conc MESSAGE
+
+—_ ee
+
+avons ciase
+
+“ae
+
+|
+if FECAL, Busta OF tuvestEGarroNZ, yo
+TAESTIGATIVE pivEETOAY ee ra
+t secect-vanuins nolice-seanstive nbex Tecwce Sources anp i
+4d.
+PARCI-ME/OMDi- WS
+; Busser e
+
+atanr SWORTLY y OCPORE
+are Source arpa a
+whose POsrTson crves WIN ACCESS TO OF
+susuccTs.: urs RCUEABILETY HAS NOT BE!
+TION SHOULD NOT oc] orscusse WITH FORE
+THE VENEZUELAN GOVERNNENT.V
+a. srace zs ARREST tH 25 octoe
+Lay CUBAN ExrLe! LEADER. HAS ADAITTE!
+
+VENEZUELAN DIRECTORATE FOR THE SERVICE
+, REVENTION <01STPD/ TWAT HE HAD CONTAC
+IN MIAMI SHORTLY BEFORE: THE ASSASSINAT
+
+VERNMENT “acwLeree
+ORTS ON VARIOUS
+THIS INFORMAS
+
+k
+i
+:
+‘san ove pRoTHERS:
+z
+
+A ee Lu
+
+24RD
+
+127 ‘OCTOBER 7%
+
+Byer
+
+BS
+
+OUTGOIn . MESSAGE
+
+WKSCARLET {UKSCARLET-37)
+eeu: J hoe
+
+‘Me GENNTAA
+
+14-00060
+
+FOUTGOING. ME
+
+, oele ‘ers
+
+we FOLLCUING: INFORMATION ACQUIRED ABROAD 18. oR YouR
+¢| ACTION you DEEN APPROPRIATE.
+
+“q
+
+APRIL vas HAVANA, wea
+
+face, FRON CARACAS on VIAZS 470. As cast]
+oRtTzEs aS BELONGING TO TERRORIST GROU L ; 7
+
+s[TWeE Fone resca wd oF
+
+ot ALLOWED ENTER DOMINICAN REPUSE ABTHORETIES PLANNED ¥
+eur cas TLLO ON RETURN FLIGHT TO CARACAS»
+Request. 10 BE PUT ON 25) OCTOBER DOMINICAN
+
+PUERTO, RICO BECAUSE HE:3S an AMERICAN. ‘¢ TILL, 35
+
+Sep 3A
+2301
+
+61-29 IID
+
+os
+
+14-00000
+
+mi pe OCT Te oo
+Site Fi THERRY | eS
+KAscOGs TON CLATTON
+
+AGC/DEOs ZOKY GOLDIN
+
+Carvcar
+a seeemeatme oromene:
+
+14-00000
+
+36-08 @r Orga Taam Ke
+Ce Bs PROMeTES
+
+ANCE COM issuE
+‘CTON ONT
+
+AQ -
+
+TEN 876163
+SDOM 37883
+
+8.7 2239622 ocr
+
+RISE File corr ron
+foi. -ALPKD A.
+ELIER woes. a wok
+
+=O Nut Dbatnoy |
+esare MIGAT GS aBLa iT
+
+14-00000
+
+3o74, TSP ES
+
+StcaerT
+
+®teaopuctioy ev ove 1
+ins § OFFCE  OWOMET
+—
+OUSTAPR: :
+
+—“T32ab92,< E1A987 PaGe 22
+
+| TORL2Z19e82 OCT 76
+
+EMPYREX<22
+EnpETCH9
+“ EMCLIEPER~a
+EMP YREX2
+ EMPYREX@g
+EMGRANE Tea
+‘EMPYREXe14.
+PROPOSE FOLLOWIN
+“TALK TO EMPY
+14-00000
+
+: yore. COMSS _
+ee
+
+secner®
+
+D2 TOMeay OTHER THAN
+EisUINs OFFICe is PROMOTED
+
+PAGE 23-23
+OR: 2z1SZ62 OCT 76
+
+EVE EMGARNET
+SO AND ELSEKHE
+14-00000
+
+-
+tote: Comes 27° ?
+
+¥
+PROUUCTION BY OTHES Tran
+fasuine OFOICE 13 PROMEITED ©
+
+14-00000
+
+woe?
+
+BLPSOOUC TON GY OTe Trae
+IBDUING COFFE 1S CTD
+
+Bt 877831
+MANA 22534
+
+r PAGE @2
+Ton 2215292 oct 56
+
+ELAS 83
+
+“ET 324805 |.
+
+NEXT He it G uso PUA
+
+we
+se
+with
+
+70 DISCUSS SUBVECT-
+
+ven
+
+20012920078,
+14-00000
+
+aaa at
+
+SMAI tS tn aC Ra hen
+Veter Corse: -
+
+SECRET.
+
+RELATED To ODIKiA. Nor PASSED Loca
+INDEX? - BOSCH. AND OTERO. CL BY 94869.
+FILED aS-Se1,
+aaieasz
+
+14-00000
+
+: : oan : ;
+
+len nay Cha ent eaIS mcrae Be oy a
+
+Son tte, SANTLA
+SEE BELOW,
+
+REPORTED TH
+
+ao BEEN KEEP Saw eve oN THE acrivities
+7 or eat t
+
+anton, P PREBHABLY IN LIGHT OF ate
+
+14-00000
+
+a ‘ Bee MINDBTER: o FOREIGN arrange:
+
+prcating EXTEN VE TRAVEL ay ITs BEARER t
+
+is
+
+AMBRIGAZAND PANAMA, BETWEEN 1966 AND MARCH 1978, THE PASSPORT
+
+N arr ietaLss woveveR, THE: 0sTa
+
+ih ta bt |
+
+14-00000
+
+AURTER DeSSeaeealOnn and ust OF Hes wectustion slaeca 0
+a! UtGneens ano /
+
+4Pny odd an Corte
+
+" GOVERNHE Nt ore teian verte eae Acbonoina ve:
+
+a
+
+F n Wea WER aN ASSOC LATE oF a0scu WHO. LONG
+
+14-00000
+
+wo eS,
+
+trom NY
+
+| *
+
+«
+
+‘
+
+. WrLAtiO0 AND Use OF teas incest 2 08800 10 : ;
+, moms ota WtaTeD al BbGNEND AD td OF ELPOA!:
+
+14-00000
+
+preecangeraticte © te
+
+CMILEAN
+y IPINANCED
+
+aire
+
+IMPDET
+
+Cer. CHER EY
+14-00000
+
+t a oy ch
+. fs
+\ :
+{
+:
+§
+: e
+
+Or "s
+
+Ng. piu ,
+Aesuaynca pas a ae ;
+CALAPRR 4 F ‘go aa
+CI/REA. - UW. GODSON. tte.
+
+14-00000
+
+OUTGOING..MESSAGE =n
+
+a
+i
+i 4
+‘
+ND METHODS IN-
+
+SABLE TO
+
+ae
+
+* maar
+14-G0000
+
+OCURENTS. | THES REPORT Pi
+
+14-00000
+
+yw THe CIVEL RCCTST ORE a“
+> ON @ AUGUST 3975. 27
+
+e Svathyemonadls + Lo
+
+£12 IMPORT
+"BY: onesse
+
+14-00000
+
+ERMARKS.s AND SEAL 0
+RT CARRIED BY BOSCH
+OLLOWING. TRAVEL?
+
+UDAHUEL INTERNAT
+
+am
+
+bevel ete etd thin Pee wei le ket
+~
+
+PANAMA VIA TOCUNE
+
+“ENTRY AND EXIT
+ecenecr 1975.
+14-00000
+
+. OUIGOING. MES>ACE 5
+: :
+; ; .
+: STER. IT IS NOT “KNOUN IF, io
+
+stoke gah shes BAL
+—*
+
+¢ louRcE COMMENT: CRUZ as NoRRALLY THE, CHILEAN : ; r
+
+IN LATE ocroseR.
+
+THE REASON GIVEN irre
+14-00000
+
+KING HOURS. UNDER CURRENT. SONDITIONS IN THE
+
+THE ABOVE INF ATION Is
+
+BEING MADE. avarLae T ro: THE UNITED
+
+C/LA/RR Py, Li fonar,
+cnarerset: laren
+
+C/LASNCA
+
+Awe enka
+LAD i
+
+14-00000
+
+FBI CABLE FROM DIRECTOR, FBI
+DATE:, 728 OCTOBER 1976
+
+CLASSIFICATION: SECRET
+
+SUEJECT:. VENEZUELAN PROTEST REGARDING ‘ALLEGED |
+”"! PBL INFORMATION WHICH APPRARED IN. THE
+
+: N.Y. TIMES ON OCT. 24, 1976
+FBI FILE.NO: NONE GIVEN .
+
+14-0000
+
+ca h
+. ik
+!
+; ;
+i.
+“|
+. 1
+. | | {DERECTOR. 932728 i
+j !+ boc. sueseey .
+: -PLMHBLANKET ;
+| SOURCE INFORMATION
+- | wloge
+|
+i -
+7 |
+. iz " woman OF ORLANDO ; LETELIER ON 21 SEPT. BOSCH 1 Pg APPARENTLY Now
+- }
+
+(Leet, Peet, widdl
+
+Orlando -Avile:
+
+pore 290202
+
+GECRET
+
+14-00000
+
+&
+.
+FRY DOCUMENT | .
+DATE: 27 SEPTEMBER 1976 i
+"CLASSIFICATION: SECRET
+
+cee phndee
+—— me
+
+14-00000
+
+terest
+
+.
+-
+is
+-
+
+Mtemcouc tam By OTHER ream”
+a
+
+1m 070568 a,
+sues z0ss eR
+
+{ . . s
+
+¥ 70 ENTER VENEZUELA, ‘uatsoe JN Ha
+INFo DIRECTLY "FROM VENE2VELAN auTwaR trie ul
+
+By Joanne Omang ~ Cuban terrorist plans were ¢iscovered
+Wasningren Pees Porean Herview in a raid on a private home in Caracas
+CARACAS, Veneuela, Ort. IS— during the investigation of the Cuban
+
+Venecuelan police have ancovered plane erash. The reported terrorist
+they Detieve to he wile-ranzing acts were planned fo take place in the
+
+_.The retpectest Caracas newspaper
+TE Narinnal said textay that the af consulate in Trinicad and Tohaxo, ac.
+Wuod tercucist arte by snti.Castes cording lo the newspaper account.
+égents included the killing of Ortandte The wide-ranginz terrorist plans re-
+
++ Leteliee, the former Chilean ambassa- ported by El Nacional today were the”
+dog to.the United States. ia’ Washing — latest development in a broad Investi-
+fon fast month, sad the dombing gation in several nations of the Lete- §
+
+ban airliner off Rarbadus Oct. Her killing. the Cuban plane erash
+
+and other incidents.
+Venosuelan police hi + Letelier, a former ambassador to
+
+_ Peated &@ yToup of antlCasten Cubans = Washington. foreign minister and min-
+including rightwing Cuban exile ister of defense in the government ot
+
+teadler Orlands Roh, In ennnection the late Chilean President Satvador
+
+a Allende, died Sept. 21 whe:. a bomb
+exploded beneath Fis car as he drove
+
+_ along Washington's Embassy Row.
+Yn ‘Washingta irces close to: .
+
+Léeteiier investi sald Tuesday _
+
+that they expect Bosch ta! be returned
+
+Stitutional rights were vikisted eben Loma amt Foes Lam im
+confession: were taken from them. sieo w:lis toe Catan piace crash.
+Guillermo Novo was convicted 2 18§ 0 earctty to infurnaton reacting
+- tp connection with a 1969 Sombre oo fro Trivcted. Seardo was carr}
+Brisonment and 3 Feary protation. <2 . maumbers af the US. ambassador
+more could be learned ef Ignacio om FS! arent cated m the US.
+Novo.) . bas here. A CS embassr spol
+
+Juota and the Cuban exile commumty _ pace gles
+
+in Venezuela. Critics of tre Crilern : Tae een Sx Puiice Shidie
+
+government has? acced it of taking ed. leftist “think tar
+
++. part in the, Letelier. bilicw.-.Chieam -
+
+officials have decied ans Lek to Lee:
+
+Yer’s tezth ax denounced taliaall
+Tire
+
+. te ers .
+Department ‘source’ sald “the Unit :
+that Roach le wanted for questioning,  States‘is urging Venezuela to return — .tlonary Organizations He is wanted in Cutsn exiles
+Riech le nat, Rowever, recarded ot him informally as an undesirable al-  Milari, Fla, for a parcte violatica - ramen
+lee formal
+
+ten rather-than to_zo through, stemming from his 1963 conviction for _
+crv bnveatigatio€, the: ‘sources said} Ty -extradition procedures, ~ * “attacks off Polish end uther foreign «
+X1 Nacional said that the rightest (Bosch Is the leader of @ rightist ships] a” the
+
+Sp enIT anna
+
+Se
+
+14-00000
+
+eeceuncnen ee tgecmms corneas © gata F
+
+|
+
+f
+
+TARE
+i] PRESENT» HE IS PART ECULARLY INTERESTED IN misc * RP To CHILE
+
+paver 20190299202
+
+| RECORD COPY
+
+eecrar
+
+14-00000
+
+‘| Te Fae PrarertT
+_ onsst a ane en UMFEN Fateacten Fane anu FR aFeiciat
+
+_ OTS-n0A-015
+CARA 33189
+20 eT 7H
+
+ee TResi ven u ;
+sOUSECTLY RESPONSTALE FOR 6 OCT 76 BOMBING
+
+a PROSECUTION. CUBAN cov
+FLTHER WITH OR WITHS
+
+14-0000
+
+HOF REF A. SINCE diesen eeLicves 70
+1  B. BEFORE
+
+‘I
+“ie
+
+gavaaz. £2.
+
+QUESTED FRIORITY TRACES
+ASSAGE TO JAGUAR. 23°
+
+Bock CABLE SURED ER ROVIDING: GUIDANCE To |
+ISTATIOWS AND BASES ON COLLECT
+! CONCERNING "Us Se PERSONS"
+
+pate AF OCTOBER 7h ge a FW. AGG de
+
+14-0000
+
+The datiy Gentsens tho charges #1
+
+saatecs 1 Beseh, tepiteasing vf ta ti
+ef feresr'
+
+Cai lean Poretgn aiases Gviente. Lotelter and ta Placing
+Sayed off Barbed
+
+qnehinery at the service: of the U.8. ‘Central 1she121 gence Agency, ota
+‘compared to a Segree|to the one whica, in the days or Mie)
+
+‘tt te dock “the alt cf Intelligence” by Victor Narctatts, e former
+
+that unofficially the fundawental aission of the cgency: ie
+| of the Freatdens which, if (aplemrntes DY otter public..bed:
+F eause atetioultics. Sven though, 16; ecruits all types. of mercenaries, ¢!
+i {mage of the STA agent 1s tho eam sterectype ot Ss supposed supertan
+: Srecge used! byt tha fancies Drepagania.
+
+6, ite criminal nature such as coups
+serpta lagatnct the lives of iseders
+
+yo reactionsry regines in the. methods ‘torure of
+siniocer traditions of the 88 troops end its medern ca tnuator;.
+14-00000
+
+cary
+
+trea) Code teday seniinces berere the Enites Bettane’ ae peseats
+Veetera Barege and” Lad United States end thetr veo
+Sovewents and legittacs: CRSTILuOs governments,
+
+‘ef morcemartos
+(aaderesian %
+
+We Caden delegate &
+Magner aironse, see
+
+bias there are reliable repartes on
+wuld oF the changes UNat Rave Cakon pli:
+‘penarone of the africana Cots inens, .
+
+the manner and the meane Cy
+ieolf-Geterutnation. we not been delineated in the | ue
+
+the peoples etruggis
+in Snternationss
+
+$epoeal--tneluding
+Diusating them wou: actically amount to keeping LL.
+Coes oppressing thea, Afonso potated ont.
+
+‘that Puerto Rico’ hes dean i
+dX te tapossible, Alfonso sa! to end be defenters of
+seit-deveraineticn in Zimbadve and at the same tine practice ionialism in the
+beeen and nosed: on in other. places.
+
+by the United ‘States. has inoteantiaay, resorted to the -
+
+ewent of mercenaries , bo attack legttinately conatitat:
+struggling for freedaa. lat us recall, for exanple, that. in Vistnan; Laca, and
+Cambodia the CIA recruited what it cughemietically termed irregular forces to
+enniat {0 in ito efforts|to, orush the sassive Angurreat ion
+
+i st the legitizat government ef Patrice Lusunba tn the
+rained to end the
+bythe greedy actions of the mining transnationais
+aploitation, the imperialiets also used mercenary arat
+Gongo,
+
+st om
+
+14-00000
+
+sere
+
+eomeeianan aren RRR ET NM ESET A
+So jetremeredi nsrnewaagnnars Poot re
+
+"ae FouLOwEns t
+MSSTFA MAG KEES
+
+xy2acrey Fz iviTieocasere par VY FILE®
+WAM THAT eS Af CAUTPQNEDJTMAh RHE OCUS
+“ES EMTIACT was pete nus COMPRES 4
+
+075-095
+GAIA SLT
+19 O27 %
+— WWC*IT52L:
+as oe
+
+CURRENTLY UNDER” “DETENTION AY
+IN CONNECTION WET4 THE: Rasp NG.
+
+14-00000
+
+“DATE: 19 OCTORER 1976
+
+CLASSIFICATION: {CONFIDENTIAL ;
+
+““ SUBJECT: VENECMELA COVERAGE OF CUBANA CRASH AFTERMATH
+
+{i “ft
+_ FROM AMEMBASSY SANTIAGO
+-DATE; 19 OCTORER:1976 . :
+CLASSIFICATION:: CONFIDENTIAL - :
+“SUBJECT: LETELIER ASSASSINATION: ORLANDO BOSCH
+
+(eA
+
+Se
+é,
+
+va
+i
+4
+i.
+{
+4
+i
+
+bee
+14-00000
+
+Me, vk Fe
+
+ac on
+
+eee eh bo. UL
+
+PAGE O14 ; tH e73Es¢
+¥0R11917572 OC ocr Lt (h CARA: 32y76¢
+
+TETER SENT. PE
+TIN TENT. a arnt AELTABLE
+EPORTER.©
+
+14-00000
+
+#
+.
+
+sae
+
+PO ROUTES :
+a 7s:
+
+same reir Be
+
+a
+Jnee O'Gres ts favny te:s Corea Becterets ge Sette of #10. Met tesepnee
+toprecete wf term we Sere of Aeromene Gmiree ete
+
+counters _ VENEZUELA
+> MED*OCTOBE
+“suadeets VENEZUELAN
+
+~ GNRISTIAN Pi
+OF A CUBANA.
+VENEZUELA,
+SEE BELOW.
+
+souseet -
+
+RL NER, UNOFLFICLALLY. HO
+?
+
+: orracens WAyE BEEN INSTRUCTED Q ) BUILD ry case ut
+
+14-09000
+
+.*
+1 ONE SESS 4
+:
+@
+‘ i
+te
+is U 4
+FURTHE DISSEMINATION AND > use or wes {NF ATION sussect 1d. " *
+oF aeroet,
+
+HS 2031 A VENEZUELAN GOVERNMENT
+RESORTS
+
+N ESTARLISNED.
+
+14-00000
+
+i ; i
+
+4 .
+: i
+: i
+i t
+
+{ . i .
+WANNING ROTICE :
+IVE: INTELLIGENCE SOURCES AND Sc: THONS INVOLVED :
+Hi .
+rene oxdseran uation AND USE OF THISINTORMATION SU2ECT TO :
+
+‘CONIPO!S STAVED AT BEGINIUNG AND END. OF Reroat. -
+
+-
+
+i i? <7
+BELIEVE that THE GOVERN ent IS ATTEMPTING TO
+
+: “€ HM» WILL pecone PUBLIC. SUCH REVELATLONSY Dist
+
+ERE# AND oisasrentus FOR piste.
+
+14-00000
+
+aes
+¢ i
+; :
+i f,
+. | *,
+| . te
+‘
+, ’
+SeMINATION AND - Tas INFORMATION SUSIECT TO ,
+ROLS STATED ATE ce] AND: END! iO REPCRT,, ‘
+.
+LFFUCLTIES Fon THE PEREZ: ;
+
+“SAD WE HAS PERSONALLY
+PRG LA» PRESIDENT PEREZ!
+DVISER WHO HAS BEEN‘ACTING aS DE Facto
+MPLICATED, StHENez au cx. ped’
+
+14-00000
+
+panel
+wee
+
+gates
+
+: ‘re be qars/ toys tb
+
+“PAGE 5 oF b PAGES .
+°
+
+eR | prssenitiation AND USE OF Tris INTORAATION MMIECT TO
+CONTROLS STATED at BEGINNING A iD OF REPORT,
+
+-Swuace oF pana AHS a@e44! AN AD panty :
+
+fe
+
+14-00000
+
+aoe 7
+
+eee RR oe
+
+etree 6
+
+FuRTHER DISSEMINATION AND use: ‘CF THIS. $ INFORMATION SUBECT 10
+: ONTRCLS STATED AT LEGINNING AND END, OF REPORT.
+
+“ a
+
+rWeRe Is GROWING ALARM wire THE
+en, VENEZUELA INTO A
+
+EMBASSY AT CARACAS2 SENT TO. PORT! OF SPAIN,
+
+PORTING OFFICER, x00S-2,
+
+14-00000
+
+bug +
+
+TaTAL COMES | er
+
+SECRET
+
+[REPMOOUE HON BY OTHER Tman
+Natuae OFece 1S PaOmBITED 9
+
+PAGE 81.
+ToR11920072 OCT 76
+
+cite Santrago 35307
+DIRECTOR, |
+
+Sea eras enrace 21 eyes mam corner ema eet
+
+q
+
+14-00000
+
+14-0000
+
+cS
+
+‘TATE 16 OCTOBER 1976
+
+FSI CABLES
+
+FRON DIRECTOR -FBI
+
+DATS: 16 OCTOBER 1976
+
+CRASSIFICATION: ATUO ~
+SCNVECT: SUSPECTED BOMBING OF CUBAN AIRLINE:
+
+pe-8 NEAR BARBADOS, WEST INDIES, OCT
+TRON DIRECTOR FBI
+CRASSIFICATION: ATuO
+
+SUBJECT: SUSPECTED BOMBING OF CUBANA AIRLINES DC-8:
+
+NEAR BARSADOS, WEST INDIES, OCT; 6,°1976
+
+:
+
+Me we teeth
+
+eran ae
+
+—_s
+14-00000
+
++e ee wma
+
+les Arrested
+In Crash of Air liner .
+
+CARACAS, Venezuela,’ Oct. 14 (AP—Vener:
+‘#uthorities announced tonight the arrests.of Cuba:
+bana Airlines. crash that killed 73 persona near they:
+
+leader Orlando, “ite and severat! other:
+gong in’ conn’ fon Ww ie {avestigation of
+
+ws belag held. in Port of Spain:
+marmectian with the Oct. 6 ereash. 2
+
+The bee det, operated by Cubana Alrtines
+‘Air Ganada, -reported. explosions
+
+14-0000
+
+sMtenouc non er otmte Tan
+“wOSUNS OFCE 19 CROETEO
+
+AEM e09045
+conn Taxa
+
+t
+ot
+
+“ene DEFER, 62 IMPORT
+
+14-00000
+
+syne
+
+[.¢] “FO! UD: STATEs DIA, "3. AIR: JCS, NSAS
+
+i
+i
+
+DISSEIA ELECTRICALLY TOs WS. CLA/OCSCENS TREASURY » SS/TD+ Fer. .
+ankle . {IED COMMENT: "ADVANCE <OPY“'TO SIG CENTER i
+sine er i FOR ELECTRICAL TRANSMISSION AT 2335 HRS LOCAL wc
+TER CABLE SENT “PORT OF SPAIN, GEORGETOWN; KINGSTON, MEXICO J an |
+CITY, MANAGUA, GUATEMALA CITY, - PANAMA cITy, i 74
+NTO DOMINGO, SANTIAGO, OGOTA =|, oe.
+
+NOT RELEASABLE TO FOAEIGN: + MATION
+ONTRACTORS : OR
+
+14-0000
+
+Ld
+BTW Brit ™
+| Satire
+
++ FTE PestemunaTion AND USE OF THIS INFORMATION
+; CuMTHOAS, STATED AT BEGINNING AND ENO OF REPOST. >.
+
+oO WGS 7544.
+0. STILL MAINTAINS:
+
+wis pom on:
+
+auNNLY RELA LE | REPORTER,
+
+eo eaeqeee
+
+ei ceetees eee nest mem st team
+
+ ggapeasin is + mcacarcomete
+14-00000
+
+Pased irate og
+
+FumTras CISSEMINATION AND use oF Tas" "INFORMAI ION SUBJECT To
+“\CONTROLS STATED AT BEGINNING AND END OF REPORT.
+
+ere
+iXtLG DENON®
+
+14-00000
+
+ven 7
+
+sytegee EET URE eta AT ponents Aen p AE
+
+!
+=: i
+AND METHODS INVOLVED. ‘
+,
+FURTHER DISSEMINATION AND USE OF THIS INFORMATION $i susvect 10. ’
+NTROLS STATED AT BEGINNING AND END: ©! .
+: 3 ‘
+. : A .
+UNITED NATIONSCUN). (SOURCE SOMMENT? Li t
+i :
+|
+.
+!
+
+7
+THING ELSE» BOSCH{DID N
+
+ane
+
+NOT KNOWN.)
+
+T eerautn
+ORDER» WHERE
+
+aivt VGNE@UEL A, raantrone
+
+ay
+Ay
+1406000
+
+TORUDE-TS/4N2S.-7e - ag
+PAGE: 4 oF Ss PAGES
+
+DISSEMINATION AMD U3z oF Tas: INFORMATION suavect TO 4 :
+CONTROLS STATED AT. BEGINNING AND END-OF REPORT. a Jt tA
+
+OVERNMENT
+10 E a CURDELOs THAT
+
+a
+, THE INVESTIGATION
+
+autrareo ar 18
+
+Y MORNING, rT)
+
+4 INFO RMA uy*
+WOULD of
+
+sip ‘pinecron
+
+caNLuDing
+
+ORNINO OF 43 actoats, to chivaauy Garcia
+
+SEGHET
+14-00000
+
+ee ee ge SME Ea
+
+WARNING ‘NOTICE. .
+sexsmnve INTELLIGENC® SOURCES AND METHODS INVOLVED)
+
+» purtueh ‘SseMNaTiON AND USE ‘oF TH INFORMATION sumect bio}
+CONTROLS STATED AT. BEGINNING INO END. OF REPORT.
+
+Benet
+
+-~
+
+~-
+
+14-0000
+
+é . orsere ws tee
+
+y
+
+¥
+
+H Pranon/umit motipn
+
+' aoyance cory settr searen A740), IA,
+ton UAT
+
+13024790 etAASS PAGE Ba
+“SECRET 1829902 OCT MO LATEL Gy a ;
+CLTE CARACAS 31437 | Aina i
+
+TO PRIORITY DIRECTOR INFO PORT OF SPAIN, GEGAGETOWNs KINGS TONG
+: MEXICO CITY, MANAGUAs GUATERALA CITY. PANAMA CITY. SANTO DUM INGO. "
+_— SANTIAGO a0Gota, °
+WMINTEL. INTEL REAN
+
+" gUPDATAL dRWAHOG FOR OBSK REVIEN? SOURCE PARAS 1-83 WKMAYOG/:
+a ~ WRSCARLE TOS PROM WKSCARLETOR FROM WKSCARLET= 3,”
+SOURCE PARA PL WRHAYOR/WRSGARLET©S FROM WKSCARLET 0d
+PAOM QereaaeevRs. NUT FOR LIAISON. OD OBVECTIVE!
+“‘dede INDEX QARGTA, POSADA, MORALES? FOLGAR,
+PILES MSelededs. CL. OY Bezees,
+1aideda RARR
+
+Findos
+
+a
+at
+Fy
+fi
+
+“pulled te
+7 AGA qe
+
+‘|
+|
+Vv.
+|
+|
+
+2 95+ )d0- wv
+
+Seeneacmorte tear tame UN
+
+14-00000
+
+ee ED
+
+. - WTERNAL USE ONLY ~ > Spade 36 gcTeees 32% a
+so OA INTERNAL ew Ob1ds ; ;
+
+>.
+
+ston ws wnt an nos i rie i Dero Cri a we
+In ony other document or publication, or releaied outride the Agency Pending rei of th ovine, 9 conn S promced (YO
+edvonce information, .
+
+DISSEMINATION AND EXTRACTION OF INFORMATION CONTROLLED BY ORIGINATOR i .
+DISTRIBUTION TO: SDO
+
+€2 mscet C1 Or cover? . t.
+REPORT CLASS SE CR € TeewWARNING NUTE Ce -SSNSI TIVE INTELLIGENCE.
+SOUaCES AND METHODS INVOLVed~eNngT KELEASASLE TO. FOREIGN NATLONALS+0
+
+MOT SELEASASLE To CONTRACTORS OR CONTRACTOR/CONSUL TANTS
+COUNTRY: VENEZUELA/CUBA :
+Dol: t LATE SEPTEMBER -i2 OCTOER 1976
+suesecis activities oF cUuAN EXILE LEADER ORLANDO BUSCH QUAING
+
+pe nnn ae
+
+oc 7 WES STAY IN VENEZUELA .
+" kee 1 VENEZUELA, CARACAS (13 OCTOBER 1976) FIELD NO. WvG~ 7514 ;
+ gOURCE 1 A FORMER VENEZUELAN GOVERNMENT OFFICIAL WHO STILL MAINTAINS
+"5, Fs GUOSe RELATIONSHIPS WITH GOVERNMENT OFFICIALS, © NG IS A
+“YSUALLY RELIABLE REP URTER- THIS INF QRMATEON 1S. NOT to BE
+DISCUSSED WITH ANY FORELO “QFFICTALS« INCLUDING THOSE
+| SOLS GP TWe VENEQUELAN GOVERNMENT, © 7” woe
+| $e CPERLD COMMENTS IN UATE SEPTEMBER 1976 A-USUALLY PEL IAULE
+SOURCE AGPOATED THAT CUBAN EXILE LEADER ORLANDO HOS CH wad IN
+ VENGMUELA UNDEA THE PROTECTION OF VENEZUELAN PRESIDENT CARLOS
+WHORES GAG dy FURTHERNGAE, PEREZ HAD APPOINTED WIS SECURITY
+"AND INTBLL LUNCH ADVISGR ORLANLO KOLA 70 PROTECT ANS ASIST
+‘WOREH DURING HIS STAY tH VGNEAUELAs: FON.THIG INFORMATION: 806
+. WWEODbG, T TP abe ab5/ Tass oe, WN AVGO7eGSs PEPIRDERSSSZAMUEN- The
+eo : Sac heT a
+
+eyecinemertentra tsi ar Ow en Dn ane enearres a onnaacrelininnricanter ASPEN EEDafn tenes trtng nme maa
+
+14-00000
+
+wy ObT201
+
+TORR
+WARNING NOTICE
+SENSTHVE INTELLIGENCE SOURCES AND METHODS INVOLVED _ PAGE Zor Ss PAGES
+
+SECRET . Fuateen DISSEMINATION AND ‘USE OF THIS INFORMATION sumect To _
+e . CONTROLS STATED AT BEGINNING AND END Of REPORT. ~
+
+i
+
+pene meee eens ee ed cements tah acne: emia ares
+
+UF MID-SEPTEMBER, A SOURCE OF UNDETERMINED RELIABILITY yp. pe
+REPORTED TnaT BOSCH ARRIVED IN VENEZUELA ON APPROXIMATELY 13 SEPTEMBER»). :
+2. UPON WIS ARRIVAL IN CARACAS, BOSCH WAS MET AT THE ATRAQRT
+
+_ BY GARCIA AND LUIS CLEMENTE POS AD A, A PRIVATE INVESTIGATOR
+"AND ONE’TING MENBER UF THE DIRECTORATE FOR THE SERVICES OF INTELLIGENCE |. |.
+
+{
+i
+{
+1
+
+AND SREVENTION CDISIP), WHO ESCORTED BOSCH 70 HIS. CARACAS HOTELe
+
+“AP TELD COMMENT? WHILE CURRENTLY NATURALIZED VENEZUELAN CITIZENS»
+BOTH GaRcla AND POSADA. ARE: NAT IVESBORN CuBANS.)
+
++ Be SOMETIME FOLLOWING BOSCH'S ARRIVAL IN CARACAS,. A 88. :
+BeO0O CAPPROXEMATELY U.S. Sdetio? A PYATS FUND RAS SING DINNER FOR
+Bose WAS WELD AT THE HOME oF woof: OULGARA PROMINENT. a
+BURGEON aND CUgAN eXILe.. “IN aDDIyZON | TO, Bosc AHGNG . THOSE ATYEND ING
+PMR DINNER WERE GARCIAs RICAHDUS HO: a ALE S NAVARETTES “GARCTAS —
+DEPUTY WHO tS ALSO A NATIVeEsdORN CudaNs POBADAy AND AN UNIDENTIFIED.”
+NEGHoL EVEL OFFICTAL OF THE MINISTAY OF INTERIOR, . oo
+: 4, Oyatva tas BVGNING GOSCH. APPROACHED. THE MINISTRY OF INTERIOR
+OFFICIAL THAGUUH GARCLA FRGROSING THAT The VENEZUELAN GgVERNMEN? MAKE
+a] QUASTANT LAL CASH CONTAIGUTIUN TO At OAGANIEATION, IN RETURN.
+
+: —baScH agAgea TQ UUARANTEE THAT THEME WUULO B8 NO CUBAN. GxILG DEMONS
+
+, OTAATI ONE IN Trl vat Teg oraras DURING mma ioe? PeAgE! PLANNED
+a 4 6a .. r
+
+14-00000
+
+SENSITIVE INTELLICENCK SOURCES AND METHODS INVOLVED : race 32 oF 5S paces t °
+
+SECRET . FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUBJECT To
+
+y
+i
+i
+H
+e
+: we WARNING NOTICE . : .
+, e CONTROLS STATED AT BEGINNING AND END OF REPORT.
+
+NOVEMBER APPEARANCE AT THE UNITED NAVTONSCUN). (SOURCE COMMENTS
+IT 18 BELTEVED THAT BOSCH'S PRUPOSITLON WAS AT LEAST TENTATIVELY.
+“ a@cEpTeD By THE MINISTRY OF INTERTOR OFF IC TAL.) :
+
+5. ALSO DURING THE EVENING goScw MADE THE STATEMENT THT "NOW.
+THAT DUR ORGANIZATION HAS COME OUT OF THE LETELIER JOB LOOKING GOOD.
+“- WE ARE GOING TO TRY SOMETHING ELSE." BOSCH DID NOT NAME THE ORGANTs
+
+ZATION NOR DIE WE EXPAND ON HIS MEANING. (FIELD COMMEWTI THE -
+LETELIER MENTIONED ASOVE Is PROBABLY FORMER GHILEAN FOREIGN NENISTER *
+
+ORL AND 0 LéeTe Lt & R, WHO WAS as sass inqreD In THE UNITED states
+"ON 2a SEPTEMBER.) ; \
+
+erent meen eens i eae cans cneim gametes ener man eee
+
+4
+
+6. A FEW DAYS FOLLOWING THE FUNDeRALSING DINNER, - POSADA was
+OVERHEARD Ta SAY THAT, WE ARE GOING TO WET A CUBAN ALRPLANES®: AND
+"THAT "ORLANDO HAS THE DETAILS.” (SOURCE COMMENT! THE JOENTATIES -
+ad THE "We" ANG "ORLANDO MENTIONED IN ThE STATEMENT ARE NOT KNOWN)
+
+. ma FOLLOWING THd 6 OCTOMER CUBANA ATALINE CRASH OFF THE
+
+: cous? OF DAIBAUGS, 8G3CH, GANCTA AND POSADA AGREED Twat, tt. WOULD
+
+~ OE 88ST FGA BUSCH TO LEAVE VENGAUELA, THGREFORE, ON 9 OCTORER
+
+: wosada AND GARELA WaCORTED BOSCH To THE COLOMBIAN WORDER+ WHERE.
+THE LATTER CROGEEO OVER INTO COLOMUTAN TERAITORY, ,
+
+“Oy -ON THO BASLE " INFORMATION RUCHIVED FROM TAINLOADIAN.
+
+_ebcaar
+
+14-0000 we oo °
+
+Taare MRS IG aD Tana eS om Ne ANCE Ny othe YS os eee aE aT mT tes Aone Sa Ro EN TS
+
+2 Re soy .- eset ts :
+: ot 2 of ars i
+i . : 7 fee os teers os j
+: # i ~
+. wi Ob1303 fo ,
+WANNING NOTICE : . 4 .
+“SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED PAGE OF §. PAGES. :
+“SECRET FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUBJECT TO - |
+; ~ CONTROLS STATED AT BEGINNING AND END OF REPORT. 4 j
+
+telnestfeation)
+
+AUTHORITIES IMPLICATING HEM, POSADA WAS ARRESTED ‘BY DISIP AUTWORITIES
+ON 12 OCTOUER. HIS OFFICE waS SUSSEQUENTLY RATOED AND ALL FILES
+AND EQUIPMENT CONFISCATED, a .
+Ge MEANWHILE, PRESTUENT PERES HaS. ASSURED THE CUBAN SO VERNHENT,
+7 THROUGH CUBAN AMBASSAUGA NURUERTO HERNAN OE 2 CURBELOS THAT
+
+i
+
+i
+
+{
+
+“© TWE VENG2UELAN GOVERNMENT WILL ENERGETICALLY PURSUE THE INVESTIGATION j
+“QF THE CUBANA CRASH. IN RETUKW, HOWEVER, CUBA’ WILL GE EXPECTED TO {
+SUPPORT. VENE2UELA'S ANTE @TERRORI SH POSITION AT THE UN,
+
+; 18 EMBASSY COMMENTS THe AMBASSADOR COMMENTS: ” THE LEGaTT ~
+
+7 was DIFFERENT INFORMATION AS TO WHETHER BOSCH WAS EXF ILTRATED OR IS
+“eR 1s NOT IN VENEZUELA, GARCIA SPOKE TO LEGATT SUNDAY. KG@NING, 108
+
+. .acToBeR, AND ON THE AFTERNOON OF 12 OCTUBEAR TOLD HIP @[NFORMALLY®
+“THAT THE PRESIDENT WOULD SHORTLY ADVISE ME THAT BOSCH WOULD BE
+
+" PYANED OVER TO US, THIS WAS REPEATED TU LEGATT GY DIS{P DIRECTOR
+‘Raul GTM ENE 2 GAIN@A AND OTHER: DIStP OFFICIALS CINCLUDING
+“QARCTAD IN A MEGTING TH MOANING OF 43 OCTOBER, CONCKIVAGLY GARCIA.
+“GAN BE.PLAYING A DARK GAME, Gut THe DISCREPANCIES ARE NOTEWORTHY,
+4 MAVE NOT YET RECBIVED ANY OFFICIAL WORD Ag To tH maser
+_ DECI BI UN." a
+abe lea bissaa
+
+ia
+
+EMGavay, LEGATT ay. CARACABL. sant 0
+
+14-00000 - i *
+
+wm «Ob4303
+SENSITIVE INTELLICENCE SOURCES AND METHODS INVOLVED: PAGE 5 OF > PAGES
+
+SECRET FURTHER OISSEAUNATION AND USE OF THIS IN; OAIMATION SUBECT TO
+CONTROLS STATED AT BEGINNING AND END OF PEPORT.
+
+“PORT OF SPAIN GEORGETOWN. KINGSTON » MEXICO CITY, MaNaGua,
+GUATEMALA CITY. PANAMA CITY, SANTO DOMINGO, SANTIAGO. BCGOTis
+REPORT CLASS S EC RE TeewAARNING NOTICES ENSITIVE INTELLIGENCE
+SOURCES AND “METHODS INVOLVEG=-NOT RELEASABLE TO FOREIGN NATIQONALS*e
+NOT RELEASASLE TO. CONTRAGTOS OR CONTRACTOR/CONSULTANTS .
+
+’ CLASSIFIED. BY RECORDED REPORTING OFFICER. xGDS-2,
+
+14-00000
+
+FOR OS Loe ee ren:
+
+i Ce@.e Bt Desee e- se Lon ~e 46
+
+Phase Wa ects 4D
+
+T 38200” Elaesz Pace 62 869308 .
+: SECRET taroee2 ocr 76 starr : | q 4
+a CITE CaRaCas Sasse :
+TOs PRIORITY Di ecror INFO PRIORITY soGora, ROUTINE: Port 7
+* gBoR cE rows, ‘
+
+WENTEL RYBAT REAM HHSPIKE
+
+REF) CARAGAS 31227 nveersi4y (1) 069/01)
+do ACCORDING TO REF, ORaNDD 8B 0 S CH HAY HAVE GE
+
+DEPORTED 10 COLOMBIA 9-19 cCTORERs ALTHOUGH VENEZUELAN SECURITY
+
+OFFICIALS WAVE CONTINUED TO ASSURE ANSASSADOR AND LEGATT THAT AS
+
+OF A3 OCTOBER BOSCH STILL IN VENEZUELA AND WILL BE PRODUCED
+
+SHORTLY FOR DEPORTATION TO U.S, AMBASSADOR HAS NO OBJECTION 10
+
+~ BORBTA STATION CHECKING FOX GOSCH'S PRESENCE COLOWBIA THROUGH
+
+UNILATERAL, SOURCES BUT ASKS THAT NO INQUIRETES BE MADE THROUGH.
+
+LIAISON OR OTHER OFFICIAL CHANNELS UNTIL IT CLEAR WHAT VENEZUELANS
+ABALLY HAVE DONE OR PROPOSE 70°D0 ON BUSCH'S DEPORTATION,
+
+2. GOBCH EARLIER ALLEGES To BE TRAVELLING ON COSTA RIC MM
+(PASSPORT IN NAME OF PEDRO ANTONIS PEN A OR CARLOS LUIS
+
+ANT A QUU A MENDES, ON THE OTHERHAND, WE HAVE ONG REPORT
+SWAY WE ENTERED VENEBUGLA IW TRUE. WAND.
+
++ FILMI a8seoaeoze2, = saae BHP DET,
+: ee a
+RECORD COPY
+
+14-0000 .
+
+: - - Gaishtat in :
+NOMITT Os
+arriba . - SECRET
+VETER INFTAMATION BEONT won ces
+: PAS a Pace vv +t— —--|: : a ee
+eet 9534 OD 129
+
+oa .
+a et ; fare G2 CI 2, 88 4, 88/806 3, OFS/ITG 5,
+: a
+Gee TDFIR0a-s1a/iorse-76 Zz
+
+iF
+
+; ACGETOOEE OI —_{* iL foue se :
+cunrw PT) ave-7313 |
+DC/LA 11 ‘SB —o CARACAS..31121(1N 067787)
+~_LA/ors ca pT NPC XE RA1)
+A BR oy HH} a OBd; cls
+/PNC ee
+PNC/P |} es ee :
+WANDLNG INSTRUCTIONS © RAGE X Wi apPROrmATE SeaGe em ay G
+DO 10D ae op VAISOr 9 = :
+eericteeers . * Hi
+
+ce ZRWAHOO UrTeR CARE SENT CARACAS, PORT OF SPAIN, GEORGETOWN, KINGSTON, “
+. MEXICO CITY, MANAGUA, GUATEMALA CITY, PAWAMA
+GO ercwuave ron . CITY, SANTO DOWINGO, SANTIAGO :
+
+. va ie ROT. RELEASASLE To FOREIGN NATIONALS-—
+
+vot CONTRAGTOR/CONSULTANTS.
+. ‘MApOgT ‘Classinen &% 938133 : ‘ :
+
+68 INTERNAL US
+
+TING OFFICE COORDINATING CFHCEDS) BY PAY ~~
+. “ ) T BACCAR | LA/COR ‘ ; a
+C/A PRC ee 0, nee _— -
+
+LEARNS OFriCaR
+1 an
+
+welded def oan J
+
+14,0000
+
+Intelligence lnforination Cable @ OUTPNE
+
+~ = 6067747
+
+i . WARRING BOTICE 4 paces : r,
+i ORANG. ENTE LSD DA DE OO RLED ANE) MAT TLEDS EVEN eed vance Vor ® Pacts, . . .
+3 , : . . ‘
+‘, N: ee ; oo .
+1 . barber yetal es | ren sooo eee tee 18 Ved? Ceongnes : ome
+ane NON AND USE OF Teas wrORmAtion: wand? 10°
+. CONTROLS STATED Al GEGHINENG AND- tno OF espcer.. ‘
+OE! ~ 2.
+THiS (5 AN INFORMATION REPORT, NOT FINALLY EVALUATED INTELLIGENCE , yo
+———— ee Se z
+SECRET : le 1oHa DB-315/10239-76 : i
+
+. ae oo
+bar 4 OCTOBER 1976 ; 1
+nEroaT cuss 8 x CRE T=-WARRING NOTICE-SENSITIVE INTELLIGENCE SOURCES —
+AND METHODS INVOLVED--NOT. RELEASABLE TO FOREIGN NATIONALS--NOT
+| RELEASABLE To CONTRACTORS on R CONTRACTOR /CONSULTANTS
+
+COUNTRY VENEZUELA/CIPA.
+co! «8 OCTOBER 1976
+
+suaect) = COMMENTS OF A CUBAN EMBASSY OFFICIAL IN CARACAS
+. : ON RECENT ACTS OF TERRORISM AGAINST THE CUBANS.
+
+° yea . ” VENEZUELA, CARACAS (11. OCTOBER 1976) ABO NO. HYC-7513 -
+- souncd A FOREIGN DIPLOMAT WITH A WIDE VARIETY OF CONTACTS.
+
+RELIABILITY HAS wor BEEN ESTABLISHED,
+
+e ON 8 OCTOBER 1976 LUIS JORGE WA RTINE Z MEMOCAL,
+IRST SECRETARY OF THE. CUBAN EMBASSY 1" CARACAB, VENEZUELA, “24D
+THAT THE CUBAN EMBASSY” ‘BELIEVES THAT ‘THE: CUBAN EXILE GROUP
+
+©” HEADED BY ORLANDO. BOSCH AVILA I8 ‘RESPONSIBLE. ‘FOR THE 6”
+
+OCTOBER BOMBING OF A: CUBANA AIRLINER OUT or BARBADOS,
+_ COMMENT:
+
+_-CPTELD §
+YOR AN. EARLIER: REPORT ON: CUBAN REACTION TO RECENT ; H
+
+SECRET
+14-00000
+
+fer eng treet ee ces
+Oaserec NOTICE .
+SEAUTINE BTLLLICEMA WOKS AAD METHODS BVOLYED
+
+(© 067787 © *
+
+TonapB-315/10230-76 me, i,
+“oa zor 4. paces 7 ao
+
+FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUBJECT 30 —
+e SECRET conrrois STATED AT BEGINNING AND END OF REPORT.
+
+(6ueem ovetrais . ‘a
+TERRORIST ATTACKS AGAINST THE CUBANS, SEE HVC-7500, TOPIRDB-318/
+'10200=76, OF 8 OCTOBER 1976, FROM THIS AND ANOTHER SOURCE OF ae
+UNDETERMINED RELIABILITY.) ,
+
+2+ MARTINEZ :SAID THAT THE EMBASSY BELIEVES BOSCH HAS BEEN
+
+"RECEIVING ECONOUIC. AND OTHER ASSISTANCE FROM THE UNITED STATES
+“GOVERNMENT (USG), VIA ITS INTELLIGENCE AGENCIES, SINCE BOSCH 18
+5 ABLE:T0 MOVE ABOUT. FREELY AND OBVIOUSLY WITH FALSE DOCUMENTATION,
+scons, AS HIS MOVEMENTS CANNOT BE TRACED, HOWEVER, MARTINEZ SAID THAT THE
+CUBANS DO NOT BELIEVE THE USG IS OR WOULD BE DIRECTLY INVOLVED IN
+|THE BOMBING OF THE CUBANA FLIGHT, USG INVOLVEMENT IN THE INCIDENT,“
+“MARTINEZ SAID, “WOULD BE. COUNTERPRODUCTIVE TO THE Us¢c' s INTERESTS :
+ECAUSE CUBAN PRIME MINISTER FIDEL C'A ST RO: RUZ WOULD SURELY
+
+. BREAK THE AIR. PIRACY AGREEMENT, WHICH 18 TO ‘THE ‘BENFIT: OF THE USG,
+=. 8+ THR CUBANS, MARTINEZ SAID, ARE COMCESNED. ABOUT APPARENT
+CONNECTIONS BETWEEN BOSCH AND CUBAN EXILES WORKING POR THE CAPRILES
+‘PUBLISHING CHAIN IN. ‘VENEZUELA, ‘SHOULD FREDDY . ol UG 0, ONE OF. THE, bo:
+WO VENEZUBLANS CURRENTLY UNDER DETENTION IN ‘TRINIDAD IN CONNECTION :
+“SETH THE PLANE CRASH AND A REPORTER FUR ONE OF THE CAPRILES PUB-
+LICATIONS, BE DEFINITELY iMPLICATED IN THE AFFAIR, THE CUBANS WILL
+BE CONVINCED OF F THIB. BOBCIY/CAPRILES CONNECTION, ANOTHER.
+
+weve
+
+14-0000
+
+vor pe
+
+eR teeter, cree et
+
+fs" 309
+
+4 ~ SECRET (whee Fited te), ~ i
+
+| CONSSTINE IATELUCENCE $1 OOS AAD METIS EVOLVED }
+
+F . . . — t
+ee 067787 ; i '
+10FaDB-315/10239-76
+
+vaGe 308 4 paces
+
+thewal
+
+SECRET FURTHER PESSEMINATICN AND USE OF THIS INFORMATION SUBJECT TO
+. CONTROLS STATED AT BEGINNING AND END. OF REPORT
+
+A TSS ASS,
+
+oe lagen
+
+BXAMPLE OF THIS CONNECTION, MARTINEZ SAID, IS A 2 OCTOBER ARTICLE
+
+WHICH APPEARED IN THE CAPRILES PAPER “EL MUNDO" WHICH DESCRIBES AN. ‘
+RARLIER UNSUCCESSFUL ATTACK ON A CUBANA FLIGHT OUT OF BARBADOS AND,
+
+_ WHILE DEPLORING SUCH ACTS, SAYS THAT THE CUBAN GOVERNWENT STARTED
+THEM, THE UNSUCCESSFUL ATTACK DESCRIBED IN THE ARTICLE, AND ‘ABouT
+WHICH THE CUBANS KNOW NOTHING, IS BELIEVED TO BE ‘SIMILAR TO WHAT
+
+MAY. HAVE OCCURPED IN THE CASE OF ‘THE 6 OCTOBER DISASTER. THE CUBAN,
+
+-: THEREFORE, BELIZVE THAT THE AUTHOR MAY WELL HAVE, HAD PRIOR KNOW-
+
+t
+
+; “LEDGB OF THE ATTACK ON THE CUBANA AIRLINER. (FIELD COMMENT: FOR |
+
+AN EARLIER REPORT ON CUBAN CONCERN ABOUT ARTICLES APPEARING IN “EL
+
+‘MUNDO, “ SEE RYC-7495, TDFIRDB-315/09683-76, “2? SEPTEMBER 1976, “Prot
+o ANOTHER: SOURCE oF UNDETERMINED RELIABILITY. d
+
+he garetts
+
+na ep fs WITH REGARD TO THE. 21 ‘SEPTREER ASSASSINATION - oF FoaueR
+" GHILRAN AMBASSADOR TO THE.U.S. ORLANDO" LETEL I ER IN-THE
+
+sharin pet
+
+U.8., MARTINEZ BAND THAT THIS KILLING © SHOWED THE CHARACTERISTICS
+OF WORK DONE By THE GOVERNMENT oF CHILEAN PRESIDENT GENERAL
+
+_ AUOUBTO PINOCHET _ UGARTE, DESPITE SOME. MEDIA SPECULATION.
+“. 70 THE CONTRARY, MARTINEZ “SAID THAT HE DOES NOT PERSONALLY BELIEVE
+Fie vse 15 IN ANY WAY TXVOLYZD WITH LETELIER' 8 DEATH,
+
+$
+
+e2epBpesea
+
+14-00000
+
+on
+
+ys pts “pec” OCLaEt (wane cones Oe.
+@ aBRIee NOTICE : a
+
+‘ ; sean PRTELLACERCE Bul OLED aAD CL TIONED FAVOLUED
+
+et (067787 ; fg
+apna DB-335/30230-76.- 0 ’
+pace 4 OF 4 Paces 4
+
+FURTHER DISSEMINATION AND USE OF THIS INFORMATION BUBJECT
+. _ SECRET TO CONTROLS STATED AT BEGINNING AND END OF REPORT
+
+(atecem conirets|
+
+5. CONCERNING. THE 8 OCTOBER MACHINEGUN ATTACK, ON THE CUBAN
+BMBASSY IN CARACAS, MARTINEZ SAID THAT THE CURANS ARE PLACING NO
+SPECIAL SIGNIFICANCE ON THE EVENT. "THE ATTACK, MARTINEZ SAID,
+
+WAS ‘PROBABLY THE WORK oF CUBAN myrueai HOWEVER, HE DOUBTED THAT IT:
+
+1.
+
+WS.CARRIED OUT BY BOSCH'S GROUP,
+6, PIBLD DISSEM: EMBASSY AT CARACAS: ‘SENT TO PORT OF SPAIN, ©
+
+GEORGETOWN, KINGSTON, MEXICO CITY, MANAGUA, GUATEMALA cr,
+
+PARAMA CITY, SANTO DOMINGO, SANTIAGO. : Lo .
+
+“ BBPORT CLASS S EC RB T--WARNING NOTICE-SENSITIVE INTELLIGENCE
+
+ QOURCES AND METHODS INVOLVED--NOT. RELEASABLE TO FOREIGN NATIONALS--
+nor RELEASABLE TO CONTRACTORS OR CONTRACTOR/CONSULTANTS, :
+SEASEIFIED BY RECCRDED REPORTING GFFICER, - ‘KGDS-2.
+14-B5o00
+
+. . :
+OOOO 0 8 ge so 22 7 . . Ls
+Ostace wort 089 42 LL, ee emamaeend NA
+
+‘.
+
+VEULE, WA, Racal Plaa, 11D, OFs/taT CE Us
+
+My SE/ROG He OS6/EC» OPU/ITE Oy FR S.
+
+Wa To | RR CACTI USSe |
+, Voors3ss7e OCF V6 Cama Massy Foye
+
+ceenaminiy ae EONS CEE: RRA OES
+
+EY AURERSE OCT MO INTEL
+CHYE Camacas S3aa3:
+
+TOL PREORSTY DIRECTOR INTG PORT CF SPAIN, GEORGETOWN, KINGSTON
+WONICO CITY, MumaGuAs QUATERALA CITY. PANAMA CITY, SANTO BONING
+GANT ING0,
+
+WWINTEL INTEL REAM
+
+GuPpavas ; @RWAHOO FOR CESK REVIGH. SOURCE: NP/WKMEXER BURSCTLYS
+_ WOT FOR LIALSON, 00 OBVECTIVED CodeGe CHES. 28 fm
+-") RESPONSE TO DIRECTOR 925568 AND DIRECTOR 9246674)
+
+_ JNDEX LUQ0> LLANO. FILE! 75es9028, CL. BY Seamed,
+“4820252 enn a
+
+~wALEDs
+1
+
+Ga wees 18e Coat are 13 OCTCSER S47, .
+- : : mm = 773? olf
+IMTELUGENCE BEORAATICN CADiE 00GE 1 OF 4 Pacts . t
+
+WaRnin iG soncs . :
+SENSITIVE UVTELLIGENCY SOURCES AAD METHODS EVOLVED. . 4
+
+the totewng sepert, worsmmed trem @ CLA field potion, reqviret review wehin the Directorate of Operation: before being used :
+oe Oe Socemet  Pameanens 7 elomnad wanide He Agenit. Peadeg renin of Be cove, © tery & jorsied Ser Your Lot Gg
+edvene wane ;
+
+PISSEMINATION AND EXTRACTION OF INFORMATION CONTROLLED BY ORICINATOR a | yt
+DUTRIBUTION 10. SDO ; co
+
+QEPORT Class 8 ec a © TPeewARNING NOTICE OSENSI TIVE INTELLIGENCE .- oe
+
+SOURCES AND METHODS INVOLVED*eNOT RELGASABLE TO FOREIGN NATIONAL See
+
+WOT RELEASAOLE TO CONTRACTORS OR GONTRACTOR/ CONSULTANTS .
+
+COUNTAYS VENEZUELA/CUGA re ¥ ey fe
+
+DOL t 6 OCTOBER 1976 ; nr ott
+" BUGVECT: COMMENTS OF A CUBAN EMBASSY OFFICIAL IN CARACAS ON
+| RRCENT ACTS OF. TERRORISM AGAINST THE CUBANS. .
+| «AGO § VENEZUELA, CARACAS (a2 OCTOBER 1976) FIELD NO. KVCOPSES
+“SOURCE 1 A'FORGIGN. DIPLOMAT WITH A WIDE VARIETY OF. CONTACTS,
+
+cy 7). WES RELIABILITY WAS NOT GEEN. ESTABLISHED... _
+te) ON 8 ocsueea 1978 tuls JORGE MARTINE & “HENOCALS
+Piast secreraRy oF THE cuBAN EWBAGSY. IP CARACAS, VENEZUELA, SAID.
+TWAT THE CUBAN ENGASSY GELIEVES THAT THE CUBAN EXILE GROUP HEADED
+BY ORLANDO 8 0 SCH AVILA 1S RESPONSIOLE FOR THE 6. OCTOBER
+BOMBING OF A CUZANA AJALINER OUT OF GARBADOS. (FIELD COMMENT
+
+er ttt a
+_* «
+
+OR - AN SARL TER REPORT ON cuaan & EaCti GN’ To RECENT GARQRIST ATTACK -
+“AGAINST THEM SEE HVCO7S GPs TOPINDReHLB/AoLB Tes OF. 8 OCTOBER.
+48-00000
+
+et 02778?
+
+CONTROLS STATED at GINO AND END
+
+‘
+
+a tore ;
+
+| WARNING NOTICE i: bao,
+
+SENSITIVE INTELLIGENCE SOURCES AND MZTHODS EXVOLVED pace? oF4 PAGES / aid
+
+to .
+
+SECRET ; _ BUNTHER DISSEMINATION AND USE OF, THIS , ne ORMATION suuecrTO pe, 4
+
+pa
+:
+
+a)
+
+GOVERNMENT (use). VIA Irs INTELLIGENCE AGENCIES, SINCE eoscu. 1S 46L6 7 -
+TO MOVE AGQUT' FREELY AND OBVIOUSLY WITH FALSE DOCUMENTATION. AS HIS: :
+MOVEMENTS CANNOT BE TRACED, HOWEVER, MARTINEZ SALD THAT THE CUBANS,
+po wot SeLteve THE USG IS OR MOULD BE DIRECTLY INVOLVED IN TWE
+BOMBING OF THE CUBANA FLIGHT, USG INVOLVEMENT IN THE INCIDENT. :
+MARTINEZ SATDe WOULD BE COUNTERPRODUCTIVE To THE-USGIS. INTERESTS,
+“. QECAUSE CUBAN PRIME MINISTER FIDEL CAS TARO RUZ WOULD SURELY
+BREAK THE AIR PIRACY AGREEMENT WHICH IS TO.THE BENEFIT OF THE USGS -
+cUs THE CUBANS, MARTINEZ SAID» ARE CONCERNED. ABOUT APPARENT
+CONNECTIONS GETWEEN BOSCH AND cueAN EXILES WORKING FOR THE CAPRILES:
+“PUBLISHING CHAIN IN VENEZUELA, SHOULD FREDDY 4 UGG» ONE OF.
+THE THO VENEZUELANS CURRENTLY UNDER DETENTION IN TRINIDAD. IN
+
+Sie eereeinet neh se
+
+CONNECTION WITH THE PLANE CRASH AND A REPORTER FOR ONE OF THE
+CAPR ILES PUBLICATIONS: BE DEFINITELY: IMPLI CATED. TN THE APPAIRS -
+TwE CUBANS WILL ¥E CONVINCED OF THIS BOSCH/CAPAILES CONNECTION, ©
+
+NUDMER EXAMPLE OF [HIS GUNNGU TUNG MaARTENGa. SAID e i aa det usar
+ARTICLE WHICH APPEARED {N THE CAPRILES PAPGA "6L MUNDON wateW
+OSCRIGGS AN: GARLIGR ‘UNSUCCESSFUL ATTACK ON A CUBANA FLIGHT OUT Md
+WaReADOS, AND WIL DEPLORING SUCH ACTS, SAYS THAT THE CUBAN.
+GOVERNMENT aTAR 180 THE, THIS ARTICLE Wag WALT TEN ey ANTONIO
+“ So eicaar
+
+14-00000
+
+RIUM TEE Ty OT
+
+in Ob778? —s ot
+- 7 . . in i
+“TOFIR
+WABNING NOTICE : : . :
+
+SENSITIVE INTELLICENCE SOURCES AND METHODS INvoLvED Pace 3 oF 4 PAGES ; ,
+SECRET FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUBJECT TO ” mo, ;
+Pa : CONTROLS STATED AT BEGINNING AND END OF REPORT. Sg Ja
+{etesstpection) : . . . .
+~ | \
+
+LL AN O MONTES, & CUBAN EXILE WHO WHILE LIVING IN THE UNITED
+STATESe WRITES ; oY COLUKN FOR "EL MUNDO. "THE UNSUCCESSFUL ATTACK
+DESCRIBED IN: LLANO. ‘§ ARTICLE AND ABOUT WHICH THE CUBANS KNOW
+NOTHING. IS BELIEVED To BE SIMILAR TO WHAT MAY HAVE occURRED IN 7
+THE CASE OF THE 6 OCTORER OISASTER. THE CUBANS. THEREFORE, BELIEVE /
+THAT LUANO MAY WELL NAVE HAD PRIGR KNOWLEDGE OF THE ATTACK ON THE
+: CUBANA AIRLINER, (FIELD ConMENT: FOR AN EARLIER REPORT. ON CUBAN
+| CONCERN ABOUT ARTICLES APPEARING IN’ "EL MUNDO". SEE HVC~7495,
+ TOFIRDB*319/ 76s FROM ANOTHER SOURCE OF UNDETERMINED ,
+RELIABILITY, ee,
+ody WITH “REGARD TO THE 26 SEPTEMBER ASSASSINATION. OF FORMER
+" SWILEAN FOREIGN MENTSTER CALANCO LE TEL SER IN THS-UNETED |
+STATES, MARTINGE SAID THAT THIS KILLING SHOWED THE CHARACTERISTICS - :
+OF WORK DONE. GY THE GOVERNMENT OF CHILEAN PRESIDENT GENGRAL AUGUSTO
+a4 NOCHET UGARTE. Oeszs1e SOME maDLA SPECULATE ON TO. THE cone
+RARY, MARTINGS gain THAT HE AGES NAT PEAgQNALLY: AFL te ja. owe. y9 |
+ON ANY WAY INVOLVED WITH LeTELIGAS GaaTH. a
+8 CONCERNING THE "a actouga MACHING GUN ATTACK ON ‘TH “CUBAN
+MOASSY IN CARACAS, MAATINGG SAID. THAT THE CUBANS ARG ‘MLAGING NO
+PECK AL STUNIPICANCE ON’ THE GENTS THE ATTACK MARTI NGA 410»
+. ph eRae
+
+nies eer meen recta meena
+
+14-00000
+
+e
+exten
+
+Swe hte
+
+CONTROLS STATED AT BEGINNING AND END OF REPORT. :
+bd tetasstfteation) - :
+
+© ORTRE7 7 toa
+WARNING NOTICE i
+SENSITIVE INTELLIGENCE SOURCES AND METHODS: MINVOLVED: =. PAG Noe’ races oa
+SECRET FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUBIFCT TO |?
+: }
+i
+
+WAS PROBABLY THE WORK OF CUSAN-EXILES: HowevERs HE DOUBTED THAT IT
+
+WAS CARRIED QUT BY BOSCH'S GROUP, = oe |
+
+és FIELD DISSEN! EMBASSY AT CARAGAS? SENT TO PORT OF SPAIN, 1
+
+| GEORGETOWN, KINGSTON. MEXICO CITY, MANAGUA, GUATEMALA CITY, PANAMA
+CITY. SANTO DOMINGO. SANTIAGO.
+
+REPORT CLaSS SE CR E TeeWARNING NOTECE*SENST TIVE InreLutaence t
+‘ SOURCES AND METHODS INVOLVED-cNOT RELEASABLE TO. FOREIGN NATE QUAL S*- )
+NOT RELEASAGLE To CONTRACTORS OR CONTRACTOR/CONSULTANTS,
+
+CLASSIFIED BY RECORDED REPORTING OFFICER, xGDSe2,
+
+14-00000
+
+ate
+
+STATE CABLES
+
+FROM SECSTATE wWASHDC STATE 252295
+DATE: 9 OCTOBER 1976
+CLASSIFICATION: CONFIDENTIAL
+
+; _ SUBJECT: US POSITION ON INVESTIGATION OF
+
+CUBANA AIRLINES CRASH
+
+PROM AMEMBASSY CARACAS 12098
+
+DATE: 29 OCTOBER 1976
+
+SUBJECT: REQUEST FOR DEPORTATION OF BOSCH
+CLASSIFICATION: CONFIDENTIAL
+
+. STATE CABLES
+
+FROM:AMEMBASSY PORT OF SPAIN 2652
+
+DATE: 9 OCTOBER 1976
+
+CLASSIFICATION: CONFIDENTIAL
+
+SUBJECT: REQUEST FOR DEWIRTATION GF BOSC
+
+FROM SECSTAVE WAGHDC VATE 291567
+
+DATE: 9 OCTORER 1976
+
+CLASSIFICATION; CONFIDENTIAL
+
+GUBJECT! RAQUEST FOR NUPORTATION TO UG OP
+FUGITIVE ORLANDO HOGI
+
+14-00000
+
+TRANSMITTAL
+OF .
+TDFIR INFORMATION REPORT
+
+= Sm TOpS/INT 5, HID, PS/EG 2 Cl 4, SS 4, ,
+BL FR S. ¥
+i
+DATE DISTRIBUTED
+
+9 OCTOBER 1976
+: i t
+
+“WANDUNG INSTRUCTIONS — ~ PLACE x IN APPROPRIATE Pace
+
+oO TO ID:
+DISSEM ELECTRICALLY TO:
+
+(Ua) electrical addi-vees ond
+deliver with extra sony coor % up)
+
+fH zRWAHOO UFTER CAGLE SENT CARACAS, PORT OF
+; : MEXICO CIty, MANA
+O excwsive ror SANTO DOMINGO, LA/i:
+
+{hier eddrorscee)
+
+RELAY CASLE PREPARED
+with extra tepy 10
+
+@ NOT POR LIAISON
+#EFORT CLASENED SY, 085293
+
+(PFE 1-2 vee peevious soitions :
+14-00000
+
+, Intelligence Information Cable © PRIORrTy
+
+in 064422
+WARNING NOTICE
+SENSITIVE INTELLIGENCE SOURCES AND METHODS INvoLVED PAGE 1 OF 4 PAGES
+
+" srarevine 3CS/mC (DIA) ClA/NMCC swe, NSA TREAS © wse/s $00! 10 ons ° oa
+FBI SECUR (SY/I/PIB) SS/ID. . ”
+Seer Te osaiie Silica. feet oWieomant | ,Declansiticatien Schedule" eo] £0. avast incastien
+
+| ° FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUBJECT TO.
+
+. . . CONTROLS STATED AT BEGINNING AND END OF REPORT.
+
+THIS IS AN INFORMATION REPORT, NOT FINALLY EVALUATED INTELLIGENCE
+SECRET SR ce TOHRDB-315/10100~76
+
+Le. ; DIST 9 OCTOBER 1976
+, - REPORT CLASS S E c RE TeeWARNING NOTICE eSENSITIVE INTELLIGENCE
+SOURCES AND METHODS INVOLVED ==NOT RELEASABLE TO FOREIGN NaTIONALS@~
+"Nor RELEASABLE TO CONTRECTORS oR CONTRACTOR/ CONSULTANTS
+counter VENEZUELA CUBA. , re .
+‘por $0 SEPTEMUER +7 UcTOBER 1976 PE
+
+| SUBJECT ~WEAGTION OF THE CUBAN EMGASSY IN CARACAS TO RECENT
+oo TERHORIST ALTACKS AGAINST CUBAN AURCRAPT AND
+
+SOURCE = BER BELOW, wo
+
+a ‘hk ‘souRcE or _DARAGRAPHS- ‘2-AND Sta VENGEUELAN SUSINESS MAN
+
+7 wETH CLOSE CONTACTS ty BUSINESS, QOVEANHENT, © PObts SEAR AND.
+
+“DEPLOMATIC CIRCLES. HIS RELIABILITY WAS NOT BEEN eaTAsLteneD,
+
+ON 7 OCTOOER 2976 PaDRD 0.0 WG-8 FERNANDGE, SECOND
+
+ORCSUCHETARY AT ‘THE CUBAN SMBABBY [N CARACASs VENGRUGLAy sa30 That
+
+‘tHe CusAN anvaser WAU AWARE Twat a sone was RESPONSI GLE FoR: two
+
+GRAGH OF THE CUBANA ALALING PLIGHT ‘OFF THE coast or paReapos -
+
+: We OCTUBGR, THE CYWANG, GONG SAID. O19 NOT KNBW oN wweeH
+
+L090 OF THE FLIGHT THe BOMO Was Puace MOWHVER,
+
+iris ¢ CuMMENT THE PLANE was DOWNEO WITH: 1 Lose 78 ves
+0 a é ag w
+
+1400000
+
+srr
+
+rome 7 ORMOLETE ParvIOUs
+
+mi. ghuuae rn
+ToRR DB-315/10100-76 - fi
+
+"WARNING NOTICE . ; ; ; ; Lo :
+- pensrrve wresice ANS SONS, uerno0s IXVOLVED PAGE 2 OF 4 PAGES if ,
+
+: SECRET FURTHER DISSEMINATION AND AND USE OF THIS INFORMATION SUBJECT TO i : :
+i e _ CONTROLS S STATED AT BEGINNING AND END OF REPORT. : to
+: __feteinentson) . : . - an
+
+{
+| INGUDING FENG ING Tem WHICH HAD RECENTLY COMPLETED COMPETITION IN
+| NONETUELA I 7 . .
+~  3_ -GomER SatD THat ON 30 SEPTEMBER THE CUBAN EMBASSY wad a :
+TwroRMen THE DIRECTORATE FOR THE SERVICES OF INTELLIGENCE, AND \.
+PREVENTION (DISIP)» THE VENEZUELAN CIVILIAN SECURE TY. SERVICE,
+. 7 Twat a CUBAN EXILE NAMED SavapoR ROMAN YT was 08 SERV ING
+me CUBAN FENCING TEAM AT ITS CARACAS HOTEL. ROMANE » GOMEZ SalDe
+. 18 A UNITED STATES INTELLIGENCE AGENT. —WwRCE COMER
+“one | THPLIED THAT THE CUBAN EMBASSY IS LOOKING | INTO. “THE pOssTeILity..
+‘way ROMANI'S AG TE VE TIES ARE INVOLVED WITH THE PLANE CRASH.)
+FURTHERMORE, THE CUBANS TOLD piste THat THE TEAM “MOULD DEFEND |
+- APPRLF SHOYLD RORANE CAUSE TROUBLE. SHORTLY AFTER THE. CUBANS
+WADE THEIR FRELINGS KNOWN TO DISIP» GOMES SAID TAT ROMANE '8
+TIVETIGS CEASED, (FIELD COMMENTH IN HVG974990
+TOFIRDRs 328700683 °76. OF 98" SEPTEHGER » THO SA He
+URCE RGPURTED tHaT THe cuean “Gwe ASSY HAD. COMPLAENED. 76
+Bete apoUT ANTLOCUBAN ‘GOVERNMENT ARTICLES APPHAT INO IN THE LOCAL
+PREUG, «IN THIS INSTANCE THE “GUGANS. tNDEGAYSD Tueia WILL NONG EE 79
+ROTALTATE AQATNG? THE NEWSHAN invouven " ‘peste ‘Bto wor
+
+74-00000
+
+(@.  SQURCE OF PARAGRAPHS S AND 6: A FORETGN DIPLOMAT WETtH a
+WIDE VARIETY..UF CONTACTS, WIS RELIABILITY HAS NO? BEEN. -
+|“ RBTABLISHED. ©
+, oe DURING THE WEEK OF 4 OCTOBER tuts " a RT n we 2
+MONOCAL CUBAN. FIRST SECRETARY, SAID THAT TRE EMBASSY Was
+“AWARE TWAT CUBAN EXILE EXTREMIST ORLANDO-@ 0 S.C MAS IN
+VEMERUELA, “THE EMBASSY, HE SAID, HAS ATTEMPTING TO INVESTIGATE
+BOSCH'S ACTIVITIES IN VENEZUELA AND TO DETERMINE WHETHER:
+“WE WAS STILL IN THE COUNTRY, MARTINER SAID THAT THE EMBASSY HAD
+__heseven UNCONFS RMED MEPGATS THAT BOSCH HAD MOVED: ‘OUT. OF THE
+SGARACAS AWGA AND WAS THEN IN THE VENGEUELAN INTERIOR,
+UPIPLD COMMENT? FOG AN RARLIER REPORT ON THE PRESENCE OF BOScH
+IN VENGQUELAy SEG HVE*74098, “TOFIRDG=335/09814~765 OF 99°
+~aeTeNGER, FAUM A USUBLLY RELIABLE BOURCEN) © <= ,
+AW -ADDETION TQ AND IN CONNECTION WITH TVEBTY GATE ONS. ‘wre
+THE POSSIOLG PRESENCH OF BOSCH IN VGNGRUELAY CUBAN EMBASSY
+“OPPLCLALE ARB CONCERNED ABOUT THE MACHINESQUNNING OF THE CUBAN EMBAEEY 4
+IN GARAGAS BY UNKNOWN ASGAILANTR ON THE GARLY MORNING OF 6 OCTOBER,
+i) DISHUME GHBABGY, FAT AT CARACAGI SENP. 10.
+enon ae
+
+. : ?
+W oLN422 ; mo .
+TORR DB-315/10100-76 : ;
+i
+WARNING NOTICE i ,
+| SENSITIVE INTELLICENCE SOURCES AND METHODS INVOLVED PAGE 3 OF y PAGES '
+. THER DISSEMINATION. AND USE OF THIS INFORMATION SURIECT TO. Pe
+| e SECRET FUNTHET GNTROLS STATED AT BEGINNING AND END OF REPORT. poe fae
+| nee
+. ; _ at t
+"TAKE ACTION), \ -
+i
+
+i,
+%
+14-0000 . ° whos .
+
+veneer
+
+met
+
+MN ObNN22--
+
+I
+t
+. SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED ease 4 OF N PAGES |
+
+; tort DB-315/10100-76 '
+WARNING NOTICE ; ‘
+~ SECRET : FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUMIECT. TO. =e :
+e . CONTROLS STATED AT. BEGINNING AND: END OF REPORT, .
+t
+. eee ee eee ne ee .
+PORT OF SPAIN, GEORGETUWN, KINGSTON, MEXICO CITY,” MANAGUA,
+GUATEMALA CITY, PANAMA CITY, SANTO DOMINGO, oo ; .
+
+‘REPORT CLASS 'S EC RE TeWARNING NOTICE*SENSITIVE INTELLIGENCE vos
+SOURCES AND HETHODS INVOLVED =~ NOT RELEAS ABLE TO FOREIGN NAT QW AL Seo vot pet
+MOT RELEASABLE TO CONTRACTORS OR CONTRACTOR CONSIA TANTS,
+_ CLASSIFIED vy RECORDED R REPORTING OFFICER, XGD5-2 5,
+
+oO TOROS San ned permet
+
+14-00000
+
+DATE: 9 SEPTEMBER 1976
+
+“CLASSIFICATION: CONFIDENTIAG
+SUBTCT: ORTANDO BOSCH AVIRA, IMROLE Vrotator
+FBI FILE NO: 105-2856 (WZANE) 4
+
+fit esse th +
+
+Beeler
+
+14-00000 2
+
+mmsinenagetee ee ES
+
+Classe
+
+Y 263627 Pack
+
+Ai
+
+tonsa sts
+
+<eh
+
+SECRET 2026208 Sem 76 Inve
+CITE CaRacas Sa070 CHACKEL ING ACTING) .
+
+quer Hest hom WK
+700 bivecror et) um WGA, GUATEMALA CIETY, MEXICO CITY. KINGSTON.
+pont OF SPAIN SAN J08e, onaaet oun, panina ¢ ctry,
+
+WNENTEL KySTONE MHSPIKE -
+SUPDATAS SOURCES WKOOXER/MURAWSKI (NOC) FROM WENORTH]6, NOT
+. FOR LIAISON, OD QOUECTIVE! J.i. INDEX BOSCH. GARCIA.
+
+-,' “" "PILE DEFERRED. cL. ay @3sass.
+FILED! = Zovadz9z —xxax
+
+BOC. MICRO. SER.
+
+HOV 24 1976
+
+4
+
+isi
+
+=|?
+
+|
+'
+i
+|
+|
+
+..
+@
+thy
+
+“Béje BIDAIR
+14-00000
+
+Enel asaMpR on Saber sNews mgt inert WRIA ME TREN, ONT I SN aetna
+
+eon cee, ° ee
+eo 8 fe ane
+
+ee
+i ° oF . a re er he rs
+. o- -
+;o- : secet 340° 6” Sees 8 MS
+33
+23
+
+Ca evteenat USE Cray” °° “paid 29 SEPTEMBER 3 F
+: m= OSaue
+DXTELLOENCE WE ORMANON CARE : (aC Lore OMGkS - ,
+
+settee moet vend ss tat eto mic viv vit enw Operon er gwd
+
+th ony other document o: pubhuetion, o seleaed amide the Agoney. Pending rewin, of tha revew, © copy & proméed tor Yow : may
+edvonce lnlermation. .
+" DISSEMINATION AND EXTRACTION OF INFORMATION CONTROLLED BY ORIGINATOR ; : f
+
+DISTRIBUTION TO: - spo .
+REPORT CLASS 8 EC RG ToowASNING NOTICESSENS! TIVE INTELLIGENCE :
+“SOURCES AND METHODS INVOLVEDeeNOT RELEASABLE TO FOREIGN NATION AL Seo
+NOT RELEASABLE. TO CONTRACTORS OR CONTRACTOR/CONSULTANTS
+
+_GOUNTRYL VENERUELA
+
+Dots. LATE SEPTEMBER 1976
+
+SUBJECT? Onesence OF ORLANDO BOSCH IN VENE2UELA UNDER THE PROo
+
+ne YECTION OF VGNEZUELAN PRESIDENT CARLOS ANDRES PERE2
+
+" p@gt «= VENGAUGLA, CARACAS (2a SEPTEMBER: 1976). FIELD NO. HVC=7498
+SOURCES «A NELTTARY OFFICER WHOSE POSITION: orves HIM ACCESS TO.
+
+OFFI OLA (REPORTS, HE IS A USUALLY RELIABLE REPORTER,
+
+THES IRPORMATION IS NoT TO BE Discussed WETH ANY’
+
+PORE IGN OFFICIALS, — INGLUDING THOSE OF’ THE VENE 2UELAN
+
+- QOVEANKaNT ns .
+
+IN LATG SEP TEMBER 4076 GENERAL RAUL: 0. 1 1 & N ‘ea “aatnaas
+_ WGAD OF THEY RECT GRATE FOR THE SERVICES: 6F INTELLIGENCE. AND
+
+-PAVENTION (DIGIP). BALD THaT: ORLANDO | a8 GH» A CUBAN axtul -
+
+LMADER, 18 CURRENTLY IN VENREUBLA UNDER: tHE PROTECTION OF PRESIDENT |
+7 CARLOS wa Pun a A, THE PRESIDENT. “QIMeNaa. 41D, wad: ORDERGD oe
+
+=< QRLANDO. Oa A gt ta i PRESICENTPAL security AND
+
+~ANTEGL Taunt ADVIEOR, TO PROTECT AND. assrar. ‘eoncn DURING: H18 any 1
+
+ee ¢ aar
+
+14-00000
+
+1 hememeemcenenernet Rae TEN
+
+eeoseye2 ~ yo
+_ SECRET FURTHER DISSEMINATION AKO USE OF TAS nEORMADON SURECT TO eof:
+e- . CONTROLS STATED AT BEGINNING AND END OF etroal, . oo “t
+
+VENEZUELA,  (FLELD COMNENTS: FOR ANOTHER REPORT ON" BOSCH'S: PRESENCE
+In VENEZUELA SEE WVCe7483, TOFIRDB 9315 /e9430~76, OF HID SEPTEMBER, ©
+PROM A SOURCE OF UNDETERMINED RELIABILITY, FOR ‘a REPORT ON GARCIAYS
+“ROLE AS DE FACTOR O18 CHIEF SEE HVCe7493, TOFIRDB=315/ Tn
+PROM ANOTHER. SOURCE OF UNDETERMINED RELIABILITY.” WHILE CURRENTLY
+
+A NATURALIZED VENEZUELAN» GARCIA IS A NATIVE BORN CUBAN, )
+
+2, PRESIDENT. PEREZ, GINENEZ SAIO.HAS BEEN SYMPATHETIC 10
+
+BUSCH FOR SOME TINE, FURTHERMORE, GIMENEZ SAID THAT WHEN BOSCH WAS
+OBTAINED By DISIP IN NOVEMBER 1974+ PRESIDENT PERE®. PERSONALLY
+" AARANGED WIS RELEASE AND SUBSEQUENT TRAVEL TO CHILE, =
+"3, PHELD DISSEM: EMBASSY, FOI AT CARACAS! SENT TO MANAGUA,
+GUATEMALA. CITY. HEXICO CITY, KINGSTON, PORT OF SPAIN» SAN uGe
+‘QRORGETOUN, PANAMA CITY.
+
+oe tenement
+eee tenn
+
+“ REPORT CLASS 8 @ CRE T=*WARNING: NOTICE*SENSI TIVE INTELLIGENCE
+Stunces AND METHODS INVOLVED@eNOT RELEASABLE TO FOREIGN NATE ONAL S* =
+ONO. RELBASAGLE TO. CONTRACTORS OR CONTRACTOR/CONSUL TANTS,
+“GLASSIFLGD GY ABCORDED REPORTING OFFICER,  x0D8~2:
+
+14-00000
+
+a
+
+‘swe om ~ eee cee .-
+. eee
+—? * oe ee
+
+teen ee
+
+= 2 © «©
+
+© efvencic rom ©F Crete toon
+oe COFFE oS Pee -
+
+memmresenyeratnemes veers Bea Se,
+
+;
+’
+"$ 249378 © G3a05S Pace Cr-0a fy eeser? 4
+i. , T0R02528078 SEP 6. spon 1776S
+" eC RET 2310568 SEP 76 Starr uO So cn
+CITE SANTO. DOMINGO 17706 +
+Toe DIRECTOR, © : . .
+
+WNINTEL REAM HHSPIKE
+$+ STATION WOULD APPRECIATE HOS THINKING OM WHO OR WHAT
+ORGANIZATION CARRIED OUT LETELIER ASSASSINATION, =
+2. HAS FOL INVESTIGATION EXPLORED POSSIBILITY:
+ASSASSINATION MIGHT BE :WORK OF ORLANDO @ OS CW'S CORU?
+FILE! 203°209202, G2) IMPDET.
+
+p10 300 -aP
+
+14-00000
+
+mesonreet woreeo 8 e caer F a eee oe
+’ sur .
+~baGE B00. :
+__ TOR 2BRNATE SEP 76 co
+SECRET 2221132 SEP 76 Stare . a
+CITE SANTO DOMINGO 47702 | . . ; 7 .
+Tor port oF SPAIN INFO DIRECTOR, CARACAS, MANAGUA, ce once Tout, |
+LasMtaMt. * . i a
+WNINTEL REAM Oe mS
+
+REPL ay CARACAS 30917 (rf ovessy
+By SANTO! DOMINGO 47682 «NOT SENT OR
+
+- TS 039 S42 EEDED LA/MEAMY).
+: © s
+: 1.00 gevecr LON: RELEASE oF REF B WATER TAL ON ORL ANDO
+
+‘postr, oe,
+2, FILE! 2049299292, E2 IMPDET
+
+14-00000
+
+cipee ast pecan ese tees AH
+
+SL Reg m: perp matt He mata Sb,
+
+z
+
+i w KCYP Liaison Office,
+
+y 1s T8o Massachusetts Ave. N.W., —
+i ent! ott te
+
+s 'f RE Washington, D.C. | 20008
+! ee AER .
+j . ’
+t .
+{ue,. Y6WLO-15-83(B) .  #t, September 1976 ’
+
+SECRET |
+
+.-) We. Arthur Stimpson, Y
+CuI LAs, :
+Washington, D.C.
+
+1
+
+| ;
+
+Foon, Re: ¥ezerctTo SECRETO DE CUBA :
+mo . At . (SECRET ARMY OF CUBA _- USA)
+
+My Headquarters advises that the above captioned
+
+. " faction, which is Miami based, has been sending what
+
+_ appears to be warning letters to several Canadian establish-
+wents, public and private, at home and abroad. We had the.
+
+- handwriting analyzed and our expert stated that those.
+_letters we do have were all written bY tho. same person.
+
+uo Recently the BJERCITO, ECRETO DE CUBA (ESC) has
+come to our attention again fnd we are speculating that... _
+‘it may be tied in with th D REVOLUTIONARY ORGANIZATION
+(URO), headed by Orlando Bo ‘AVILA, and. composed of. five
+~ anti-Castro Cuban exile (ACE) terrorist. groups: ACCION
+CUBANA (AC), FRENTE NACIGNAL DE” LIBERACION CUBANO (FLMC), —
+MOVIMZIENTC NACICNALISTA. CUDANO: (CNM) » BRIGADE 2596,. and.
+“SHE 17th oF ‘APRIL MOVEMENT . . 7
+‘.
+: uRO gana into being. in June 1976 and: since that.
+tine has claimad responsibility for several terrorist
+attacks, 4:0. the airport bombing in Kingston, Jamaica;
+_the attempted kidnapping of the Cuban Consul. in Merida,. bas
+Mexico and murder of an official of the Cuban Institute. —
+
+" Cont'éss.
+
+14-0000,
+
+SECRET Zc Septeader 1976
+
+>
+
+\
+| I6WLO-15-03(B)
+\
+
+Of Pisheriee during the attempted kidnapping, as well ~~
+a6 the bombing of the Guyanese Consulate General in e
+‘Port of Spain, Trinidad. : : . : ‘
+
+We would appreciate. receiving any backqround
+@ata you may be able to supply us regarding the URO ~
+and EJERCITO SECRETO DE CUDA. . . :
+
+Lo ; i* similar request is being made to the FBI.
+
+Youre truly,
+
+; Kennoth G. Osborne,
+“ Assistant Liaison Officer —
+
+ite eee
+the seceniltg Governaeat
+
+ee rd, kad Aha copa, pr
+
+aed lit tt
+
+ef ths Comment ol Goad,
+14-00000
+
+3 ° ~~ . : :
+: es OUTGOInG MESSAGE f-
+aw SSNS ee :
+en a !
+. eet ee ee es D eet fe ee Lie ’
+SECRET ; . oe
+. betes oe oem . os Cone seer =. . . ‘
+: svare 22y7,2z DIRECTOR: : 7 *. @3708% f :
+Poo, ms = OebEEM OY: i
+i . ? 4
+i Vos CABLE SEC. ¥ y .
+i PLS RELAY CARACAS 3050? > im O4IbOAl TO SANTO DOMINGO FOR INFO. oo
+oo 75 GR INPDET A, grtiljber% >*/ 7 aM
+
+tes beret
+
+pare: 20 SEPT
+bags HARRIET WEILER
+Veit: EAA/VaR
+
+3 .
+
+14-00000
+
+SPA eae ares ce et
+
+. oreses av me wove, cosas | a 2 : a : . Ag
+
+Oaesee/imst worse rte ia _—__SECRET : ears esa
+
+‘
+
+i : !
+
+li T2yeseo€1aS35 aE SCS*~<“—ti~“‘“‘~™SC a SO a
+. _TORt1829532 SEP 76 eat soos? S|):
+
+Nt °
+
+1, a cs
+' g GC RET ter7e72 SEP 76 INTEL * S50 : ft
+
+CITE CaRacas 32967 (HACKEL ING ACTING)
+
+YOU PRIGALTY DIRECTUR INFO PAKAGUA. GUATEMALA CITY, weier” Leave.
+BUENOS alaes, “een, PS cat OE SPAIN» san Sise. eECRceTOUNs
+PANAMA CITY, | 7 .
+
+_WNINTEL KMSTONE MHSPIKE
+SuPDatat ZRWAHCE FOR SOURCE DESCRIPTION. SOURCES NP/WKDIETSS
+
+“DIRECTLY. SOURCE PARA 2 FIELD COMMENT MURANSKT CNGED.
+‘NOT FOR LIAISON, OD OBJECTIVE! Jody
+
+7 INDEX BOSCH. FERNANDEZ, AND PENA, FILE DEFERRED.
+
+Gk. ay. 835433,
+
+Pibept — aasaeaoe
+
+ot
+
+MlCaO. SER.
+
+: SEP 291976.
+
+‘Sat = AIGDO2
+14-00000
+
+? @tons . ” ne er ae oa
+. - seca JU lpr
+. GA paTeenal USE Cr" Tact 2a SEPTEMBER 1°
+. wm 043608 :
+
+WITELUIGENCE DEFORMATION CARE PAGE 1 OF PAGES 4
+
+WARNING NOTICE
+SENSITIVE ENTELLIGENCE SOURCES AND METHODS INVOLVED
+
+the letloving ropa, worumined trom © CIA fald satan, requires review wihin the Directorene of Operations before being wed 4
+ta eny other document or publication, oF released. ounide the Agency. Poncng resus of this review, © copy ls provided for, your. !
+
+8 DISSENSNATION AND EXTRACTION OF INFORMATION CONTROLLED. py oniciNATOR . . : ’
+DISTRIBUTION TO: SDO “
+
+8 wmvorr ci By core? |
+
+REPORT CLASS § E "GRE TeeWARNING NOT ICE*SENS IT IV INFELL GENCE
+SOURCES AND METHODS INVOLVED=*-NOT RELEASABLE TO FOREIGN NATIGNALS©=
+WOT RELEASAALE TC CONTRACTOORS OR CONTRACTOR/CONSULTANTS.
+CouNTAY! VENEZUELA/CUBA a
+DOL «tS MIDeSEPTEMBER $976 .
+suevect: Cartval OF CUBAN EXILE LEADER ORLANDO BOSCH IN-VENBEUELAD’
+: AND HIS COMMENTS ON THE ACTIVITIES OF HIS: gRouP
+aco t VENEZUELAs CARACAS (18 SEPTEMBER. 1976) FIELD NO, HVE~7483
+source : A CUBAN EXILE WHO MAINTAINS CLOSE CONTACTS WITH OTHER
+EXILES, HIS RELIABILITY HAS NOT BEEN ESTABLISHED.
+a IN MID@SEPTEMBER £976 CRLANDO “BOSCH A CUBAN EXILE
+“ LEADER» SAID THAT HE HAS UNITED ALL OF THE VARIOUS GUBAN EXILE GROUPS
+INTO ONE GLOSELY-KNIT ORGANIZATION. HHIGH PoLuows. His LEAD, - aosew ~
+| GAVE YHE GROUP NO TITLE, BUT SAID THAT IT WAS WELL-ORGANIZED. AND
+“PLANNED TO CONTINUE FIGHTING THE REGIME OF CUBAN PRIME MINISTER
+we  PIDEL CASTRO ae
+By. BOSCH, WHO ARRIVED IN canacas, VENGEUGLA, fa “AN  gusreb rie
+“" ROUTE ON OR ABOUT 23 SEPTEMBER, SAID THAT ON A PREVIOUS. visié To.
+ WgNERUGLA HE HAD MET WITH PRESIDENT CARLO ANDRES PER EE AND
+ORLANDO GAR GT Ar AN ONTAASOPPLCL AL PREGIDENT LAL sucuntth
+‘ & 8 Rat
+
+1400000 *
+
+Sera ratetete ase = Gennes
+
+™ 943608
+"TORR :
+WARNING NOTICE
+SENSITIVE INTELLICENCE SOURCES AND METHODS INVOLVED
+
+— “SECRET ~ -PUNTHER DISSEMINATION AND USE OF THIS INFORMATION, SUBJECT TO
+eo CONTROLS STATED AT BEGINNING AND END OF REPORT. .
+
+_ PAGE. 2 OF. § PAGES
+
+: CHIEF. DURING THIS MEETING PEREZ TOLD BOSCH THAT HE SYMPaTHTZED.
+
+° WITH: BOSCH'S ANTIS CASTRO EFFORTS BUT THAT WE WOULD ALLOW NO SUCH
+
+ACTIVITIES IN VENEZUELA, AT THAT TIME BOSCH GAVE PEREZ HIS woRD
+
+THAT HE WOULD UNDERTAKE NG TERRORIST ACTIVITIES IN VENEZUELA, aND
+
+PEREZ, IN TURN, GAVE BOSCH A TOKEN CONTRIBUTION-OF U.S. S5BG.a8
+
+FOR HIS ORGANIZATLON, IN RECENTLY ARRANGING FOR HiS RETURN *0
+
+VENEZUELA, BOSCH SAID THAT HE HAD.BEEN PLEASED TO FIND THAT VENE@
+
+ZUEL AN AUTHORITIES ISSUED HIM A VISAs IN HIS TRUE NAME> WiTHOUT
+
+DELAY, (FIELD COMMENTI AN OFFICIAL VENEZUELAN SERVICE .
+
+ye REPORTED THAT. LUCILO “P EN A AND ARMANDO :
+AE
+
+RNAND E 2) GOTH MEMBERS OF RADICAL CUBAN EXILE GROUPS.
+
+ARRIVED IN VENEZUELA ON APPROXIMATELY 6 SEPTEMBER.
+OF THEIR ACTIVITIES IS NO? KNOWN.)
+
+THE NATURE
+
+4, BOSCH COMPLAINED. THAT HE WAS RUNNING OUT OF GAPE MAVENS,
+‘THE DOMINICANS, HE SAID) HAD ASKED H3M TO LEAVE AND THAT, OF BOURSE,
+
+HE WAS NOT WELCOME IN THE-UNITED STATES, WHILE THE.G0VERNHE NE oF
+
+“" GHELE, WE SAIDs HAD DONG NOTHING TO CURS HIS ACTivirtas. tT alsa
+
+GAVE HIM NO REAL SUPPORT,
+
+costa toa 48 e NOTED WITH BTBDAIN, 18
+ROSCASTAO, Cl EES oe :
+
+§, BOSCH Sato. vHat Mt Now REALISED. THAT ST wna mtatana fe
+
+14-00000
+
+©
+
+® . O'3b98
+
+-~
+
+WARNING NOTICE ,
+| SENSITIVE INTELLIGENCE SOURCES AND METHODS DwvOLVED PAGE 3 OF y PAGES —
+SECRET FURTHER DISSEMINATION “AND USE OF THIS INFOMATION SuBsect f To i
+
+e CONTROLS STATED AT BEGINNING AND E!i2 OF REF t
+
+WAVE CARRIED OUT. BOMBINGS IN THE UNITED STATES AND SAID THAT WE DID.
+NOT PLAN TO MAKE’ “UNITED STATES PERSONNEL OR PROPERTY THE TARGETS
+
+OF ANY FURTHER INCIDENTS, IN COMMENTING. ON HIS FEBRUARY i976
+
+“DETENTION BY COSTA RICAN GFFICIALS. BOSCH SAID THAT HE HAD NEVER
+INTENDED TO MAKE AN ATTEMPT ON THE LiFe OF THE UNITED STATES
+GECRETARY OF ‘STATE, WHO WAS AT THAT TIME VISITING LATIN AMERIGAs
+
+6, IN COMMENTING ON THE DISAPPEARANCE OF TWO CUBAN EmBassy
+(OFFICIALS IN BUENOS AIRES» ARGENTINA’ BOSCH SAID THAT DESPITE RUMORS -
+an) THE CONTRARY, HIS GROUP Had NOT KIDNAPPED THE CUBANS. 808EH
+“OPINED THAT THE CUBANS HAD PROBABLY. DEFECTED AND wouLo TURN UP
+ QOONER OR LATER, ©
+MN BOSCH) WHE HAS GAINED A GOOD DEAL OF We tant y gato. rat “a
+- was Mh AND PHYSICALLY EXHAUSTED, NEVERTHELESS, BOSCH: INpicateD tat
+=, WE WOULD CONTINUE FIGHTING AGAINST THE CASTRO REGIME, (SOURCE
+_ goMMENTE BOSCH TBOBVIOUSLY ILL AND SUFFERING FROM Eve PROBLEMS,
+_, DAOPITE BOSCH'B CLAIME OF A STRONG, UNITED ANTI©CASTAD QROUP,
+QORCH'S DETERIORATING PHYSICAL CONDITION Make. 17 NOUBTFUL: THAF Me
+Wibb G6 ABLE TO MAINTAIN CONTROL OF IT FOR “YAY LONGs}
+Oy FUELS presen GMBAGGY, Pui av CARAcAS! “GENT ror saute
+QOMiNaes 1 SAN vOemy DUENOR AIRES, MANAQUAr HEKECO citys OUATEMALA..
+
+14-00000
+
+CT ARR a Ramer EFE MECELU FN. |
+
+“wm owaEoe
+TORR
+
+Ld
+
+’
+‘
+
+‘WARNING NOTICE
+SENSITIVE INTELLIGENCE SOURCES. AND METHODS INVOLVED
+
+i. “SECRET .__ FURTHER DISSEMINATION AND. USE OF THIS INFORMATION SUBJECT TO
+. CONTROLS STATED AT BEGINNING AND END. OF REPORT.
+
+PAGE y OF 'y PAGES,
+
+crt. KINGSTONS GEORGETOWN. - “PANAMA CITY, bd
+
+“REPORT CLASS. S$ EC RE T--WARNING NOTICE*SENSITIVE: INTELLIGENCE
+
+SOURCES AND METHODS INVOLVED-*NOT RELEASABLE TO FOREIGN: NATLBHALS=< oe
+NOT RELEASASLE TC CONTRACTORS OR CONTRACTOR/ CONSUL TANTS,
+~ CLASSIFIED BY RECORDED REPORTING OFFICER.
+
+xGDS=2.
+14-00000
+
+STATE CABLES
+
+FROM AMEMBASSY GUATEMALA 6515
+
+DATE: 20 SEPTEMBER 1976
+
+CLASSIFICATION: SECRET
+
+SUBJECT: ALLEGED PLOTTING BY CUBAN EXILE
+. ORLANDO BOSCH .
+
+14-00000
+
+ro,
+
+SECRET 171325Z SEP 76 STAFF.
+CITE DCDAIEW YORK 26899
+
+_ TOs DCD/HEADQUARTERS. oot ,
+OPERATIONS SERVICES GROUP CVALKER) FROM SILVERMAN
+©; SUBJ® POSSIBLE OPERATIONAL ACCESS TO DONINICAN REPUBLIC OFFICIAL
+
+i. OUR COOPERATIVE CONTACT, GEORGE H. LEWSON OF OCEANOGRAPHY
+DEVELOPMENT CORPORATION, DANBURY, CONNECTICUT, HAS INFORMED US
+THAT ANSELMO PAULINO, DOMINICAN AMBASSADOR TO FRANCE AND. SWITZERLAND, ©
+
+_ MAY WISH TO ASSIST THE AGENCY IN REGARD TO THE DETERIORATING POLITI-
+‘CAL SITUATION IN HIS HOME COUNTRY. PAULINO'S SON,.A-NATURALIZED US
+
+~ GEAR FUTURE.
+
+CITIZEN, WORKS WITH LEWSON AND WILL BE INTH&OUCED TO US IN THE
+
+~._@, PLEASE DETERMINE FOR US WHETHER LA GivZSION HAS ANY OPERATIONAL
+“INTEREST IN PAULING AND/OR IN THE DOMINICAN REPUBLIC. IN GENERAL.
+
+FILE: MISC "O" COCEANOGRAPHY DEVELOPMENT). VAT
+EE IMPDET cL BY 013544 oo ‘M2 Prlbarr®
+
++ rags
+
+i
+
+Ey
+
+14-0000
+
+- o0ssee or Fete, comics ore ev
+
+3 owe wooey 8
+oepneasense wotircae pa :
+
+e145358.=~S~*« AGE et ; “ “TT ee36e8 : Ly
+TORI20109532 SEP 76. cana 30087 i Py
+SECR et 1617672 sep 76 INTEL wee-7483 te my
+| GITE GARACAS $2907 (HACKELING ACTING) en
+/ "YOR. PRIORETY DIRECTOR INFO D MANAGUAL GUATEMALA CITY, MEXICO EiTY. _ :
+H .
+ BUENDS AIRES, INGEN int or sain a JOSE» GEORGETOWND H .
+ee — a
+> PANAMA CITY, —=7 0
+
+OWNINTEL KMSTONE.MHSPIKE a
+SUPDATAt 2RWAHOG FOR SOURCE DESCRIPTION. souRcEr. NP CWKD IETS
+DIRECTLY. SOURCE PARA 2 FIELD COMMENT MURAWSKT (NOE).
+NOT FOR-LIAISON, 0D GBJECTIVE! uit.
+- INDEX BOSCH» FERNANDEZ, AND PENA, FILE DEFERRED.
+“GL. BY e3sas3. a
+sesaosen.
+
+14-00000
+
+secert
+a Qa OMTEENAL USE Osa pave ba SEPTENBER 3%
+, = O43b08
+7. . ORTELLGENTE DEOEMATION Cane 0aGE 1 OF 0aGes °
+WARNING NOTICE a
+
+i
+i
+4
+|
+i The tollowing report, werammed trom @ GLA held cision, requires review with the Dieecaoeee eo Operstion: betere being med
+t in any other documess or publcanon, or released eunide the Agency. Fendina rans of tn rvirw, © supy & provided ter yout : ‘
+! “od once inhormation .
+i DISSEMINATION AND KSCTRACTION OF INFORMATION CONTROLLED BY ORIGINATOR : "bot
+Al DISTRIBUTION To: _$Do ; t
+1
+
+‘REPORT class se CRE Teew aR NING NOTICECSENSITIVE, INTELLIGENCE
+
+_ SOURCES axa METMODS INVOLVED@=NOT RELEASABLE TO FOREION NATIONAL Se®
+
+tt
+
+oe | co WGT RELEASABLE TO CONTAACTOORS OR CONTRACTOR/CONSULT ANTS
+os COUNTY: .VENE2UELA/ CUBA
+-| > pot ts maDeSePrenBen seve — ‘ *
+
+SUBJECT: ARRIVAL OF CUBAN EXILE LEADER ORLANDO BoScH 18 VENRRUELA) ©
+AND HIS COMMENTS ON THE ACTIVITIES OF HIS GROUP
+
+ACO % VENEZUELA. CARACAS (10 SEPTEMBER 1976) FIELD NO. HVe=7483
+SQURSE : A CUBAN EXILG wHo MAINTAINS CLOSE CONTACTS WITH OTHER
+
+Fo EXILES, HIS RELIABILITY. HAS NOT BEEN ESTABLISHED,
+
+2, IN WID@SEPTEMBER £976 ORLANDO 8 0S C He A CUBAN EXILE
+
+,LEADERs SAID THAT HE WAS UNITED ALL. OF THE VARIOUS: CUBAN, EXti's oRoUPs
+
+| TNTO ONE CUOSELY-RNIT ORGANIZATION WHICH FOLLOWS HIS LEAD. BoScH
+
+“GAVE THR Grae: NO. The BUT SAID. THAT 17 WAS. WELL°OROANTZED AND”
+
+PLANNED TO GoNT.tRUE FUGHTING THE REGIME OF CUBAN PRIME MiNISFAR
+
+PiDL CAST AG.
+
+<7 Re BOSCHs WHO ARRIVED IN caRAcAs, VENEEVELA ViA AN -iePae tr te
+ROUTE ON-OA ABOUT 23 SEPTEMBER. SAID THAT ON A previous vist’ to
+-WENERUELA WH HAD MET WITH PRESIDENT CARLOS ANDRES PER EB AND:
+ORLANDO 8 ARG T Ay AN GXTRACOFFICLAL PRESIDENTIAL SECURITY
+
+14-00000
+
+BUELAN AUTHORE TES TSSUED HIM a VISA, IN HIS TRUE NAME. we teaut
+
+. THE DOMINICANS) HE SAID. WAD ASKED HIM TO LEAVE’ AND THAT, OF GoURSE,
+ee WE WAS NOT WELCOME IN THE UNITED STATES, WHILE THE.G0VERNNE NE OF
+~/ GHILE, HH GAID, HAD DONE NOTHING TO CURA HIS ACTIViTigs, tT al'so
+
+“ pRBeCASTAD,.
+
+auto
+
+™ perce oo ’
+
+Tora . ooo fa
+_ WARNING KOTICE Bee, - .
+spare wereuiscente SOCKS orb METHODS DivOLYED rast 2 OP § paces '
+
+CONTROLS STATED AT BEGINNING AND ENO ‘on aot
+
+CHIEF, DURLKS THES MEETING PEREZ TOLD BOSCH THAT WE SYHPatHTpED |
+WITH BOSCH*S ANTIoCASTRO EFFORTS BUT THAT WE WOULD ALLOW NO such \ |
+ACTEVETIES. IN VENEZUELA, af Vrat TIME BOSCH GAVE PERE2 WIS WORD I
+mat WE WOULD UNDERTAKE NO TERRORIST ACTIVITIES IN VENEQUELA, AND, |
+
+“DERER, 1N TURNS GAVE BOSCH A TOKEN CONTRIBUTION OF U.S. s3ce.ae
+FOR HIS ‘Ongantzation, UN RECENTLY ARRANGING FOR His RETURN $6.
+VENEZUELA, BOSCH Sard THAT KE wAD BEEN PLEASED TO FiND THAT VENE®
+
+DELAY, (FIELD COMMENT: AN OFFICIAL VENEZUELAN SERVICE
+
+INDEPENDENTLY REPORTED THaT LUCILO PEN A AND ARMANDO:
+
+FERNAND E 2 80TH MEMGERS OF. RADICAL CUBAN EXILE GROUPS,.
+
+ARRIVED IN VENEZUELA ON APPROXIMATELY 6 SEPTEMBER. THE NATURE
+
+OF THEIR ACTIVITIES IS NOT KNOWS: oe
+“4y BOSCH COMPLAINED THAT HE Was RUNNING, OUT or. sare mavens
+
+GAVE HIM NO RBAL SUPPORT, costa RICA WE ano WITH DIODAIN, 18
+
+poscH barD THAT HE wow REALIRSD THAT {7 wat a WESPARE to
+
+1400000
+
+o  9*3598 :
+tore Sm ,
+SEXSITIVE DTELUGENGE SOUACES aND METHODS IAVOLVED, PAGE 907 y PAGES. Fob te,
+_ RUEIWER DISSEMUNATION AND USE OF THES ne CRuANON SUEECT TO : '
+;
+
+CONTEQRS STATED AT BEGINNING AND END OF
+
+WAVE CARAIED OUT BOMBINGS IN THE UNITED STaTES ann Sard. twat we DID
+WOT PLAN TO MAKE UNITED STATES PERSONNEL OR PROPECTY THE TaRosTS
+
+OF ANY FURTHER INCIDENTS. IN COMMENTING ON WIS FEGRUGRY 397% - |
+
+| : DETENTION BY COSTA RICAN OFFICIALS. BOSCH SAID THAT WE WaD NEVER
+
+| “AWE NDED 70 MAKE AN ATTEMPT ON THE LIFE OF THE UNITED STATES
+
+SECRETARY OF, STATE wHO was ar THaT TIME VISITING Latin AMERIGA.
+6,
+
+—. SECRET
+|
+|
+|
+
+i nS Ce D4
+|
+
+IN COMMENTING ON THE ‘DISAPPEARANCE oF THO CUBAN EMBASSY
+OrFLezéus IN BUENOS AIRES» ARGENTINA, BOSCH SAID THAT. DESPITE RUMORS
+TO THE CONTRARY, HIS GROUP HAD NOT KIDNAPPED THE CUBANS.. BOSEH
+
+OPINED THAT THE CUBANS Had PROBABLY DEFECTED AND ‘wouLd TURN ue
+SOONER OR LATER,
+
+7. BOSCH, WHO HAS GAINED A GOOD S2aL OF WELGHT. SAID Thad HE
+
+WAS ILL AND PHYSICALLY EXHAUSTED. NEVERTHELESS» BOSCH: : INDICATED tHat
+
+HE WOULD CONTINUE FIGHTING. AGAINST THE CASTRO REGINE,
+7 COMMENTS
+
+(soURcE
+BOSCH IS oBvi0USLY TLL AND SUPFERING FROM EVE PROBLEHS.
+pEsP ite BOSCH'S CLAIMS OF A STRONGs UNITED ANTI@CASTRO GROUP,
+aoscnts DETERTORATING PHYSICAL CONDITION Maka i DOUBTFUL THit 4e
+_ Wtbb 8a ABLE TO MAINTAIN CONTROL oF at FOR vaRy LONG.)
+” Ge =PiGLD Disses Bhaa88y, rol at CARACAS) ‘SENT. TOL SANTO
+: poMiNod, GAN JOSE) BUENOS AIRES, MANAGUA) HEXICO city, - OUATEMLA
+14-0000
+
+: Coat Ot DEsse oe yo a Se Sees Ae t 2S 3
+jo mmotcoree Ce UL
+
+-_—
+
+tm e6ser8
+Toms ie23e5a REP f6 maMA 3200000
+
+“pec ne t1022002 SGP 76 Btaer oe
+CLT MaNdgua S208 oo . See |
+Tou Patonivy DIRECTOR, GUATEMALA CITY. Mexico CITY tNfO CARACAS.
+KINGSTON. PORT OF SPAIN, SAN JOSE, QHOROUTOWN, PANAMA city.
+WHINTEL REAM NHSPEKE
+
+“ROPE. Ay MANAGUA 42478 (WOT BENT ALL AddERS) (74/
+
+8 Saito DoMINGo 39002 (a/ 0392)
+
+-GRYTHRO IDS REPORTED THAT ORLANDO BOSCH DEPARTED
+‘awa FOR GUATEMALA CITY ON @ SUPTENBER Via COPA FLIGHT LS
+@, GAYTHRO D953 APOLOGLaGD FOR DELAY iN ADVISING STATION.
+
+"wut ‘SAID HiS SURVEILLANCE HAD LOST BOSCH AND ONLY DISCOVERED
+
+nis DEPARTUAG ON <3 SEPTenseR ‘GP 7S® Revimitse futeur WANIPESTS,
+
+“3 a FOR MEXICO CrTyi FLeaRe @ anvesa Laady atPACNED: OF _
+
+QSCH'S TRAVEL, close Sf
+
+“Ge POR GUATEMALA Civ¥) Aae a axe priv igus terre.
+
+‘REPORTED BOSCH ARRIVAL IN MANAGUA ON 98 iuger,
+
+Per anseavensa. ame tMwceT,.
+
+wel .
+
+14-00600
+
+t | “REPORT CLass SE CRE TeeWARNING “NOTICES
+4
+
+cad vm iatpnes FEY
+
+—_~.
++7 ; = in '
+. m owROs 4
+tre . ae
+. WARNING NOTICE ; a.
+sexumnz INTELLIGENCE SOURCES AND METHODS INVOLVED DAGE 4 OF y Paces
+if SECRET . FURTHER DISSEMINATION AND USE OF THES INFORMATION SULECT TO *
+5 e : CONTROLS STATED AT BEGINNING AND END OF REPORT.
+; pT
+
+ar |
+
+city, KINGSTON, GEORGETOWN, PANAMA elty, - :
+
+SENSITIVE. INTELLIGENCE
+
+SOURCES AND METHODS INVOLVEDeeNT RELEASABLE TO FOREIGN NATIGNALS#=
+NOT RELEASABLE To CONTRACTORS oR CONTRACTOR/ CONSULTANTS,
+CLASSIFIED BY RECORDED REPORTING OFFICER, -
+
+14-00000
+
+“FB DOCUMENT
+DATE: 27 AUGUST 1976
+CLASSIFICATION: CONFIDENTIAL
+
+SUBJECT: ORLANDO IAZARO FERNANDEZ VAZQUEZ
+FRI FILE NO: “405-22619 (MzaMr)
+
+14-00000
+
+“OUTGOIN* MESSAGE
+
+re
+H
+i
+.
+.
+SS
+‘
+i
+1
+
+eran Cewres ves Om a
+onF a a o—-hCo [') o
+SECR URE Tt ‘
+
+7 Starr. : “Tsiaore Jo o. 4133% o oo
+t . omnes DISSEM BY: . t-
+7 O Caok woe: Se) \ ena ———— Bom Po
+
+O ens #
+
+| toe IMMEDIATE GEORGETOWN INFO SANTO DONINGO.¥
+J wNENTEL KnSToNE ¥.
+i} REF? A. DIRECTOR 9202678
+B. GEORGETOWN 21275: 1m O tas ¥ ;
+d+ QPERMISSION GRANTED TO PASS INFO CONTAINED IN SANTO DOMINGO
+37ba2s PARAGRAPH TWO. TO CHARGE FOR FOREIGN MINISTER WI LL BS.¥
+2. FILE: 20}-299e%2- C2 IMPDETA ;
+®REF STATED THAT NICARAGUA LIATSON-REPORTED BOSCH AND CASTRO WERE
+IN NICARAGUA AND THIS COULD BE PASSED. TO GOG VIA CHARGE. IF NO
+OBJECTION RECEIVED FROM MANAGUA STATION {NO OBJECTION RECCIVED?.
+
+@eREF REQUESTED PERMISSION PASS INFO THAT BOSCH UAS DEPORTED BY
+BOMINICAN GOVT ON 29 AUG AND IS CURRENTLY IN MANAGUA- FRANK «
+
+GASTRO TRAVELLED ON SAME FLIGHT AS BOSCH. Lo
+nm
+——
+Ho 7
+
+pant: 38 SEPT 7h
+- ORS: JOANNE HARRIS”
+wa LA/CAR/GT
+
+"a Sau » erearcog # ve
+: ghew " G/LAZNCA Yoon | Krtarcan +
+etl, oY ecoacsurses| ; exnveerceanse canes.”
+
+Spervmcnessen cee ante 3
+
+my qncewecren AUPRODUCTION BY OTHER THAN Th THE ISGUING OFFICE IG PRONIBITED «6g gg | «IMPDET
+1° Peerer#r : Ob BY: 022923
+| 7 Recon copy| =. a
+
+14-00000
+
+coca enniemmnsperscengeni gt RAT TE
+
+.
+°
+¢
+
+‘
+
+" wtsecnuceon @- crease -nJ.
+BSLAS OF s ~~
+au Ne ROTES, sec nce y cosee cer
+
+ee
+
+: pose SSL Et sioctes
+
+Svare
+
+anid t
+
+T 224998 Elace?. PaGE 21 tw esses. |
+
+TeAIsé23e92 SEP 76 Guat 29822
+
+_ SECRET s42e2e= SED 76 STAFF
+
+CITE GUATEMALA SITY sGe22 _
+
+ro8 DIRECTOR INFO MEXICG City, LACMTAMTS Santo powrycaes
+WNINTEL MHS PIKE
+
+REFS DIRECTOR Gse772
+
+2, REF BOMEING. BATCH WIDELY COVERED IN LecaL PRSSS, OCCURRED
+ON 31 AUGUST IN. THE MEXICAN CONSULATE IN DOWNTOWN GUATEMALA: city.
+
+THE “CONSULATE SUFFERES SOME DAMAGE AND A RECEPTIONIST was
+SLIGHTLY INJURED s SINGE BOMG EXPLODED WITHIN THE MEXICAN
+CONSULATE OFFICES: e&ICH LOCATED IN A LARGE BUILDING. wos:
+
+ ULRELY THAT THE CONSULATE WAS INDEED THE TARGET, NEITHER”
+BSMICA*68 NOR ESEEa=é (WHC INVESTIGATED THE BOMBING? HAD ANY”
+_ MARD INFORMATION CN THE IDENTITIES OR MOTIVES OF THE BOMBERS,
+
+AL THOLE SONE SUSE P3106 WAS ATTACHED TO THA GUARD we WAS: HOMO -
+10K ON THE DAY CF cHE BOMBING.
+
+“Re NO PELE, Bae IMPORT,
+
+14-0000
+
+STATE CABLE
+FROM AMEMBASSY SANTO DOMINGO 4497
+CLASSIFICATION: CONFIDENTIAL
+
+SUBJECT: TERRORISM AND ASSASSINATION PLOTS:
+. MEETING WITH WILLS
+
+14-0000
+
+cote
+
+went
+
+Cabs S65 Ont! a... -
+
+4 a “pS wt PaQOve tm OY omen Mord
+: poy ne Pome
+meinnest wean | s€ca — ? i
+
+mse baer TET
+
+; ;
+— C4. Y,-PSIEG Bn ,
+T2zdez1 — Elages Pace e2 “IN 630264 bo
+“apes von, NOMAGRL402 SEP76. BOOM a7 082 foie
+SECRET Leagzez SEP 76. STaFF ne . ‘ | .
+CITE SANTO DOMINGO 17602 - CO ; :
+
+TO! PRIORITY. DIRECTOR, GEORGETOWN INFO PRIORITY CARACAS. GUATEMALA
+4 Clty, KINGSTON, HANAGUAs PoRT oF SPAIN, San 3086 Oo
+a WNENTEL, REAM MHSPIKE .
+—REFSI ‘Ay EMBASSY GEORGETONN ExDIS Laie (aszce)
+a B. EMBASSY SANTO DOMINGO EXDIS 4497 (# ;
+i, REF a MESSAGE, WHICH SENT TO INFO ADDEE EMBASSIES, |
+“REPORTS ON 42 SEPT MEETING OF AMBASSADOR AND LEGAL ATTACHE
+LEO (WHO IS APPARENTLY ASSIGNED CARACAS) WITH FORELGN —
+nInrsTeR WILLS CONCERNING CUBAN EXILE ORGANIZATIONS AND
+BeHBING of GUYANESE CONSULATE IN PORT. GF SPAIN. ASCORDING Te
+REF A, LO SAID THAT CORU AND ORLANDO Boscu: OPERATING our or
+“ANTE DOMINGO. _ wtp be . os
+“Me at AMBASSADORS nfoues? STATION DRAFTED rouLowtNe
+AEP @ REPLY ON. 26 oarransuar
+
+“WER: ADVISES THAT ORLANDO BOSCH WAS paponran. ay
+ROMINIGAN GOVERNMENT ON 28 ¢AVQUAT IMD 18-GUARENTAY_LN HANAQUA,
+PRANK CASTRO TRAVELLED ON SAME PLIGHT WI tH 08CH,
+
+RE naaeers ANY vee THs TAP ORHATUON aa cuaaren WhTK byt e
+
+ar 09092-
+
+14-00000
+
+Ca0.8 GEC ODSEw Or.
+
+REPRO HON OF OTEA Tears
+19800. COFFE WB CROCEETED
+
+PERTON VIET HOTELS
+
+e
+
+ewe i 4
+Tae Tee ute 7
+
+'
+
+’
+
++ ]
+——~ -- — ne ee —
+
+ee ey eee PAGE 82-2 - a ‘
+
+TW 030247 : .
+
+eR (It SC Se) | eC Oo ee
+SAF HEADQUARTERS," Lo a og,
+
+- ° Se FUEL 2040209202, 2, IMPDET.
+
+_ x €Q RECORD IN: CABLE SECRETARIAT
+14-00000
+
+me.
+
+OUTGOING .. MESSAGE .
+
+Greeee conten vos ome .
+- - - — = —
+
+onr 0 o o- 66 0 o
+
+Secret : oy
+
+|). STAFF tus __ BIRECTOR 3277) ,
+
+a { -, 0 Oiseau ay: - .
+
+[2 Tot GUATEMALA CITY od MEXICO CITY, @H/NIANLs SANTO. DORTNGO- ait
+, WNENTEL MHSPIKE ¥ : a
+; de FYTE “PER LNERGO INFO DTD 3, SEP 7bs ORLANDO us SCs Z| :
+
+. _MEAD OF CUBAN EXILE GROUP "CORU"s CALLED CONTACTS IN 6D :ADVISING
+“THAT CORU REPS BOMBED NEXICAN.EMBASSY_IN GUATEMALA CITY ON 3 SEP..
+“GAUSING EXTENSIVE DAMAGE. END FYI. WOWEVERs FBIS INFO DTD 2 SEP
+ft SENDICATED THAT MEXICAN CONSULATE. GUATEMALA CITY. BONBEDs AND
+i
+
+LS abd et
+
+' QHAT ATTACK NAY HAVE BEEN INTENDED FOR NINING COMPANY OCCUPYTNS
+“SANE BLDG AS CONSULATE.¥
+2. WOULD APPRECIATE CONFERHATION OF BOnBINGRs PLUS ADDETIOHAL
+
+NO FILE. .E2 IMPDET. a
+
+: Je
+‘S“QQORDINATION: . LAZHRCA/N
+
+qa: a3 SePTenBER a97%
+ORG: EASTON WARNER? JABAO
+_ Nut OPS/ZT6
+
+a Di Bg,
+
+we Gecatem Gomes (Coeapeiatess Copisere
+| ‘RAFRODUCTION BY OTHER THAN THA LaBUING CFFIGE IU PROHIGITED “og IMPDET
+
+_ OL oY ouu7ay
+
+414-00000
+
+“OUTGOING RESERGE . 3
+
+. Ha eet
+an CSET Sy SO Gls
+Pre a a a a a ar a 2
+SECRET oo a
+Svarr MESSE DIRECTOR aidek eo
+cone: LF wo: ma (PAs, NEL pilooy ‘poo 8 dS OO S
+
+ppofbe, oBhrey seh. Qo monm Pen ;
+oa peds, c/a, Denn. #
+TOs PRIORITY GEORGETOWN INFO PRIORITY MANAGUA v-
+
+WNINTEL MHSPIKE ¥ oO
+HORE: GEORGETOWN auzuo ITN O329931* {NOT NEEDED MANAGUAD ¥
+© «4g. WE HAVE LEARNED THAT THE STATE DEPARTHENT IS AREQUESTING == a 4a“
+© INFORMATION FROM TH FROM THE FOL_ON THE ACTIVITIES AND: PERSONNEL. OF THE apt
+-—GQORDINATZON OF THE UNITED REVOBRLUTIONARY ORGANIZATION CORUM» =
+
+THE DEPARTNENT UILL INFORM EMBASSY GEORGETOWN WHAT INFORMATION THE
+Fer IS WILLING TO RELEASE FOR PASSAGE .TO THE GOG- RATHER THAN
+ESEPARATE AND DUPLICATE INFORMATION FROM THE ‘Fat. WE
+ADVISE THE CHARGE OF THE DEPARTRENT'S ACTION IN
+
+- REQUEST
+|. SUGGEST THAT YOU.
+
+"GES REGARD.¥ oo .
+‘ge THERE TS NO IDENTIFIABLE INFORMATION. on GIL NOB. Le
+
+~ PRAVEL INFORMATION SHOWS ONE GeH-. NOBLE, Us Se CITIZENS BORN 4 AUG
+MNED. TO TRAVEL. TO East GERHANY IN d5tts HOWEVER THERE i
+
+* §iwie. PLA
+he: CONFIRMATION OF TRAVEL-¥ weet gs
+2:° WE HAVE. NO ADDITIONAL INFORMATION. ON CORU. WE Have LEARNED
+
+PROM NICARAGUA LIAISON THAT ORLANDO BOSCH’ AVILA™ AND: PRANK. CASTRO-
+PAR suecconennenvcRe: ™N NECARAGUA as or 3 SEPTEMBER: ‘TN view or
+
+-OAMEY
+CRS pew nd
+units °
+. _ ot ee ' + - ;
+Wee B.f0/- 794305 © LRESGHD Cron AO(-RVIRGR
+eccentatms comming | pmammaroncorns 4
+
+meceesme conese .
+. Rapnooucrion ad ornen lal THA IGAUING GPFICE 10 pRowieITED aes IMPOET
+
+_ Oh vs onasn2e
+14-00000
+
+Saari
+
+tthe ke
+
+OUTGOING MESSAGE
+
+ones, Contes ved ome
+- ca. — we we os
+onp o Oo O° 0 OO 9 : '
+SECRET : ; q a
+STAFF DIRECTOR Do ; 7 oo ,
+O sce = DISSEM BY: % ,
+ee 900267 O ammre PER, y
+Se -o , - 0 ome  # ;
+SLACK OF SENSITIVITY RE THE TRAVEL OF BOSCH aes CASTRO TO .
+“NICARAGUA ‘You. hay PASS THIS arene THE CHARGE FOR PASSAGE “|
+_ 70 THE GOG IF MANAGUA DOES NOT DISAGREE BY CoB 4 SEPTEMBER.¥ You HAY gr 7
+ALSO SAY TAT Bose 41 AND CATO DO Aer Reside und U.S. id
+FILE: * BOR-2qe 724 20.-7423b5- .£2 IMPDET-d ~~ . *
+
+: . GEORGETOWN wouLD LIKE TO ASSIST THE CHARGE IN HIS) DEALINGS WITH
+
+; FRED BILLS, GUYANESE FOREIGN MINISTER, ON THE ACTIVITIES ON
+
+pare: 8 SEPT TL
+one: Rs ALLENGACH
+WNT AC/LA/CAR/GT
+
+a. WA nace JOHN BECKUZTH — .
+: . ; 4 .
+
+wot
+
+a a sega
+” ” 9 emene: ‘Wieg BOF ES A eae nn
+iv ornen THAN TAR ener orga rv) Le
+
+oe
+
+14-00000 . . a
+
+© cme > :
+7 anes ; rane . L
+: . £ - Sobre fag :
+‘ cams sec o-esew 7, Te © nd ee ws Pl of
+. ASPRCOUCTION BY Of=gR Thee
+Gears SECRET a ~
+B_apvance £Oey SUED M.OTTEO oo / ar __[st arr “_- 7°
+J achon unit [1] al ‘
+ny : vr. »P/AAL,_-p D0. fe-</ pe om ry .
+‘ BAe realy naa weg. _psfeo {st I ,
+| epshwt_-csohe : coe
+Tatas ~ELAZ04 PAGE @3 IN 833325 ‘
+Tor:e822042 SEP 76 _ MANA 12478 Mos
+
+S:€ ¢ RE T 821002 SEP 76 STAFF
+CITE MANAGUA 12478 oH
+Tor “DIRECTOR: LA/HIAMT, MEXICO CITY INFO SAN JOSE, - “SANTO DOMINGD. ue
+
+‘ CAR AC AS. PANAMA CITY. BUENOS AIRES, 80G0TA.
+WNINTEL REAM MHS PIKE
+
+LREFS! a, MANAUGA FS $4 62 aqlas
+
+~ B. wana Ones! ENT DIRECTOR, MEXIC® CITY ONL
+1. ERCTHRO ID-33 REPORTED FRANK CASTRO PAZ DEPARTED ©
+
+MANAGUA FOR MIAMI ON S SEPTEMBER 76 VIA TACA FLIGHT NO. 318,
+ay CoaLaNDO BOSCH IS STILL IN MANAGUA AND» ACCORDING. TO
+_ GRYTHROTDe33> HAS CONTACTED SEVERAL MEMBERS OF THE LOcaL CUBAN
+
+(BOWMUNITY, E953 i288 BOSCH UNDER SURVETLLANCE AND WILL PASS
+
+“TO STATION SUMMARY OF REPORTS INCLUDING NAMES. OF. ‘poscH!s:
+“LOCAL CONTACTS... WILL POUCH. TO HOS WHEN RECEIVED, ae
+
+‘Se PON MEXICO CITY: PER MEXICO CITY rete Te ir
+ovise: LEAGAL ATTACHE THAT BOSCH LB sTtLe iN’ RANAQUA
+de PILED a@teaceaca, aa, IMPORT. -
+
+14-00000
+
+; CAME SEC OssEw Cn. Sy ee
+
+PERSON Cael BOV.CED,
+
+a ADLamre COPr $39.40
+
+JT 209997 Ela2s2 PaGE 01-03
+
+YOR39821232 SEP 76
+
+SEC RE Y 0820582 SEP 76 STAFF
+
+CIYE MANAGUA 124
+
+Tor MEXICO CITY INFO DIRECTOR,
+MN INTEL
+
+"REFS? a, managua 12462 Cdaq193)
+Dg, MEXICO city 37673 (Q39133) >
+7 _ de. PER REF A» LEGAL ATTACHE MAY BE TOLD THAT BOSCH WAS.
+IN managya AS OF 30 AUGUST.
+
+2s STATION STILL WAITING FOR GENERAL GENIE TO REPORT ON
+“WHERE. BOSCH IS CURRENTLY LOCATED. WILL ADVISE WHEN THIS .
+“INFORMATION RECEIVED. es
+oS. DEFER FILE, G2, Impper, — hlandie Brett Rey
+
+14-00000
+
+mes oe
+
+ams Mc One 7) an -
+
++7 om tat entsed
+
+MECCA Hm 6+ OFNEe tam
+Dts Gree @ PROMOTED
+
+eae FO AGRE SR,
+
+ee
+
+meni 073s
+
+SECRET orzaier e076 starr a
+CITE MEXICO CITY 97073 4
+TO WANAGUA INFO DIRECTOR,
+3. AGOUEST PASS FOLLOWING MESSAGE FROM LEGAL ATTACHE
+: WEXECO CITY! "Fone RooERT FAHUAINE MANAGUA, FROMD LEGAT,
+° “MENTE. URGENTLY REQUEST THaT. GENERAL GENIE BE APPROACHE )
+FOR aNy CONFIRMATION THAT ORLANDO BOSCHy. ANT IecasTaa
+
+ACTEVESTo” WAS, IN_MANAGUA AS OF SEPTEMBER TWO ast.
+2, FILE SBez APA, “E2. IMPDET.
+
+seat nengaeEE Po Te
+14-00000
+
+.
+i
+
+. cee en epee mete ie a8 see Lemmy
+
+oo
+
+weg te
+
+‘x,
+
+i
+FROM DIRECTOR FBI
+TATE: 3 SEPTEMBER 1976 ‘
+
+SUBJECT: - COORDINATION OF UNITED REVOLUTIONARY.
+ORGANIZATIONS (CORU)
+
+14-00000
+
+cow. c/LAG wo: mee ba KZ, fewte, Bae ue I
+c/oPs, fhe clotsh7G dO mann en Sur 4
+
+TO! FEDERAL BUREAU OF INVESTISATION//INTELLIGENCE DIVESTONs ° 132
+
+DEPT OF STATE//SY/I/PIBv SECRET SCRVICE//INTELLIGENCE” DIVISION-V.-
+. ECR E T--WARNING NOTICE = SENSITIVE INTELLIGENCE SOURCES AND
+
+“METHODS TNVOLVED=-NOT RELEASABLE TO FOREIGN NATEONALS--NOT
+_RELEASABLE TO CONTRACTORS OR CONTRACTOR/CONSULTANTS:¥. .
+
+SuBuects DDOMENICAN REPUBLIC - NICARAGUA, ORLANDO 8 OS CN AVILAG
+“CUBAN EXILE TERRORIST.¥ -
+aa Canercanzraaee-7ay
+
+Jemmelarsive inte Nantes avant seated
+-
+
+3. REFERENCE IS MADE TO FIRCE-322/02847-2hs Daten’ EN ‘August ii
+
+WAM. THE FOLLOWING ADDITIONAL INPORATION HAS BEEN, mes on
+ORLANDO BO SC H AVILAS
+
+coe peta pA tt
+——_
+
+~ ON % SEPTEMBER I9% AN OFFICZAL a NESARAGUAN SERVICE REPORTED
+afs
+
+° Fea CASTRO. PAL,
+THAT: ORLANDO BOSCH AVILA HAD ARRIVED ag HANAGUA, AND WAS GIVEN PER-
+
+AISSTON TO REMAIN ‘THERE IN: TRANSIT STATUS FOR A PERIOD or UP. Te
+
+$2} SE
+
+ra aaa | 24/2927
+
+: “papnosuerica bd v OTHER Than Twa n veaunee OPrica 18 PRONIRITEO: ga (MPOET
+
+. Sb BY gaoqo
+
+14-00000
+
+»
+
+OUTGOING MESSAGE
+
+_ ORF o| | oo o” o ; ; ;
+SECRET - oe ee
+. . cla . , ‘
+cow: wun qe7%sy Sm oueer
+D ence é
+
+ome e
+- pase OW! MANAGUA 3246 ITN oerio3t AND SANTO DOMINGO 37653 ”
+zn DeTeOa! 4 SCPTEMBER 397%. PROJECTE: CRRATIC/CHPYREX OBJECTIVE! J
+CABLE SEC! PLS MAKE CCS COPIES AVATL ABLE TO IPAN FOR 203-299292--
+
+“OaTE 9 SCPTENGER a8
+OMI, CHASLES payNeree
+on LA/MECAR/CN.
+
+, impoaT
+cs SY) gaeno%o
+
+14-00000
+
+48.8 C§C O8Ste e_”
+.
+
+olsen eo
+
+pote, Comes .
+; ~~. SRPRCOUT ON BT OTLe *
+SECRET I Drums OFF ha S PSD. 3
+
+“|SteeFDT 7 Poe Sole
+
+TY 194539 Grares tu f27sas.-
+
+ToRier22122 SEP 96 a tai 39756
+
+QECREYT CL22c02 SEP 16 Stare . Bara aed
+
+CITE CaRacas 30756 ¢ CARROLL ACTING? =| OS 2G ¢
+“NOS, LMMGDIATE SANTO DOMINGO INFO PRICRETY BinectoR, x ios’
+
+AMAL,
+
+MNIATEL dean, WMSPIKE
+
+nerd Santo DontNao wen (wieanast)
+
+Ay REQUEST PERMISSION ADVISE LOCAL LNERGO. REP. oF aer
+‘DEVELOPMENT TO HAVE HIM aGERT VENE@UELIN security. SERVICES.
+“ANBASSADOR ADVISED. os
+
+ore Rose easo2s2s 2oi-etazses, G2, inPoet
+
+14-00000
+
+Bonini mcoenege me es +
+
+same ec onuew ov 22 occ
+
+PEOSON Let ROE AD
+
+viom BY OTMER Taam
+Gerad Srna ws ceometen
+
+peer yee est ee ce ERED
+
+~ Ew 27268 :
+oe Tonveriora ser fe" spiu ivess ’
+SECRET crr9zez SEP 6 STARE oe a
+CITE SANTO DOMINGO 17653. oo, , i ¢
+
+| YOU THMEDIATE DIRECTOR, MANAGUA, CABLELSiNFO Sai tse, HEXTEO
+© BOGOTA, BUENOS AIRES, Panama ctty, tisiiant, os
+—WWENTEL REAM HHSPIKE . near:
+o mrs: Ae MANAGUA 12463. GarveD we RE
+- 8. SANTO DOMINGO x7609(004537)
+Ge SANTO DOMINGO sr6as(084037),
+D. SANTO DOMINGO 17620 (Not NEgiED HaANhade aan aise (orb 194)
+4. ENWISE*45 REPORTED MORNING. 4. SEPTEHBER: ‘udt Oi ANBo
+- 2 (QQSCH GRANTED VISA BY NICARAGUAN: AVTAORITI€S. HE Sid BaScH
+'. MAD ALSO GOTAINED VENEZUELAM Visa IN MANAGUA, A OULD WOT.
+CONFIRM THAT FRANK CASTRO HAD ALSO. GOTTEN VENEEUELAN visi
+QUT ASSHED THIS f0 BS THE Case,
+2, AS NOTED REF Dy CASTRO CaRRiEs uss PASSPOR? te
+3, ACCORDING GHWISG*<5, Local cuains Gogg’ ro aoshn dave
+“BABIDED NOT TO PUBLICLY DENOUNCE POLice actiCN IN bevontine
+BOSCH BECAUSE "THEY WANT AMBAICANS to THiNK Mars. Stine ih
+- GANTO DOMENGS, as OB 4 ”
+4) rte Bate nsoa9aY teeta, a2, twee, é
+
+20)-Wates C COORD COPY |
+
+1400000 **
+
+“ MENINTEL REAM MHSPIKE :
+
+’ gRASSON) REPORTED mar BOSCH AND CASTROL ARE-IN MANAGUA, Eos
+GhiD THEY LEFT PARA i, REF A FLIGHT AND WERE GIVEN PERMISS 108
+
+ACCORDANGE LOCAL PRACEDURES, NONoUS EL? TRANSIT PASSENGERS
+
+eave THEIR PASSPORTS pif SALORATEON Gets HAS soscw's ~
+
+~ GOSTa RICAN PASSPORT AND ewonge if. 76 qos. NAME IN. PAGBPORT
+7 7 te as ABPORTED RGF Ae NUMBER 8740972. paren ag Fee #4 VALID
+
+“ 70 & GERT 76, DOHINIGAN BXE? v efane fa paren a AvausT sete
+
+@e33 GAlO CASTRO 39 CARRYING Us PARGPORT. ‘ he? %
+fy ae3s. WEbe ATTEMPT TO LOCATE BpgcH: Ano CASTRO, rine out / . 4 :
+Ba Wases J RECORD EME? ep 99292. |
+
+Pa
+. ” 2
+
+vee Teton i i we . ee ee WANA Coes ae wun ae
+
+. REPRODUCTION BY OTHER TRAN .
+ft SFCRET (SSUING OFFICE 1S PROMIBITED
+Coreen NOT oo US Ret °
+ETE ewe |
+E , Suyence cory Wssucosiorien | | A (50. po star sree be |
+
+“ : &
+
+: eee ale. |
+“T 199696 EtaS64 AGE O34 re
+
+Th 027103
+TORS8116502 SEP 76 CMAN rea, !
+SECRET 116382 SEP 76 STAFF, a a 7
+CITE MANAGUA 42664 - 7 on t
+'., M08 SMMEDIATE DIRECTOR, SAN JOSEs SALTO DOMINGO INFO LA/HIAM :
+
+MEXICO CITY, CARACAS. BOGOTA. BUENOS. AIRES» PANAMA city.
+
+8
+wm ee +
+
+REFS) A, SANTO DOMINGO 17646 s/o 037) |
+
+B. SANTO DOMINGO £7647 toad 537)
+4, ON MORNING 4 SEPTEMBER ERYTHROIDe3S (CHIEF, LOCAL
+
+70 REMAIN IN MANAGUA IN. TRANSIT Status, “THEIR REQUEST “BASED
+ON THEIR OLAIM THAT THERE NO ROON. ON PLANE ror THEN, aN
+
+MAY REMAIN IN MANAGUA FOR UP TO THIRTY DAYS) BUT HAVE. TO.
+
+TCE EAE ene ~~ enna aber
+
+14-00000
+
+~ i
+: = fa . .
+4
+pment te i . :
+eee 6 ery 0 ae — — -
+{peer ate . : ae, fo
+i . . a poe
+. . : ‘ : i
+\, CABLE SEC OISSEM BY. oER. TOTAL COPIES RUN BY | ' .
+poe . : . | . REPRODUCTION GY OTHER THAN .
+SECRET : ISSUING OFFICE IS PROMIGITED- S
+* . . . i - a is — 4
+
+ACTION UNIT ‘4
+eet RF FILE: VR. .
+.
+
+Tu 027403
+“MANA = 22462
+
+TP 393696 CLASES PAGE @2-02
+" yorvg216582 SEP. 76
+
+‘WHERE THEY. ARE STAYING IN WANAGUA, WHEN THEY PLAN TO LEAVE
+AND THELA DESTINATION. WILL REPORT ADDITIONAL INFORMATION oe
+"aS RECEIVED. , ete re
+
+14-00000
+
+OUTGOING. MESSAGE one sf
+s:snas cusrren use cay per Da?
+
+. Cn n.d
+oMnF o Oo O° GB OF- ob oO.
+
+beoes
+
+Tn sis Fm, mde fin, fo § Bama
+
+° ver FOP. hoy
+Pts i762, LmSR, fepp or > i
+: Ooms # 43 F
+TO: FEDERAL BUREAU OF INVESTIGATION//INTELLIGENCE: DIVISION, , o 4 3
+“DEPT OF STATE//SY/I/PIB. SECRET. SERVICE//INTELLIGENCE DIVISION.¥: ~
+SE CR E-T--WARNING NOTICE - SENSITIVE INBTELLIGENCE. SOURCES AND .
+NETHODS INVOLVED--NOT RELEASABLE TO FOREIGN NATIONALS--NOT
+
+‘RELEASABLE TO CONTRACTORS OR CONTRACTOR/CONSULTANTS »¥
+
+Pr rcerladn AmoumlanirMInEN zm, 6
+.
+
+" SUBJECT DOMINICAN. REPUBLIC - COSTA RICA» ORLANDO B 0 SC #
+
+"AVILA. CUBAN EXELE TERRORIST.Y -
+
+'y PIRCI~32/02b47-76 OY ,
+
+7 3+ IN REFERENCE TO YOUR MESSAGE DATED de duty 397k
+
+_ ENTITLED "NATIONAL LIBERATION FRONT OF CUBA". COPY. SENT: ADDRESSEES.
+
+m4 THIS AGENCY HAS THE. POLLOWING SunAENT,EAroRRArT ON ON ORLANDO ”
+
+‘BOSCH AVZLAIY . oo.
+
+,. OW BY AUGUST 292% AN OPPICIAL DOMINICAN SERVICE-REPORTED THAT
+
+¢ ORLANDO BOSCH AVILA HAS BEEN DEPORTED TO Costa RICA USING HIS BCOSTA
+
+ee ‘nzean PASSPORT IN THE KARE OF CARLOS LUIS FANGZAGUA ‘RENDEZ. poscn ©
+
+DEPARTED SANTO DONZNGO B9 AUGUST 3976 ON IBERIA PLEGHT NO. 979 ror *
+
+SAN JOSE. COSTA RICA VIA MANAGUAs NICARAGUA +Y ay youre
+p BY RECORDED REPORTING OPPTCER. “MODS Behed
+
+sii as WV ae ,
+
+| 201-299890
+
+ee: TA
+i oi PT
+Le
+
+‘amenreron ease ‘
+8s imeos?
+eb By 032933
+
+fawn eo vheuehaggF
+
+14-00000
+
+: as
+. OUTGOING MESSAGE:
+Obra, CinTEe vet Om
+-_ - <_ we hae 5 aed
+omF O ty) a 0 0 o i
+»* SECRET : ~ ot oy .
+STAFF CIA , : ‘ Soe be .
+i B ome :
+a BASED ON: SANTO DONINGO 37bue (20 o240371 30 AUGUST 1975 yo
+. PROJECT: ENPYREX , ; ; . oe nO ;
+
+". QBUECTIVE: J
+
+CABLE SEC? -PLS MAKE CCS COPIES AVAILABLE TO TPAN FOR 2oa-2uq2q2 &
+4-28 oe
+
+ro : ‘
+OaTd: 30 AUG 7b
+CRIGD Be SHLTHE AT,
+a LA/CARZDRH
+
+14-00000
+
+: "| OUTGOING MESSAGE , ;
+= mes Cae :
+onF QO fo ao 0 9 ;
+eneeenaven :
+SECRET: _ j
+stare - 3322382 oaay :
+wo LAE we m2 EQ Seca
+A ~ cones O annie ~ t ’
+‘ ‘$ECroeneneneesene 4
+: , : . . OD omm # ay
+TO? SIGNAL CENTER.Y wo, :
+
+PLEBEASE TRANSNIT SANTO DOMINGO L7bub. TO SANTIAGO FOR -
+INFORMATION. E2.IMPDET.d-. : Y
+
+. " SN
+. :
+
+SCOPY ATTACHED
+
+- : - ane tieigue nena ee
+
+ti 20 AUG 7h .
+ene: DB. SHTTHE ae
+ure RLECAGRDD
+
+/EALCAR
+dirreneraaren ermeen 6
+REPRODUCTION BY OTHER THAN THE IRaUING a7FiCN ts paoniiran. . 8  ImpoaT
+Gh ey Daanas
+
+14-00000
+
+Te — ALiee Fat LE SER ore sme OUR
+
+i
+eT OUTGOING © 7 MESSAGE
+7 or a er er o o 08
+by SECRET. ,
+Vi STAFF x. 3322382 DIRECTOR ~ 0798 Ha
+| cow: Lf F wo: mi DPO2, 266/209 /7 aaa oesseM en D7
+A ~—e ; '
+1 on iTe, oe, wy 0 we om Ht
+FI soe : Denn # :
+ji Tos SANTO DOMINGO-¥ . - ppefce : ‘ ‘
+jo | UNINTEL EMSTONE MHSPIKE Yo ee ‘
+i REF? SANTO DOMINGO 37b4bs for. oryes?) ay
+4 ” DARE BEING RELAYED TO STATION SANTIAGO AND p SUBSTANCE, REF -:
+-- TO FBI. ¥ ‘ |
+i -@e FILE: 202-279292%3 22-92-28. CRSINPDET-a a
+
+30 Aus 6h
+De SMITHEUT
+LA/CAR/DRH ‘itt
+
+eee do/- B99RIL
+opatte, P ’ wpEy creye COORDS
+
+tsa
+
+” papaenueron: OY OTHER THAN THE-LeRUINE ornren ta sera “IMPORT .
+. : & ays 0.8932.
+
+< eee wes te we ” osaoanall
+
+14-0000
+
+eam *
+
+cg ge tae do aR
+
+CAUTION = ~ THIS FORM REQUIRES
+SECURE STORAGE . ae)
+
+QaSuRCATON CAIGRATOR'S AEQUEST FOR laid PROCESS SG
+“DISPATCH SECRET. [| peeene wos
+
+Chief, Latin America Division —= , : M
+
+COS, San Jose, COS, Managua, COS, Guatemala Cit) aPtaTURE CARD REQUESTED z _
+. Chief of Station, Santo Domingo ae Pe
+PObassport Used a by Orlando BOSCH to Enter
+. 0 Re
+
+mn an
+
+REFS: A. SANTO DOMINGO 17646
+_ B.. SANTO DOMINGO. 17643 .
+
+C. SANTO DOMINGO 17629 : . . oo 5
+
+D. SAN JOSE 19662 . . oO :
+
+1. Forwarded herewith is a Xerox copy of the Costa Rican...
+assport used -by Orlando BOSCH to enter the Dominican Republic —
+e name cf Carlos Luis PANIAGUA Mendez. The passport was
+
+obtained and Xeroxed by. EMCLIPPER-1 who > Provided a copy to'the —-—.- |:
+
+i
+i
+H
+}
+jacTion REQUIRED - REFERENCES. .
+. WARNING NOTICE-SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVE? -
+Station.
+
+nam ne inate teens 0 Mans HS AB
+
+2.  EMWISE- 15: had previously reported that BOSCH. entered the
+Dominican Republic with a false Costa Rican passport in the name of
+Pedro Antonio PENA. While BOSCH may be carrying a second. Costa.
+Rican passport in the PENA name, it appears that he entered the
+Dominican Republic with the PANIAGUA passport. The .PANIAGUA
+passport forwarded herewith shows the following:
+
+A. The Department of Migration of Costa Rica issued a
+visa on 24 March 1976 for travel to "C.A., Republice
+Dominicana" (p.13).
+
+B, BOSCH departed Costa Rica at Pena Blancas on 26 March
+(e- 11) and entered Nicaragua (p. 9).
+
+See C, The Dominican Consulate in Managua issued a one-trip
+: “vise for the Dominican Republic. on 30 March &. 14 ).
+
+Attachment: , eels ;
+As stated, h/w a .: aR coy
+
+| Dis pributient
+; C/LAD, w/att - io u
+a
+a City, wa > ye aut Poves
+
+« COS, San Joss, w/att
+= COs, Managua, w/att
+
+new ~=—t(«éC RON EY
+
+° iC OvINNOL AND MUO
+
+. 08, Gusteia
+HDCA*21086 .
+
+XRGTn
+
+GBCRAT
+
+"Youve bu (2, » ~
+ated .
+
+ee neowtin eA WaTietaantigs baal 5
+
+treme woven nana
+14-00000
+
+S. CaUT Gat. THIS FORM REQUIRES
+SECUZE STORAGE
+
+, SeaTom Seem Ano BUMSES
+
+HDCA-11056
+
+CONTINUATION OF ;
+DISPATCH ks:
+
+way
+
+D. “It appears that BOSCH entered Guatemala City’ ‘by
+air on 30 March and. “departed 31 March (p.. 15).
+
+E. BOSCH arrived in Santo Domingo at Las Americas
+airport on 31 March (p. 15).
+
+3. BOSCH told EMCLIPPER-1 that the real PANIAGUA had undertaken
+most of the travel shown in the passport, but EMCLIPPER-1 did not
+establish the date the passport was acquired by BOSCH er how,
+
+4. As reported Ref A, BOSCH was deported to ‘Costa Rica via
+Managua on 29 August on Iberia Flight 979. EMWISE-15 reported thae
+the PANIAGUA passport was used to deport BOSCH. —
+
+pre Buduak 22. er
+14-00000
+
+4 . eee one soe: . :
+. 2 F 3
+2) . : =] : J
+CABG we teow er. en ap Soe tehte Sete 2 we to .
+j F can ‘WOOUC NON BY TER tna :
+. Se eee Ee T - 2 2 Grune oonca ss Peo TED
+PeasONNT ‘wormed,
+
+AOVANCE COPY 19$UE0-SLOTTED Ate er ‘ae po (ie) >) - 4 starr PAGO BENG 5
+
+seseemelemte
+
+“¥ qe0720  ctaiaz PiGe 2° "IN 824837 4
+
+TORs3213022 AUG 76 SDOM 37646 :
+
+8G CR E T 3012452 AUG 76 STAFF
+CLTE SANTO DOMINGS 17646 ,
+TO8 {IMMEDIATE SAN JOSE, MANAGU - ‘DIRECTOR INFO LA/MIANI,
+MEXICO CITY. CARACAS, BOGOTA, BUENOS ATRES, PANAMS CITY,
+WNINTEL REAM MHSPIKE , :
+“RBFSt Ay SANTO DOMINGO 47643 NOT SENT MANAGUA» SAN Jose) wOdaGOl a
+_ + Be SANTO DOMINGO 47629. “NOT SENT NARAGUA® SAN JOSE) (wu Olelt4.
+4, EMWISE*S5 ADVISED STATION AT. 6945 HOURS ON 29 AUGUST fhaT |
+. ORLANDO BSH HAD BEEN DEPORTED ON IBERIA FLIGHT ory at Soba WOURS.
+(+ WITH DESTINATION SAN JOSE VIA MANAGUA, DECTSION To PuT Bosch ON
+_"GHES FLIGHT WAS MADE ON VERY SH-RT NOTICE. BOSCH TRAVELLED BW
+_ BANE COSTA RICAN PASSPORT WITH «HICH HE ENTERED DOMINICAN
+MUPUBLIC iN NAME. OF CARLOS LUIS PANT AGU ‘A MENDES.
+(Onn i9G948 nad PREVIOUSLY REPOR’ ed THAT BOSCH WAD ENTERED. WIFE.
+COSTA RICAN PASSPORT IN NAME OF PEDRO ANTONIO P & N i mute
+INFO WAS TN BRAGRE) : eee aE
+By OM 87 AUQUET STATION O8T.INED COPY OF PANTAQUA PABSPORE
+ma EMCLIPPER©S “KHICH BEING PO CHED TO ACTION ADDAOBs.
+NO OBJECTION ACTION aDDE 8 STATIONS: INDICATING 70 LtaTeon
+sey AWARE. OF 908CH TRAVEL WITH COST, RIGAN PASSPOST-tN NAHE JC
+; ; aor?
+
+[ RECORD ro cor
+
+Ores aes
+
+14-0000
+
+SEU SREP RANEIIEN | eatin weet Me ea cme
+came eC onsew ay mel, OT ORK Or : : .
+. BEPROOVT NON OY OTmEa than
+~~ SECRET . ($6UNG OFF-CE & PROMEITED
+PERSONUCT NOTED, — .
+ADVANCE COSW ISSUED/SLOTTED c 3
+
+Pace @2-02, ~ Th e2aes
+TOR: 3@13022 AUG 76 SDim 17646 a,
+
+““Paeere0  Epaiae
+
+PANT AGUA.
+4, PILES 2810299292, E2 IMPDET
+
+14-0000
+
+epee
+
+STtinerewa ates see timers tae
+
+“ge
+
+"TACOMA america sean
+
+cone ae 2 YZ _ oe ae eee Te eee an ;
+
+: 7 $ cr ? SR OWE Yas @° Ctnee wan :
+: ! i BOUNG OFFICE & PROREITED °
+meet Raachiete hal : 3 E
+: ° —— _ 7 r |
+
+" ppAnce coe £OPV SsvEO-S.0TTED 7 ‘Starr . = ‘
+AON ONT t : i
+
+ag i]
+
+{hays
+tT at Om @ TE
+°
+
+? reside E1a62a PAGE 84
+
+TOR 2720502 auG 1%
+
+a = ee ee ee ee eee.
+
+saiieabgee
+-
+
+a: SECRE T 2728302 AUG 76 starr
+: Crte SANTO DOMINGO 37645 .
+Tor DIRECTOR,
+WNINTEL REAM MHSPLKE
+REFS! A. DIRECTOR 905008
+By SANTO DOMINGO a7e29 (10 olviag)
+4, PER PARA 2 REF Bs ENCLIPPER® WAS PROVIDED STATION Wii
+FULL RUN©DOWN ON TRAVEL OF FRAN CAS TR 0 Pa (2819742365)
+FROM FEBRUARY 1975 THROUGH JULY 1976 AS FOLLOWS!
+“ “EXITS FROM SANTO DOMINGOS
+"4, FEBRUARY 1975
+1 APRIL 2975
+15, JUNE 4075. .
+- 38 UNE 1975
+30 vuiy 07s
+8? avavat L973
+6 SuPTEMeER so79
+# oCrceaR so75
+‘Ee NOVEMBER 1075
+9 FEORUARY 2076
+
+14-00000
+
+“Cade SEC Dose oe,
+
+en ~
+= pe 2 SF
+: eareomc ron 8s ores teen
+PERSON et RON ee D_ i sé@c ; ae? Sens OFC oS PRORATED
+
+_ BQTASCE COPE
+aCTOR Unt
+
+$5LED S018
+
+20 reerRuaRy 39780 7 . ) oo. ~
+42 APRIL 2976
+23 APRIL 1976
+20 HAY 3076 Cs a
+- ENTRIES TO SANTO DOMINGO! oe
+“4 FEBRUARY 1975
+40 APRIL 3975
+22 JUNE 1975
+13 JULY 4975
+“0 auaust s995
+_@ SEPTEMBER 3975
+So SEPTENSER 2973
+
+#0 FEORUARY 3976 |
+4 APASL acre
+
+'
+N
+rd
+° .
+T s83240 © Elaeas PAGE 82 tw ez2ea?7 SS
+a nn  TONNETZOSOE AUG 6 Sdin 37063:
+
+14-0000
+
+%
+
+cor Bie ecm e OF
+% : .
+
+A oem pee
+
+ews tee pyores
+oe lnm wet
+
+"4 ‘403868 Gtaeas
+
+deen 4 aaitca gan nationals”
+
+in Come
+
+Pace 83-03 sé CORR
+
+@uwyY 80760,
+
+3, ACCORDING EMPYREX, CASTRO DEPARTED SANTO. DOMINGO S AUQUST AND
+RETURNED 23 AUGUST.
+
+3, REQUEST HGS COMPARE DATES OF CASTRO TRAVEL WITH
+KNOWN OR SUSPECTED CUSAN EXILE TERRORIST ACTS,
+
+@_ NO OBVECTION PASS PARAS ONE AND TWO TRAVEL pate To UNERGO.
+OR LOCAL SERVICES,
+
+2, PILED 28t9742365, Ea, IMPOET,
+
+deen cn eee AORUR7ZGSSR ANT. Te _. : S$ ou 17043
+
+to SOOT Se OF ONES Team
+S€caer i BS AG OOK! S POOmOETED
+
+mieonee na twem
+
+14-0000
+
+3
+-
+3
+
+. Cen tom Os Ors tna
+tues OFece @ FOOTED
+
+a oer aod 7
+
+om est wore
+
+;
+5
+3
+
+. : we “4670 (et yer Re oh ht Tint ‘
+LAG: wine om Aa). Dbe erechve i
+wien | oesrte SY, aE. (ER 2, 5 . :
+_.. Plase, 1% Gees. a :
+
+T a02374 Er Mood PAGE 01 Th ezzee.” Poi
+
+oo. a TORI2Z716052 AUG 76 == SO. 17043:
+
+SECRET 272542 AUG 76 STAFF
+LTE SANTO: DOMINGS 17643
+ot PRIORITY DIRECTOR Info LACMTAMTs  mextee city. caRacas
+BOGOTA, BUENOS AIRES. PANAMA CITY,
+WNEINTEL REAM MHSPIKE
+REPL SANTO DOMINGO srea0 ( (o1194)
+4, “WENORANDUM OF ORLANDO BOSCH CITED PARA 3 REF WAS NOT.
+QRVEN TO CHIEF OF POLICE, GENERAL NIVAR, UNTIL 28 AUGUST ,
+WHEN HE RESUMED HIS POST FOLLOWING EMERGENCY APPENDECTONY,
+“ WIVAR IMMEDIATELY GAVE EMWISE*45 INSTRUCTIONS To *LocaTE
+“ gOSCH AND THROW HIM CUT." ee ee
+9 MEMORANDUM) WHICH SHOWN TO LYNER BY EMWISce4S ON,
+ae AUOUST, STATES THAT BOSCH HAD ENTERED COUNTRY WITH. COSTA
+RICAN PASSPORT IN NAME PEDRO ANTONIO P GN Ay EMW{SE®45
+“GONFIAHED THAT BOSCH IS: CARRYING ANOTHER COSTA RICAN PASSPORT
+“AW NAME CARLOS LUIS PANT AGUA MENDED, AS REPORTED:
+pana 4 AGF, r Pilg
+“9y MMWTSHORS GAID HE HAS NOT ve? Locaren: BOSCH, WE WAS. -
+* sane 0 INFORM STATION WITH AB MUCH LEAD TIME As possti.g
+“NWN BOSCH BEING DEPORTED, AIRLINE PLIGHT NUMBER. AND nana :
+ie , qm CON] AO 299293.
+
+itomsnes odio aedoaictte
+
+14-00000 . . :
+
+then se :
+
+same ca tee os ne tetas cea
+
+: RMem iat mee LL | s & Re y
+
+weed OOFE
+
+wvaree re ren aonre - we as
+© tome eet
+. Fue. ve .
+
+5 Th 622601
+TORI2716@52 auG 7600S 17663
+
+oy
+
+i}
+
+| AND PASSPORT BEING USED. ALTHOUGH EMWISE*15 WAS PROMISED DO |
+“YHIS, SLIP UP 1S POSSIGLE, IN. ORDER:KEEP TABS ON BOSCHYS FUTURE
+
+“2 MMEREABOUTS, SUGGEST HOS INFO La STATIONS THAT BOSCH NAY BE.
+
+| DEPORTED IMMINENTLY. WILL PROBABLY TRAVEL, AT LEAST DURING FiAsT
+
+| “UG OF TRIP, WITH COSTA RICAN PASSPORT IN NAME PEDRO ANTONIO
+
+I PENA OR CARLOS LUIS PANT A GUA MENDEZ, station's.
+
+GUESS 18 THAT DONINICAN'S WILL Insist HE LEAVE WITH PENA
+
+“QOENTRFICATION, SINCE THIS LS HOW HE ENTERED COUNTRY, NO
+
+“gnuter ion PASS AGOVE INFO TO LNERGO AND TO LOCAL LiatsoNns as
+
+tare
+
+me
+
+“pies 28292902092, E2 IMPDET
+
+14-00000
+
+PRACT a BEG tae tea,
+
+Attachasst to 1u-469997
+
+pee seamey neat EN
+
+MEMORANDUM FOR: “LNEAGO, Mian’
+| SUBJECT 3 Orlando BOSCH Avila oO, wt
+
+4 According tc a reliable source in Kanto Doaingo,
+
+the Government of the Doainicia Republic haa decided to
+deport Orlando BOSCH Avila.as soon as security officials
+
+ean locate hin. BOSCH may be deported using a Costa Rican Le .
+
+port in the oame of Pedro Antonio PENA or Carlos Luis . f
+
+PANIAGUA Mendez. We suspect that the Uominican Governrent 4
+
+., Will insist that SOSCH depart froe the Uominican Republic - 4
+
+dn the name of PENA since this is how he ontered the ccurtry. - “
+
+Tnere is to date no evidence as to what country BOSCH will ;
+
+be deported.
+
+Fuceayane! go Motel
+x
+14-00000
+
+Pam aiteipemetaainies
+
+' OUTGOING - MESSAGE
+
+Ce en ee er a)
+.08'eeren =,
+SOCKET: wo,
+stare 7 B70932z «DIRECTOR 105008 oe +
+com: cas) aro: ous. lad cory AFL Ay . aaa oxssem or Cf Bo
+4 z woes e-
+. 7 Come OL ~ Le,
+| TOU LASS. MADRID. PARIS. LONDON. LISBON. ROMEs BONN. BOaNN |
+| WAST. COPENHAGEN. KINSHASA LUSAKAs TOKYO. OTTAWA, — ‘ae
+t. . q
+| FR/NEW YORK, FR/VASHINGTON. ¥ oo Ono) fo
+;  UNENTEL REAM MHPROSE TRACE Vv: yg Zy
+| REPS A. DIRECTOR Osub57 ce , ee
+B+ SANTO. DOMINGO 37629 1IN OLERTNI NOT SENT: on NEEDED w
+AL appees wt - ;
+
+d+ REF B ADVISED THAT PRANK CAST R.O PAZ. LIVING IN
+SANTO DORINGO. IS KNOWN To BE ORLANBO BOSC W'S CONTACT MAN AND
+MESSENGER CARRIER TO CUBAN RIGHBNETEST GROUPS THROUGHOUT LATIN
+AMERICA. IT REQUESTED CONFIRMATION OF INFO ON FRANK D. CASTRO
+PEREZ CITED PARA'2 CREP As THES IS TO CLARIFY THAT THE FRANK a7
+“GASTRO INVOLVED WITH FLNC IN TERRORIST ACTIVITIES IS°IN FACT EULALIO. |
+_PRANCISCO. CAS TRO PAZ, AKA FRANK CASTRO, OF REF By AND: wor T
+" PRANK p. CAS TRO PEREZ CITED IN PARAS CREF.AL ¥ a
+M+ MOST OF FOLLOWING IS SENSITIVE Fer SOURCE INFO. FYI ONLY IN =!
+- connecTzon REF By AND NOT TO BE DISCUSSED OR OTHERUISE DISCLesED |
+OUTSIDE BKHERALD: WITHOUT PRIOR HGS APPROVAL. ¥
+
+_ REPRODUOTION GY OTHER THAN THE toauina oreice wPROMIBITEO «86g 9 IMPD
+a Lin G2 ae
+
+14-00000
+
+Arora ge ete
+
+OUTGOINL MESSAGE = $f] es cl
+np _t-, eft
+
+i
+Por ir nr en ne ee Oe
+| SECRET
+
+Starr . / - DIRECTOR SO, i :
+7 OD erumnes, PER.
+
+Qs ° THE CASTRO CITED PARA 2: REF B IS EULALIO FRANCISCO . -s ‘ {
+CASTRO PAZ {203-7423bS)s BORN W JUNE 42. AT MARTANAQs, CUBAS AKA | f°
+PAPO. E+ CASTRO. F. ASTRO. AND FRANK CASTRO; PHOTO AVAILABLE: ar
+REPORTEDLY LEFT CUBA FOR U.S. CLANDESTINELY BY BOAT, 22 DEC b2° {SIC =
+BELIEVED BE bi}. RESIDED PHILADELPHIA JAN 70 OCT b2s NEW YORK OCT TO
+WOV b2s SERVED U.S. ARMY S NOV b2 THRU & DEC &3 AS LIGHT WEAPONS
+INFANTRYNAN- REPORTEDLY. WORKED FOR MANUEL ARTIME IN APR LS
+_ «RECRUITING PEOPLE IN NIANI TO FIGHT COMMUNTSN IN CENTRAL AMERICA. AS
+1 OF MAR 24 WAS EMPLOYED AS SALESMAN WITH FABRIC BAZAAR» INCey MIAME: -
++ FLAs MOVED TO DOM REP. EARLY 75- AS OF NAR 75 WAS ESTABLISHING
+“ENTERTOR DECORATOR FIRM CASTEVILLE C- POR As IN SANTO DONENGOs
+_ RERORTEDLY WAS TRYING SET UP EXPORT-IAPORT BUSINESS IN DOM AEP ARPR:
+"9S. DURING 72 WARRIED ANA HARGARIET. DE WIND Ts DAUGHTER or:
+4 RETIRED REAR ADMIRAL CESAR DE WINDT LAVANDIER Of DOMINICAN. NAVY. -
+
+- CASTRO REPORTEDLY TOLD Fer SOURCE oct 75. THAT HEAD oF SANTO HONENGE
+POLICE HAD IT IN POR HIN AND WOULD BE REPLACED. BY FRIEND GY cantne's
+PATHER@IN-LAUs ,
+
+ee CASTRO TRAVELS FREQUENTLY y BETUEEN Don acp AND nzanzs
+
+cement c een Setaneternan ms Nae
+
+eas
+
+” sreennueninw w ave wine me enue. fence " PROMI Lend
+
+14-00000
+
+oUTGOIN™. MESSAGE
+
+onr oO o o.0UCU Q t')
+
+2 if
+StCRET !
+(wt 0knes meen OR enre-cen now . ane
+
+STAFF . DIRECTOR ae .
+"cone: wro: ALE  -- Goge8 B ° oe (OISSEM BY” : ‘
+
+_ : ‘ Damn eR ;
+DEPORTED FROM DOM REP 4 OCT 75 WITH HUMBERTO LOPEZ JRev A ' :
+
+*
+
+FUGITIVE ARRESTED BY FBI UPON ARRIVAL FLA... UPON, ARRIVAL nIANT & OCT
+“9S CASTRO'S U.S. PASSPORT BORE CACHETS SHOWING DEPARTURE: VENEZUELA
+23 SEPT 75% ENTRY. “ELDORADO-BOGOTA” COLOMBIA 27 SEPT 75- CASTRO
+ CLAMBBRINED HE AND OTHERS PLACED BOnBS ar RUSSIAN EMBASSY AND IN
+
+!
+|
+\
+\
+|
+| FRENTE DE URELIBERACION, NACIONAL de CUBA {FLNC} LEADER. AND FEDERAL
+{
+i
+\
+i
+
+| THEATRE IN BOGOTA. CASTRO ts LICENSED PILOT, PROFICIENT PARACHUTEST.
+AND SKYDIVER- was/IS LEADER OF "GOLDEN FALCONS* SKYDIVING cLuB oF :
+CUBAN EXILES OPERATING OUT OF HOMESTEAD, FLA. HE BECAME U- Se CITIZEN
+8s oct 732- Has RECORDS CONTAIN NO INDICATION HE EVER EMPLOYED ey :
+
+“BRHERALD.. ¥ , oO
+
+8 FILES 202-7423 202-309224- €2. INPDET.d
+
+tascocbeannents sa SANTO ponzne REQUESTED CLARIFICATION or INFO. on
+FRANK CASTRO CITED " DIRECTOR SbbS7
+
+C/LA/UER OFS Py ye ‘
+: . , Ua .
+. ce CAATLNE
+GW AUGUST 7h. . CERT WP Cys Crt.
+TET WORKS! S Crepes, «CTC ;
+, on CrRmen FA ONE eee
+
+i
+ean) eee
+
+on a a nwa rnnn  88UINE Sst les Paonia : ree . .
+
+_BVo! AB BBS ——— .
+14-0000
+
+Jack Anderson and Les Whitten
+Plot to Assassinate Kis
+
+tA plot to assassinate Secre-
+State Henry A. Kissinger in
+
+’ Costa Rica aix months ago was blocked:
+
+Rican authorities
+{t.was to have been
+
+Lee
+
+yetatigs, Sey Figspttaniwiancen cnnrane +
+
+ded.
+Bart of tho story in 1976
+
+‘atten ts Plant -
+an
+
+_, Bald @@ 6 fee
+
+in Miami's Little Havana. He later re-
+defected to Cuba where he gave a fas-
+cinating interview.
+
+“J have known privately since 1972,”
+
+- he said about “the plan to ascassinate
+the US. Secretary. of State." He said. .
+
+the plot had taken “certain form” by
+1e7e and Lad been " by
+
+In a reference to our 1974 columns,
+
+about. it in cccret testimony. “We re
+ceived information from confidential.
+
+eources,” be testified” that there was
+
+@0istg-to be attempt on the life of Bee
+Peiary of State H Kisainger... We
+
+the:tnformaticn on to the Fal,
+Bnd they had also received the infor.
+
+~ Maxton, and we notified tho Racret
+
+Service, st they have the protective
+duty tor che Secretary of State.”
+
+0 pis was linked to Kixelngor's”
+
+swoday say in Comte Kira, and Hooch
+Wes pivicd Wp and queviioned. He was
+) paaaport charge Until
+
+singer es
+
+‘8.204 In the last year. Ha siwe
+
+a best :
+id hia had back forced him: to fly in. -
+tho forward compartment. Despite his
+
+THE WASHINGTON Part Moreton: duane 23, 107% C23.
+
+Kissinger was safely out of the cours |
+
+Bosch later insisted: “My only crime
+was entering the country with a false
+passport.” Certainly, it was never ;
+
+proged in. court that he hoped to
+
+nock off Kisstuger. He ts now at large ©
+
+somewhere in Latin America.
+
+Johnson's Junkets — Demorratic -
+presidential nominee Jiamy Carter *
+
+Tust have Don Johnson mind when be
+
+charges that the Republicans (ind “ft
+
+cushy jobs in the bureaucracy for de
+feated GOP tegisiators.-
+
+Johnson, a forc.e; fowa congress <
+
+man, wos al
+
+inted by President
+Nixon to hea
+
+when he
+
+secretary for domeatee end interna:
+
+Johnzon has used both pasta to
+
+trav. |
+el, mostly to t here he hi ;
+bis poittical tencos mended ia the tone
+
+of running for office egain.
+
+A. ihe Cummerce Gopariment aione,. -
+
+bo hap.epent. at toast $7,000 on travel,
+ed
+Sites clans, deapite Uie tact ial govern:
+Mant requiationa require ccach travel
+for tedaral omploycos. The entarpris
+ing Johnoon, however has.a ready em:
+cuse fur his luRury accommodations,
+
+“Fm @ heii of a big man,” be told our |
+
+Feporter Hariara Take. “I'm foots
+
+#70 pounds,” Johnson: elo
+
+many excursions to his bome a te be
+aving place come
+ty io poles” RCO On Sy
+
+the Veterans Adminis.
+tration. But he wes forced out of office |
+roved to be a ‘lackluster .
+loader. So he was shuffied over to the
+Commerce Department, where he has. +
+* boen ensconced as deputy assistant ”
+
+at
+eG
+
+bee teay
+
+1 os mentengertglninnd! Ete amie te 3
+
+lee hae ape ey
+
+al
+
+Be
+no est
+
+eo sehen:
+
+i
+i
+i
+
+penshivt ita
+
+facades t
+
+14-0000
+
+a
+
+cA Y
+
+Of Cuban
+
++ Cuban groups in the Miami area are
+. aged In terrorist activities both in
+
+“and: cutside the United States, ac-
+
+; fording to closed-door testimony be-
+ifore a Senate subcommittee released
+‘The testimony came last May be-
+“fore a Judiciary subcommittee on
+‘internal security chaired dy. Sen.
+* James 0. Eastland, D-Miss. It said
+“that as many as 50 diffevent Cuban
+: of various shadings have
+Geer, In Miami at any one
+Ena plots Lnvolving local setione and
+: volving act ani
+‘eatviies in Mexico, Central and
+- South America andCuba itself. ;
+gk as Lyons, who has been
+bien ¢, Dade County, Fls.. Public
+‘ epartment for more than
+fine youre and Raul J. Diaz of the
+idopertment’s organized crime, ter
+:torist and security unit, told of ef-
+forts to track down terrorist ele-
+‘eseata ja the greater Miaml area.
+
+LYONS SAID MOST Cubans in the
+@pres are hard-working and Industri.
+qe bat come individsele “use Dade
+rs 03 @ dae for international
+
+tac.
+
+the test two years,
+
+atrong indicators on each that
+#469 motivations were political in na».
+#0 abd terroristic by design."
+Dies eald some Castro groupe have:
+vated exile organisations. and
+: Blane to asanssinate Latin
+a8 diplomats and foreign
+
+id Ala unit eecelved: infor:
+
+y this year that there would be ai
+
+on the life of Becrantry 6}
+A. Kiesinger during his
+
+elt to Coste Rica,. -
+
+% .
+
+i iy pat feoret. Service
+
+60, There ware no Incidents
+legingor vielt, ©
+
+Bs tera (a hill Cant
+easier al o the body of unders
+re John Roselll was found
+
+olll had tentified lagt year.
+the Senate Intelligence Com-
+
+abs Beanie
+
+‘lawyer for Roselii told the FB.
+
+H against allied govern th;
+? 7 of dibs, Cuban. sipping,
+iste, rted Communists -
+tadividuals who take a stand
+
+Ri thelr . torroristic-type
+
+have boon four homicides:
+
+m @ confidential. gource -
+Cairo
+- would,
+
+ai fot mention the CA's own
+to uae Cuban oxiles in Plorida .
+
+chaln-woighted, 68-gal--
+‘hoatin in @ bay near:
+
+Terrorists“
+
+miteee that-he and Chicago gangster
+Sam Giancana were hired by the CIA
+torecruitCubanstokillCastro, ° ~
+
+Giancana was killed by unknown
+Persons last year just before he was
+to estily before the Washington -
+
+TT WAS LEARNED yesterday é.
+1967 that the underworld figure, re-
+cruited by the CIA to kill Castro, bes _
+lieved agents of the Cuban leader
+were involved in slaying President
+Kennedy, ye :
+
+An FBI “blind memorandum" en: --
+an interview with Edward P. Mor .
+gan, Roselli's former lawyer, was ite
+cluded in last June's Senate Intell. -
+gence Committee report on the role. .
+of the intelilgence community in the
+Kennedy assassination Investigation, -.
+
+But it did not identity Morgan at the
+Interviewee,, .
+
+Morgen told the FBI, according to
+the sumeary, that Roselll and. «
+another client were called on to pare
+ticipate ta &@ government-approved
+Project simed at asaassinat ng Ceo E
+tro. He cald Castro employed ‘ me °
+of Individuals who wore diapatched to
+
+@ United States for the purpose of
+assacsinating President Kennedy,”
+
+Egyptian Plane
+Hifacked, Other oo
+Arabs Blamed |
+
+CAIRO (AP) = An Eayption alr *
+t
+
+nor. woe Aijached. today y seven |
+gunmen boileved to be Cidyano, :
+
+valcstiniang aed Lubanene, inforched |
+sources sald, . :
+
+‘The plane wae on ite way from!
+b Taner, 0 miles Ne thet
+
+A spskssman top Bayotate, the |
+Bavoilen aleline, eal id pane, a!
+. Boeing 737, landed ‘4 unur, end tha °
+hileckere threatened to blow Ih up *.
+wilese iual wan provided, re
+
+Becurily’ men surrounded tha:
+lane, the ep aoman said, ey
+
+He reported there tors €3 passer
+gre and crew membere ahoar
+ume of the. paaiengare.wore inralsa :
+tourlots of thale way ta Luxor to ace ;
+Whe ensisat rremnpten Of-Karnak and:
+the Valley of the Kings, Dut thelr ag ,:
+4 werenotavailable,
+
+THE WASHINGTON START
+Qa AUGUST 2976
+
+14-0000
+
+ARLE SE OISSEM ad ven... SIAL nit i
+
+t
+PRISON INIT NOTE IED
+
+ROVANE COPY I peed TUE ED
+
+yacnhon UNI fF : ‘
+| . Uh, Re FUE . ‘
+ke N t
+T 1see3s efares | PAGE @1 In 16194  : ne
+ee _ToRt 2021342 mG 76 Sdon 17629 i to
+$e c RET ‘pezi082 AUG 76 STAFF. io oe - 30 |
+"Gite SANTO DOMINGO 17620 oo . - i i :
+; .. i od
+Tor, DIRECTOR INF LACHIANL MEXICO “Git. CARACAS» BOGOTA. BU my ; ‘
+
+CALAES, PANAMA CITY.
+
+WNINTEL REAM MHSPEKE
+
+ani DIRECTOR e96687
+|g, DIRECTOR e992sa
+
+DEC17 \o76
+MIGRO
+
+FinimeD
+
+t) = ae
+ude ENCLIPPER|2 WAS ADVISED STATION TWAT ORLANDO B Os Clu
+
+CALLED ON HIN A FEM WEEKS AGO TO REQUEST THAT DOMINCAN. : pt
+GOVERNMENT ISSUE VISAS TO WIS MOTHER AND SISTER TO VISIT WIM
+
+IN BANTO DOMINGO, (VISAS WERE SUBSECUENTLY ISSUED. BY CONSULATE
+WW WATMED ON. THES OCCASION ERCLIPPERSt ASKED BOSCH TF HE HAD”
+GNTEARD. DOMINICAN REPUBLIC WITH FALSE DOMINICAN PASSPORT. DENYING
+HIB, 808CR UR AND! SHED COSTA RICAN PASSPORT WITH EMCLIPPER@L :
+ASKED 10 SEE. PASSPORT (8 IN NANG OF CARLOS LUIS PANTAAUA
+_ WENDED AND PHOTO 18 GOOD LIKGNESS OF BOSCH, BOSCH SALD: HE hah
+
+a mts GYG OPERATION FOR CATARACTS AND WOULD a Leaving
+DONENIOAN AGPUBLIC BHORTLY.
+
+(8, STATION HAS RECEIVED REPORT FROM GHT-TREX WRITTEN BY _ ue 1
+
+“wit Ped Ie
+A EMPYREKeS IN MAINE) OTATQING THAT FRANK C RETRO Pan
+Ado) =79.2.305"
+
+Bar t97a94
+
+14-0000
+
+TOTAL COPIES RUN BY"
+
+CABLE SEC DINSEM HY PALL. 8
+
+REPRODUCTION BY OTHER THAN
+SUING OFFICE (S PROHIBITED
+
+LPEHSONAINIE NULIEIND
+
+“apvaNcr COPY SILENT OTICO |
+“ACTION. UNI
+
+LIVING IN SANTO DOMINGO. (SEE PARA 1-C REF AD IS KNOWN TO BE oe .
+BOSCH!S CONTACT MAN. AND MESSENGER CARRIER TO CUBAN RIGHTEST -
+
+RE. FILE... ve. ‘
+cece ee eee '
+i. :
+ne ae = Le a ie ene, - _ :
+' - ¥ 466233 Epares PAGE B2 tn 816199; ion,
+Ses ; : Sf a
+| _ : TORI2021342 AUG 76 Sdau 27629 ! .
+i. WHO 18 MARRIED 10 DAUGHTER OF RETIRED. DOMINICAN ADMERAL AND me, tory
+|
+\
+\
+I
+
+GROUPS THROUGHOUT LATIN AMERICA. STATION BELIEVES THIS: MAY
+WELL pe ti
+
+: UE. CASTRO, WHO CARRIES AMERICAN PASSPORT: ‘G-2097949.
+
+7 _ DEPARTED AND RETURNED SANTO DOMINGO THREE TIMES DURING MAY AND |
+SUNG. ALONE», EWP YREX REPORTS HIS NOST RECENT RETURN ON 15 august.
+EMC IPPERSS WILL ATTEMPT DETAIL ALL OF FRANK CASTRONS TRAVEL ,
+JDURING PAST SEVERAL MONTHS, WE IS ALSO THINKING oF CIFTING
+“gastno's F PASSPORT NEXT TING HE ENTERS. SANTO DOMINGO ALRPORT.
+AN GPP ORT IN, DOWN: TRAVEL OBSTINATIONS, wa NOTE THAT REF Ab
+
+AMA SG Lists CASTRO'S MATRONYAIC AS PERE RATHER THAN .
+CORRECT:.Y a8 Pads ‘ALGO, BMPYREX REPORTS THAT U.8. PASSPORT /
+Oe2097037) WHICH WE USING AT LRAST FOR TRAVEL BETWEEN -
+DOMENCAN REPUBLIC AND PUERTO RYCG. LISTS HIS OIATH pare as
+wna 3942 AATWOR: THAN 4 QGPTayGER 1945 AS ‘AUPORTED RGF A
+PARA 3 Oy ae wre 204 wuveun ron CATR IN. AUF vie
+
+’
+14-0000 ~
+
+see EE
+
+v
+
+. ‘Soruee S
+‘PPT FO. 270 : .
+: oY ated
+
+et
+Rot
+
+so” . co” > i:
+-
+
+« .
+. TOTAL COMES
+
+Pan: PRM a - ase ee bh :
+i : | SECRET. |
+
+MRSONUNIT NOTIFIED.
+i :
+
+OTHER THAN
+
+t
+ADVANCE COPY, oman
+
+-dae. non vet
+
+He. FUE.
+
+3 TALES “page e3eeS TT 016194
+TORI 2021342 “AUG 76 ". SDem 17629
+
+a Ce nT
+
+QUT OF COUNTRY, MEMO STATES THAT INFO HAS BEEN RECEIVED BY
+POLICE FROM RELIABLE SOURCES THAT DURING HIS STAY IN DOMINICAN
+
+-pepuaute BOSCH HAS MET WITH CUBAN EXILE LEADERS FROM. PUERTO
+
+ATCO. MIAMI. NEW YORK» CARACAS. WM MEXICO CITY AND “POSSIBLY
+
+~DANAMAN, *
+4, INDEX BOSCH. CASTRO, FILE! 201209202) 2019390124,
+
+"UR> IMPDET.
+```
+

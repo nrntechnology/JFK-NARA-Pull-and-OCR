@@ -1,0 +1,132 @@
+# Document
+
+## Page 1
+
+```text
+0009
+
+04-10093-10266|,..,
+AREAS
+
+2798
+
++ Sea emma Ya a ng MA EA A hey cm a _
+
+RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+L fate
+4 MERGETOR
+
+: MEXICO. CITY
+
+wi & }
++ oP, + ci/ors, coh, SAS »Q
+
+SECRET
+
+2123562.
+
+DIR INFO WAVE CITE “EXI 676}
+
+Fr oA. MEXI 6622 (iw "S673 ) a
+DIR 79e7G “~~
+
+R
+
+ny
+
+an
+
+1. FALLING DEVELOPS MENTS aS R2OSULG
+OCT 3¢ AND 1 NOV.
+
+2. SUS IN FREQUEDY ConraCi YJiH ERNEST: "CHE" SUTVATS.
+
+3. aAbLitiunal moriVariun sinind Sued FLAw LEAVE Cura IS
+SE AELE HELP SUPPORT CHILDREe.
+A, POUCH COMFO SYSTEM NOW Iv EFFECT WORKS AS FULLUYS.
+BROTHER GIVES LETTERS To miss CFNU) Te as érven arog}
+EMRASSY, WFXI, OUTER ENVELOPE MARKED FR [eonwen 18 BulPust] oe
+[erie NBASSY, xava. ‘InnER ENVELOPE MARKED FUR SUBJ CARE oF (E.
+cowes (caehMed|oe. vers 1 LETTERS To sub FUR Wnun HE WuRKS.
+Syste WORKS BOTH HAYS. sof
+Se AeB Knows Endanes FURCER wet [rueva 1 PAPELERA DE
+
+Pues NTES caress] 18 CLD, man SICK, ¢d Ing LIND, seer HER OF
+: Kaname
+
+PER IMEN . tel mee
+
+ane #2 monet as aae
+sued seins sepicines 70 Eacascdlr money poucs. [6 Eakene ase ace:
+
+COMMO CHANSSL AS RESULT MIS FORWER DIMLONATIC CONNECT IONS,
+As2 PEL IEVES fs
+
+PAST» 2,
+
+AA
+
+tome
+
+RETURNTO CA
+Background Use Only.
+Do Not Reproduce
+
+Sleay vave worEo. en(sranti] soneten SERVICE
+
+(2D
+
+14-0000
+
+: ‘cuassiico MESSAGE
+
+_ CAN BE ARRANCED IN PEXICS. THIS FIRST LETTER, OSTEMSLLY ran
+
+y | Locate atten cone basse to mevaenimdliaetinenit et dts 11 ime tbl Wn a
+
+6." Ae2 HAS. BEEN TNETRUCT ED GET WORD Sad Asa?
+caN SERVE SELF, CHILDREN, AND DEMOCRATIC Cause BEST Dy ATasIvS
+10 PLACE.
+
+LETTER TO INDICATE TMAT FINANCIAL AID FOR CRILDCEY
+
+wT
+
+FER, BUT ACTUALLY SRAMTED GY aed, WiLa nul HOLD Ub SPECIFIC
+
+ER OT
+
+v
+
+“GurT AS BAIT BUT WILL SOUND SUZud Gui ON WILLINGNESS STAY IN
+FLACE IN RETURN FOR SOLUTION CHILD SUPPORT FROELEYS AND GOCS
+CHANCE OF HAVING NARE CLEARED AFTER FALL OF CASTRO REGIME.
+
+7. SELIEVE APPROX TYO THOUSA'D PESOS MONTHLY PAYASLE
+IN MEXICO MIGHT DO THE TRICK. WILL MEEP HoS INFCRYED ALL
+DEVEL OPNEMTS. ,
+
+3. PLS POUCH SOSNEST COMPLETE PERSONALITY PROFILE on cue.
+FROM CLOSE FRIESS [a8 10 beta cuarDia]OF REF 2,
+
+INDEX (221-85ss59]
+
+fe
+
+* enw awxermresatapseianen d beecodtera apne leek Bement tee ay Ri eRe RE I
+
+sone eso esas eee Ob Bua >
+
+Ob
+C/S COMMENT: Suu 1s orcs ANTONIG ABASCLO eascia,)
+
+Mi
+
+|
+
+So pear rn I ee
+
+ear ehtaekia aa ics RTO |
+```
+

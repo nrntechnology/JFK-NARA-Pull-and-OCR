@@ -1,0 +1,22 @@
+# Document
+
+## Page 1
+
+```text
+2 CABLE DRTATLS THLRPHONE COAVIRGATION THCLIDING VERBATIN TXT BDWAKS POSSIBLE
+“COMMOTION SOMIET COVERDENT wett aSsuscrmarTon,
+CADE SUPATLS MUNRO CALL OF 25 OCTOEER 2962.
+Cask. a a OSTORE OL TIAISOS cOMTACE VINA Fu SRR AD NESTS
+costact. HER MGCID-5 ASSIS MUSPOMSIRTLIPT Tuts AGFIVIEY 70 KOGAN.
+
+USNA received telephone ‘cal on 23 November
+lating to be Potish driver of. ‘Russian vehicle. _Tnfor:nation
+
+c/er
+
+AVINEATICATIRG
+Grriga®
+
+Opprece Tita ay HOF WER THAN THE (SUG OFFICE iS PROHRITED. 2) Cony Ra
+```
+

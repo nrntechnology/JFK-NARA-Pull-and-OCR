@@ -1,0 +1,56 @@
+# Document
+
+## Page 1
+
+```text
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 SxaiDiRSaSEaED
+
+4 ;
+BE, Reiehnardt 7 Ne °
+acua/3 SECRET
+sen
+D oct 63
+rakICO CITY augur t$2
+gor
+—
+a { “
+_ 793595
+RYEAP
+
+L. sons BAS TaD 90 APEC fen Gem EPTEMATT ORAL. SETTIC
+Quali ity PERRO AS PURREL DIBECIOR FUR XEXICO ABD CIATRAL AMERICA.
+ee G3 GOOD FOSSIBILIFY WE OE ASE PLACE Acme Tet POSITION
+2. REGGE? SORPEGN CORSETS ER UEEEEFY THTS COWEN DN Toes
+SADT ACURRS AND CUSIVICKTEGHS ATP COLSACESRIGIICS OF SUITABLE
+GSvIce $0 FELL COVER POSEETUa.
+
+. Be ew RETURN TO CIA .
+Background Use ar I
+Do Not Reprot-ce
+
+CCc/ac - itr. Etrence (rhone)
+Cy . CdS/Pexs ~ fix. Cachess {rhoos!
+
+ah TIN
+
+RP. Heeasar
+
+ch far -
+cre art
+bel
+
+ReLeasing Gericee ~ (oem ee AgTHEN HCA ING
+Orrt eR
+
+5. B
+COORDIMATING OFFICERS i
+
+it a Katee
+
+L___ 2: Be—__t
+REPRODUCTION BY OTHER THANSIHE ISSUING OFFICE 1S PROHBITED.
+
+Vo pant
+r
+```
+

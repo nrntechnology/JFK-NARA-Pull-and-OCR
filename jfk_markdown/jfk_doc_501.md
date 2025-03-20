@@ -1,0 +1,38 @@
+# Document
+
+## Page 1
+
+```text
+14-00000
+
+104-10180-10233)
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 .
+
+ROUTING
+
+rae shBORK ‘MIC AND
+
+(easnt en. Me AXE
+
+i DUSCTI-ICAL MET. PLE POR HTUTSALT
+
+CTA? soSCkQInICs Am
+
+© UP AT CSuy TOLLACS Yoaa,
+
+Be TAS ING Deva Py od eeu,
+HY OY or Saas
+
+Ma COIL AT  *huceted pricvity cover ststug yor iubp et
+
+03
+
+a re cae AS - (by ik - 0. ‘y. SOUEY
+
+Cis a C/3K/4
+RELEASING OPPICEE AV TRENTICATING orricea
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED, Copy No.
+```
+

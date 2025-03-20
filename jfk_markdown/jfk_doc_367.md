@@ -1,0 +1,57 @@
+# Document
+
+## Page 1
+
+```text
+14-2000
+104-10170-10037| [2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+© toe
+
+CLASSIFIED MESSAGE ~
+
+SEGRE
+
+TO + oIRECTOR . oe.
+- - oh RE Fike erteek eta):
+IM 3 SAN Ne Ca Record Vous. Dees. 1)
+
+DA Sle Git enny an ist cased
+eed
+
+ACTION: = TFW to
+Fen GO
+
+INFO + one poise 3, ct, cueiiettiig Wek S Te
+
+WAVE. INFO DIR HAGU CITE SJAN 0836
+GYROSE - .
+REF. SJAN os3s 4 w lay 095)
+
+IDEN Az COLLIN E, QSTRANDER, USIA REPRE SENTATIVE, SAN JUAN.
+
+: WALDEMAR F. ¥F. LEE, N NETHERLANDS. CONSUL» ‘SAN, JUAN)
+mo cn : aT
+
+ROUTING, (3):
+Jans
+
+RID/aN
+
+veld Ae
+
+PIDVAE?
+wregepe *
+
+GROUP 1
+EXCLUOCO FROM AUTO}
+MATIC DOWNGRADING &
+_ OKCLASSIFICATION
+
+ICE IS PROHIBITED.
+
+REPRODUCTION BY CTHER THAN THE ISSUING O Copy No
+
+Cige?
+```
+

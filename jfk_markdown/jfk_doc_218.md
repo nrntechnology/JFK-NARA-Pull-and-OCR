@@ -1,0 +1,22 @@
+# Document
+
+## Page 1
+
+```text
+14-2000
+104-10114-10042) | 2025
+. v
+
+¢
+
+RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+wy
+
+15 OCT 1954
+
+22D - CHIEE
+
+neh 42 14 $3 a ae
+```
+

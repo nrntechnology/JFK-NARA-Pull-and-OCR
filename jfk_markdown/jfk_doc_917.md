@@ -1,0 +1,68 @@
+# Document
+
+## Page 1
+
+```text
+14-2000
+104-10517-10121
+
+| 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 | 4
+
+3
+i
+a
+4
+i
+
+4 2 - we o%
+ere us. tran shtrsuis . om
+2 UNT: WO/SA/EOR DB iuay
+
+; © =: 6153 K NO » WBeunt _| ECKET
+
+4) DATE : 4 (7 FILE IN CS FILE NO,
+
+;. 70 + GENEVA BERN MADRID Ri
+FROM: DIRECTOR
+
+cons Dc M/SA5 |
+INFO 5 oop, ADDP, C/CI, C/FI
+
+B.. 3, CWE 3; VR
+
+To GNVA INFOBERN MADR ROME PZR :
+PISERNEAN Peano anne / “$5093 ¢
+ner: pin /SOSY +
+
+IDEN I8 CARLOS (TEPEDINO) GONZALEZ, AGE 38 (LOOKS 45),
+5°68", 170 LBS. MOUSTACHE, ROUND, FULL, KIND-LOOKING FACE, —
+THINNING, GRAYING BLACK HAIR COMBED STRAIGHTE BACK, BOW-LECGED.
+
+“END OF MESSAGE ,
+
+CITE OR
+
+ee
+
+Ad mae Mate eceettmne see IM he dene eC
+
+naiyset te
+
+* Cable Sec: PLEASE REF ATTACHED CABLE.
+
+ON Naghh em RPL a Seabee mints eet
+
+er rien aren AN Co A
+a
+
+ernest
+
+\ DpC/EE DC/ii/SA
+
+/ 7- ¥ COORDINATING CFFICERS
+
+- RELEASING OFFICER s x R r 7 cienpicnd oe AUTH EMTICATING
+“cal” REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PRCHIE:TED.
+on Ce) -BSIRSS
+```
+

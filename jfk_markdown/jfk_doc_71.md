@@ -1,0 +1,45 @@
+# Document
+
+## Page 1
+
+```text
+1 104-10075-10200)
+
+| 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 }
+
+wes - ae rau WILL BE SENT. BEGIN avENT Ms@: “ONE SEVEN X G00D
+
+~ tne ;
+"4
+8
+
+~ INTEL. THIS, WEEK XX KEEP TRYING UITH e1g x | NEEP “SENDING NAME
+
+DIAZ ‘List XX TITO X NEED
+PULL. BIO DATA x ALSO _ ALL MOVEMENTS. PABLO
+
+AMDOTAL ‘CRANE “AND ESPECIALLY aly X ANY amas. SHIPRENTS LaTIN |
+oo AMERICA ae LUG SHE was ‘Late REP REINS ‘KARTERED FLIGHTS Toy
+
+rE TELEX STALLED. oa ‘caw ‘you PROV IDE ADDITIONAL
+
+. RETURN TO-GlArss ene
+‘Background Use Only 1/317
+Do Not Repreduce
+14-00000
+
+‘Seu 0 WHATEVER We ‘You FIED K aso LEAVE BLACK BOX
+
+on pie murs “brat 18 see Diaze. ‘cexsoi) OR) FOR OSE 1K
+
+neve ste venene °
+
+Fm tee om
+
+a .
+a
+-
+&.
+be
+```
+

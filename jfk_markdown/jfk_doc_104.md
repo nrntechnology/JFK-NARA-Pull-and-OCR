@@ -1,0 +1,29 @@
+# Document
+
+## Page 1
+
+```text
+Titoa- 10077-10382 : 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+“| RETURNTO CIA
+Background Use Only
+Do Not Reproduce.”
+
+“pm sams: Pen ro m BEuCEScO 13, ruse sequin) xe 1
+a6 10 19 RS 196 PRIOR MIS RETURH LAOS. BOS OFFICER WILL ESCORT, ADVISE
+Dy HO? CONTERIEE.
+
+a, , ao5 a or , .
+_ | sae Congas (wraAtR/2,. CHIE MAGA sui) ane BS FEB 19Gb. ibn)
+_PRRSGRAL PRD STRONG AD FLAN PERSONAL, VIBTY JTRTORS POLICNENG OS’ TALES.
+
+. ‘7 SSSAGIMATING OFFICERS .
+
+“RULE ASINe OFFICER ‘ } (aE da | ‘score eta | ASTOESTICNT ORG
+
+i _Soctneeabeeten . j orricee.
+
+a LBRCRES |
+|p) senoolad v OTHER THAN THE ISSUN@G OFFICE 1S PROHIBITED. Cony Ma
+```
+

@@ -1,0 +1,42 @@
+# Document
+
+## Page 1
+
+```text
+‘1104-40100-10304%m | 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+ger as
+
+fobs
+
+wos Ure, speP, C/Cl, 14 C/5as oils 7 ; ;
+
+1% MRID . 1NtO MEX! Cite OUR 8 14 8 1
+KAPOK PBRUMEN
+
+REF: MRID 0312 (IN 53124)
+
+1. OOCOrL MEXI SHOULD BE GIVEN LEAD co MILTON LTwN. AVOID.
+ING KUBARK INVOLVEMERT THIS CASE.
+
+2. NO TRACES(ERWESTO ABREU GOMEZ) AGERE BE 15 TARGET FOR
+DEVELOPMENT FOR PERUEN OPERATIONS. INFORMAL DISCUSSIONS WITH
+AaRED GORE ON LYNN CASE AND PORBTELY Late reTRODUCTION TO
+ODCOIL, AGENT MAY PROVIDE OPPORTOWITY POR ASSESSAENT 23> DEVELOPING
+Bac 2088.
+
+®WH COMMENT: Ref reported U.S. citizen. LYER told Berids da police
+chief of drugs case. Chief suggested 5.8. agent be be inserted in
+net. (Merida wishes develop Chief ABREY ‘for PRROMEN ops.
+
+~~
+
+8A6/ROB. Ronis Ca Draft)
+
+C/wap sou ae neeter es pe art “7 Ae /we/s
+baal ~“y [weccaaetn | AvIMUNTICAT ING
+J ek
+
+eer teete
+```
+

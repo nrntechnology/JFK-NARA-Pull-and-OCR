@@ -1,0 +1,22 @@
+# Document
+
+## Page 1
+
+```text
+14-0000
+
+104-10097-10069 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+Rieny 080 INFO
+1. riss(vora v os VaR IG A
+2. ONUARD TRAVE AER OL INEAS ‘PANAMA. Ar 203. amr Ivins |
+
+_ B0eO e829 gi 8 DEC.
+“SECRET.
+
+.
+
+I i SS 00,
+NL
+```
+

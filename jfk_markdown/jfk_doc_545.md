@@ -1,0 +1,126 @@
+# Document
+
+## Page 1
+
+```text
+14,0000
+
+104-10183-10376
+
+; in [2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY AS:
+Be . _. _REYURN iU ei SASSINATION RECORDS ACT OF 1992
+. . ; Background Use Only + :
+
+Do Net Reproduce
+
+CLASSIFitO /AESSAGE
+
+ini y i 1
+te SI BA ROUTING :
+
+$j
+
+/,70 4 OIRECTCR
+
+i
+"eROM  UMAAVE SEP 26 20212 61
+
+- ACTION s BELL 10
+
+“info ODP, COP, anpp/A, WH 5, S/C 2
+
+‘pIR INFO-RIAS CITE WAVE 3145 ET B90 | Ie yas
+JAZIP KUCASE AMICE :
+nF pik o5764 Paka 2 CC upycewyt -
+
+y. WAVE PLANS START ACROSS gonad TRALSIS an1GE INFILS ZAR
+FUTURE 2S FOLLOWS: = o4f OO
+
+d Asa (OAT? paz9 casTao) Pps SANTI
+arov 3 sev 1928) FATHER? Qesud).2 THEs: Es52) wa waVE
+
+TRACES. LOCAL ODENVY TRACE UNDEataYs
+
+Ag DE LAS VEGAS niNa
+
+a, Be EUSTIQUIAND GARCIA LEZCALU) FOVS BARTI, PROV WATAWZAS«
+
+KH :
+(3 Dee 19142) FATHER:
+
+TRACES. LOCAL ODEKVY TRACE UNDEATAY +
+
+nu THEA @eacetA) “mu WAVE
+06
+
+7 Ce NIGUEL A. DIAZ ISALCUEs
+ba FES 1957. FATHER: GIGUEL ¢
+REFS! UFGA 1783. by DEdod [Fue ts TLFYL #3 EXFIL Cla .
+WITH EXPERLENCE CLANDESTINE +°S palo 17 2a She
+RELEASED. FORSEALY HENSER SOY Cuan CLANS ty Fob MF
+LOCAL GCEA¥Y TaAce yaveasaYe o 8
+
+1 pe (OscKA OLIVA CARTED) 7 TualaSE Ors? cui yfevT42) Lo
+WAVE 445326 olf . of
+
+ge Gund ESA ISSA GIWrAE HS
+
+. A
+
+e Gist Pek a -CESTED |
+= rere —eee
+
+| Lowe a |
+. RLEPROOUCTION 8Y OUR THAN Tmt ENS CHch PRCMBTLO. Copy No.
+
+memes ae err ommmems BT ”
+
+14-0000
+
+| FROM 8
+
+" ACTION s.
+
+‘
+INFO)
+
+vavE 5218." YB IN 3 ‘aus. iff Sle
+—_—_——
+
+y Fe (FRANCISCO COE ivez ELEGALDE
+
+3 AKD C AND nds lsepee
+
+2. REQUEST 70AS SUSJECTS Ay
+UPON COMPLETION TRAWING
+3.
+
+FATHER:
+TRACE UNDERVAY.
+PRQ PART OnE FOLL IN DISP.
+
+Gn OTHER: Gust nw WAVE
+
+SUBJECT 1S CANDIDATE Fe:
+
+RwWT Ttat.
+
+RADOP »
+ee
+
+OW Curb orf BE Sutké
+To, pWecuge LImMm AS es, OF MESSAGE
+
+Aig wete Te Oran FuT te RAT nF (é
+c/S COMMENTS: *K9S MUAITING WAVE PLAN INITIATE CAMPAIGN PREVENT EXECUTICN
+
+AMHING/1.
+
+* ¥sCABLES PRE-DATE CS FILES. COPIES MAY BE SEEN IN s/c ARCHIVES.
+
+REPRODNET! ION SY OTR THAN tre rn Ge Foe
+att - 4% © .
+
+wee peer
+```
+

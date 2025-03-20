@@ -1,0 +1,31 @@
+# Document
+
+## Page 1
+
+```text
+000 -
+104-" 10100- 1015:
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1092 moan
+
+CLASSIFIED MESSAGE _ ng
+DRIG = be stw A” Lo, ‘ :
+uNTT GAS/EOS . (INDEX. §-E-C-R-E-T :
+at 629250 GENO INoEX
+
+DATE :8 OCTOBER 1963 _ [i FILE iN-CS FILE NO. 19-G-78 _
+TO MEXICO city
+
+FROM: DIRECTOR
+
+CONF: sas & ;
+INFO Ope ct, cH/0PS, c1/oa, Fl, FI/INT. 2, wH 7, RF, ve
+io PREITY MEXI 7 INFO . — cneor FGAYGY
+
+IgWTITY:A aurenng seas
+
+Tm oF UrSOAGS
+
+RETURN TO CIA.
+```
+

@@ -1,0 +1,74 @@
+# Document
+
+## Page 1
+
+```text
+176-10036-10115) [2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+JFK ASSASSINATION SYSTEM
+IDENTIFICATION FORM
+AGENCY : NARA ~
+RECORD NUMBER : 176-10036-10115
+RECORD SERIES : National Security Files
+AGENCY FILE NUMBER :
+ORIGINATOR : CIA
+FROM :
+TO: -
+TITLE : CIA Information Telegram
+DATE : 7/16/1963
+PAGES : 2
+SUBJECTS :
+DOCUMENT TYPE :
+CLASSIFICATION :
+RESTRICTIONS :
+CURRENT STATUS :
+DATE OF LAST REVIEW : 9/10/2000
+a OPENING CRITERIA :
+COMMENTS : National Security Files, Box 198: Vietnam,7/1/1963-7/20/63. Box 2
+Hainn Information affecting the. Nationat Cotesia. Unt teds Stat
+trenimission or rev velation of which In ‘any manner ‘una uthors
+
+——TELASSIFIGATION. : Ol SEMIN
+
+(When Pilled In) ‘NO; FORE TG vere
+
+S SUBJECT “STATUS OF. COUP -DIETAT PLANS. DATE DISTR: .
+
+“LOF TRAN. :K EM TUYEN'S,. GROUP.
+
+iF
+
+i
+
+oo .
+
+ic QUNTRY . SOUTH -VIETNAM.° - : REPORT NO.
+} : . ;
+
+i
+
+i
+
+j
+
+}
+
+a 5. JULY: 1963.
+:SAIGON, A JULY: 963)
+
+¢ SOURCE A. .HIGH-LEVEL. VIETNAMESE. OFF LGIAL. "ey
+
+- LEADE! RS.
+
+ele rere ues %9(
+
+T CIRSSTFIEATION =~ i osseminationco T
+
+REIGN |
+
+SHE: AGEL cous ars
+
+; ANY i LHE
+BA. Ds avi Pa
+```
+

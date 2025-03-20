@@ -1,0 +1,59 @@
+# Document
+
+## Page 1
+
+```text
+10412-10005 -. | 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 I ae
+
+| ouTeoINg | ‘MESSAGE
+
+oWF oo 80 DO a 0
+“SECRET a
+" DEFERRBED TELEPOUCH 17020_2 | WASHINGTON 9." ae
+a corer ‘INFO: FILE SO mpex . DISSEM BY:
+
+ MOINDEK: 2”
+
+5-5)
+
+oie ¥ .
+
+QUARTERS IN. ‘MOSCOU.
+
+“Sonerine & EARLIER, IN ban? “KUZNETSOV. "ATTENDED.
+
+THE MILITARY ‘DIPLOMATIC ACADEMY. “END, FYI. we
+
+fcc
+
+" REPRODUCTION BY OTHER THAN THE ISSUING OFFICE 1s PROHIBITED °
+
+“OUTGOING MESSAGE
+
+SIGNAL CENTER use onty
+ace Tes
+
+(ONF 0 0 ne ee ee
+
+SECRET
+
+_, MMSSAGEHANDUNG INDICATOR =” - DATE-TIME GROUP cra So MESSAGE REFERENCE NUMBER
+
+O noinoex «
+
+cone: as - INFO: “Fike : Son ee Q 1 7ek oo O worn” a
+
+“Des py
+
+SE/CI/x Bow BUONSSON
+
+“93 LIN DRAETL 33
+SE/X/EU (Ul. NOSTE ety) 3, ve
+
+~ rer itl hia § “ER! “IMEDEY
+
+° cL’ BY: “. ag ganar.
+
+; z SULLIVAN |
+```
+

@@ -1,0 +1,65 @@
+# Document
+
+## Page 1
+
+```text
+1400000
+
+PAY ‘berore AURQICAEE
+
+VIET TECKS LEFT BY SuTP FRow SAPTIACS DE SUZA. ON 19 NOV
+nee ox 900° sovs WERE SEEN WALMIN
+
+STREDTS wacac wITH clirteass a
+9
+
+tECD.
+
+8 ASS’ SoxPTtcn They avs,
+
+Lav88 an’ ‘AbaT "Six MONTHS
+
+ve meee wee
+
+cave ee
+
+vaTeMeAs 10 ve:
+
+Cote
+
+Lets
+SEE-TwD,
+
+FLOW oF cOvS 1S.
+
+MORE WILY
+
+opRpstTion WOULD Rave 0 VALUE of BEA NG. comes aa a .
+MAGE Y FIDEL DESHACE™. =
+* 3, see one’, ABOVE.
+Ag ROT RNGYN, BUT CUBAN POSITION IN DISPUTE VERY PTRDEPENDAST,
+UNARPEOTED a a
+mAat € oe
+“t, ROST OF THE BELITIA PERSONNEL HAVE BEEN convents To,
+SREY REGULARS PAST SIX ROFTHS.
+. agro - ,
+3. [2 [yr ISPRESSION 1 THAT CUSAN AR¥Y NOW VELL TRATED es)
+@ SARIZED. :
+
+4. ON TEN DEC. “FaR Sond, ALL CARS HALTED oN RAD, URILE
+CONTINGENT CUDAN TROOPS SURROUNDED a CAKE FIELD AND SPRAYED it
+YITH GURFERE, “sRANCIED aves FouNn NO GRE. TROOPS WELL PED AkD
+
+& REC:
+
+SUFFLEED. (SOURCE ef REUT 9 DEC). SoR20a aPPRox ee RES
+
+"-FROH RARIWA TOUARSS PLILR OSL RTO.
+SECRET
+
+ats wy tannara ccna na  eghd nte
+
+a .
+efs cea S 2B MOLY t Sad BERETS CRA £5 COR CHELATES |
+```
+

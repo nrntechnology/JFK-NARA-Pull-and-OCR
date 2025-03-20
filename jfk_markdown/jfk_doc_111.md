@@ -1,0 +1,42 @@
+# Document
+
+## Page 1
+
+```text
+14-00000
+
+104-10092-10202) | 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |_....
+- Y
+
+4 i
+
+et
+
+FRO
+NON, tag Se .
+f RETURN TO CIA
+INFO 1 ODP, Cl, CI/CPS, Wi 7, RR VR, Background Use Only
+SE
+eke | ees ee inl
+DIR wave CITE YEXI 6332 PLL SS Co.
+REF AVE 517M AC’ .) Kt
+
+\
+
+MEXT REQUESTING
+
+PROCESSING REQUIR
+
+hae
+
+SENT. IT UNL IMEL
+
+SE CPR ET
+
+C/S COMMENT:
+
+**RYBAT REF.
+
+[2966 .
+```
+

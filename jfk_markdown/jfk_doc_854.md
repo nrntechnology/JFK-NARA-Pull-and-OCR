@@ -1,0 +1,66 @@
+# Document
+
+## Page 1
+
+```text
+‘roa-t0308-t0168 | 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+L —
+so TURN TO CIA
+~ Berkground Use Only
+see REQ OS GANETRO . Do Not Reproduce
+
+Sac NEXT TO HIM
+
+Lhe-Be KILLER STILL aT
+
+JANUA 2 L884. AGRE TAKE
+
+x
+
+‘haRTANNA ARGUELLES)
+
+~ at
+
+Il .8 KAVANA
+
+13-00000.
+
+foe
+HE CaN aGRIN veITE To
+TION(MARE AN wi WANTS TO”
+:
+Ae) FOLLs
+{AS FURNISHED EEouesT oo
+, BUT TO SATE xo
+. VOICED ‘StRONG, vps
+
+GPTER wot
+
+AVILA MOTHER DiED..
+
+LETTE
+
+NOR BELIEVED 79
+
+T r ANN .
+ira Y RIANNA aie acl HAS CONFIDEN
+
+NESTRINHO
+
+PER KUBARe INSTRUCT
+
+3. SINCE :
+SHOES, SAGP,, SHAMS
+
+Tod,
+
+ROLL eases —
+
+SETERS NAV
+
+ra?)
+
+on” _ - —
+```
+

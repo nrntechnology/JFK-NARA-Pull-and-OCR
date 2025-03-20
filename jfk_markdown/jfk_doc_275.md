@@ -1,0 +1,67 @@
+# Document
+
+## Page 1
+
+```text
+14-00000
+
+104-10129-10027|
+
++ NAME (Last, First, Middle)
+
++ OFFICE,
+
+[2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992 |
+
+i
+
+\ J = SECRET Xv
+
+DATE OF BIRTH
+
+2.
+
+Piccolo, Joseph S. 8 Dec 1935
+5S. PRESENT POSITION
+
+DIVISION. BRANCH (or overseas station
+existing cover if lateral assignment )
+
+ua) ~ Statd Ops Off - #0396 6576
+
+8. PROPOSED POSITION (Title, Number, Grade}
+
+6. EMPLOYEE EXTENSION
+
+j~
+_{Managua, Nicara
+. PROPOSED STATION (6~ z2
+aL
+JSMCOBRA Ops Off. #1770 GS-12
++ TYPE OF COVER AT NEW STATION 10, ESTIMATED DATE OF 11. NO. OF DEPENDENTS TO
+DEPARTURE © ACCOMPANY
+
+O/A 11 Oct 68
+
+Militar
+COMMENTS
+Subject was medically approved for overseas assignment in December
+
+1967. Is returning short of tour for assignment JMCOBRA.
+
+15. wow NUMBER AND BUILDING|16. EXTENSION
+
++ DATE OF REQUEST RE ees TING OFFICIAL
+CG
+
+Forslund 3D5319 Has. 6576
+
+16. OFFICE OF SECURITY DISPOSITION
+
+19. OVERSEAS CANDIDATE REVIEW PANEL DISPOSITION
+
+REQUEST FOR PCS OVERSEAS EVALUATION
+
+By (ose 259 225 088s
+```
+
